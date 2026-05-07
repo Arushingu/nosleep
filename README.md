@@ -1,115 +1,158 @@
-# The previous tenant of my apartment left a list of rules taped inside the bathroom cabinet and I've been breaking them
-I moved into my apartment about six weeks ago. Studio, third floor, old building in a part of the city that used to be nice and is slowly deciding to be nice again. Rent was suspiciously reasonable but the landlord seemed normal, the walls seemed solid, and I needed a place fast after my lease fell through. I signed without thinking twice.
+# I'm stuck in a place called Candletown. Please help me.
+Has anyone ever heard of this place? Because I'm stranded here. It's a ghost town unlike I've ever seen, and I'm an avid explorer who's been to many a ghost town. Let me back up to the beginning though.
 
-The first thing I noticed was how clean the bathroom was. Not landlord-clean. Obsessively clean. The grout between the tiles looked like someone had gone at it with a toothbrush. The mirror was spotless. The cabinet behind it had been wiped down inside and out.
+I like to travel. Specifically, I like to travel to nowhere. Small, middle-of-the-empty towns, isolated parks, and, of course, forgotten ghost towns, things of that nature. I'm actually working on a travel series called "Nowheresville, USA," documenting my adventures to places like this.
 
-Taped to the inside of the cabinet door was a piece of paper. Handwritten. Neat, small print. No signature, no date.
+Well this time, I was headed out to the middle of Nevada, way out in the desert to a small ghost town called Havensburg. It is \*way\* out there, like, so far out in that tan wasteland that I was worried I'd run out of gas. I'd been traveling for hours at this point, down an old state highway with absolutely nothing but shrubland and sand around me, and I was starting to get nervous. I did have an extra gas container, but... well, you never want to have to actually *use* the thing.
 
-It said:
+So imagine my relief when I saw a big, beautiful sign for Candletown, USA. Population 250, if the sign was to be believed. It felt like finding an oasis in the Sahara. Gas and food, and a little bit of rest, all promised in shining metallic green. And it was just 15 miles ahead, off the highway.
 
-Rules for this apartment. Please follow them.
+I sped there. My gas light was close to lighting up, so it was pedal to the metal for 15 long, empty miles. Then, an exit, and two more miles on a side road into desert land. For a minute, I felt I'd been lied to. There was a hill before me, but no sign of the town so far. Typical, for these isolated hamlets. But unnerving all the same.
 
-1. Do not run the shower after 11pm.
-2. If you hear knocking from the pipes, knock back twice. Never three times.
-3. Do not look at the bathroom mirror with the lights off.
-4. If the drain in the shower makes a sound like breathing, leave the bathroom and close the door. Do not reopen it for at least thirty minutes.
-5. On the first night of every month, leave a glass of water on the bathroom sink before you go to sleep. It will be empty in the morning. Do not watch it.
-6. If you follow these rules, nothing in this apartment will hurt you.
+And yet when I crested that hill, there she was in all her dilapidated glory. Roughshod, collapsed buildings dotted the sandy valley. There were only a few beaten and sand-blasted roads off of the Main Street, one leading to a small, deserted residential plot of homes, another to what appeared to be a mine shaft. Another still branched up a hill to old mining buildings, and the fourth went to a sharp, white-stone historical marker in the shape of an obelisk.
 
-I took a photo of it because I thought it was funny. Sent it to a few friends. We laughed about it. Weird previous tenant with a flair for the dramatic. I threw the list away.
+The main street was quaint, if empty. An empty parlor with no door sat beside an old grocery store, its windows whole but dusty. A few empty, decaying cars sat parked in slanted parking spots. There was a church, and it seemed to be in pretty solid shape, its wood well painted and its steeple still standing proud. Beside it, a gas station, and then, a hotel, both of which seemed open. Hallelujah, I thought. I'd be okay.
 
-First two weeks were completely normal. I started to forget the list existed.
+I stopped at the fuel station first, parking at its only pump. By now, the desert was growing colder, darker as the sun began to retreat beneath the bruised horizon. Lucky me, that hotel was right there. I slipped into the store and looked around, resolved to hurry up and snag a room to rest.
 
-On the third week, I took a shower at midnight. I work late sometimes and I didn't think about it until I was already under the water. Nothing happened. I dried off, went to bed, and felt pleased with myself for not being superstitious.
+The shelves were stocked, which was nice. I grabbed some bottles of water, and some snacks, and headed to the vacant counter. A little dinner bell sat here, begging to be tapped, and so I did. Its little *ding* summoned the attendant.
 
-The next morning the grout between the bathroom tiles was darker. Not dirty. Just darker. Like the color had shifted overnight from white to a faint grey. I told myself it was the lighting.
+She was tall. That was the first thing I noticed. Very tall, like six and a half feet. Slender and beautiful, though, with long black hair and sharp features. She offered a wary, if pleasant smile as she came out of the back.
 
-Four days later I heard the knocking.
+"Hi," I said, placing my purchases on the counter.
 
-I was brushing my teeth around 10pm and there was a distinct knock from somewhere inside the wall behind the shower. Two sharp taps. Then silence. Then two more.
+"Hello," she purred back. "We don't get many travellers out here. Is this all for you?"
 
-I remembered the rule. Knock back twice. Never three times.
+I nodded. "This and thirty on your pump."
 
-I didn't knock at all. Because I'm a grown adult and I don't knock on walls because a piece of paper told me to.
+She began to ring me up. "So," she said, her voice almost humming, "What brings you this far out?"
 
-The knocking came back that night at 2am. Louder. Not from the bathroom wall. From the wall next to my bed. Two knocks. Pause. Two knocks. Pause. It went on for about forty minutes. I put in earbuds and eventually fell asleep.
+"Oh, I'm headed to Havensburg. I'm a sort of writer-explorer, and Havensburg is my next topic."
 
-The next morning the grout was darker again. Noticeably now. Almost charcoal in places. And there was a smell in the bathroom I couldn't identify. Faint. Wet. Like the underside of a rock in a river.
+She grinned. "Ghost towns, huh? You know, Candletown is considered such. You might consider staying a while and writing about us."
 
-I started sleeping with the bathroom door closed.
+"Oh, maybe," I chuckled. "Maybe on my way out. I mean, it is pretty desolate. Kind of wild to meet anyone at all out here. You live here?"
 
-The following Saturday night I got up to use the bathroom at around 3am. Half asleep, didn't turn the light on, just walked in and stood at the sink. I was washing my hands in the dark when I remembered rule three. Do not look at the bathroom mirror with the lights off.
+Shrugging, she said, "Sort of. My twin and I keep the spirit going."
 
-I was already looking at it.
+"Twin?" I asked.
 
-I don't know how to describe what I saw. My reflection was there. The shapes were right. My shoulders, my head, the outline of the sink. But something about the proportions was wrong. The reflection's head was tilted maybe two degrees more than mine. Not enough to be obvious. Just enough that the longer I looked, the more certain I became that I was not looking at myself.
+"Yep. She runs the hotel next door. You'll know her when you see her."
 
-I turned the light on and everything was normal. My face, my reflection, exactly as it should be. But my hands were shaking and I couldn't go back to sleep.
+My eyebrows shot up. "I was actually going to try and rent a room there!"
 
-The next day I dug the photo of the rules out of my phone and read them again. I had broken three of the six. Shower after 11. Didn't knock back. Looked at the mirror in the dark.
+Her eyes lit up. "Oh, well, tell her Bray sent you. She'll comp the room; seems like you could make good use of it anyway."
 
-I decided to follow the rest. Not because I believed in them. Because I was running out of explanations for the grout and the smell and whatever I saw in the mirror, and following some rules felt like doing something instead of nothing.
+"Oh yeah, absolutely," I said. "I'm exhausted."
 
-I skipped rule four because the drain hadn't made any breathing sounds. Rule five was coming up. First of the month. Leave a glass of water on the sink. Don't watch it.
+Her smile widened. "Glad you're here. Always good to see a new face out here."
 
-I left the glass out on March 1st. Went to bed. Set an alarm for 3am because I'm an idiot and I wanted to see.
+I smiled back. "Thanks a lot, I appreciate you."
 
-I didn't watch from the bathroom door. I just listened from bed with the door cracked open. For two hours nothing happened. At approximately 3:20am I heard something I will try to describe accurately.
+She merely winked as I turned heel to go fill up my jeep. Once that was done, I scooted my car a lot over and parked at the hotel. It's old, the hotel. From the 60's, *maybe* the 70's. Certainly preserved well. By the twins, I figured. Still, something about it was, um. Odd. Out of place. I pinned it to the pristine nature of the building, as juxtaposed with the rest of the ghost town. But I didn't - and don't - think that captures the entire essence of the hotel.
 
-It was the sound of water being consumed. But not drinking. Not the sound a human mouth makes. More like the sound of water being absorbed. A soft, continuous reduction in volume with no gulping, no breathing, no pause. Like the water was being pulled into something that didn't need to swallow.
+Still, I needed sleep.
 
-It lasted maybe ninety seconds. Then silence.
+So I grabbed my travel bag and headed on in through the etched glass doors and found myself in a marble-floor, glass-chandeliered lobby. The furniture was all antique, plush and richly red. The receptionist desk stood out to me, being lovingly chiseled redwood. The symbology on it was, well, odd to say the least. A carved-out circle in the center, surrounded by a flock of moths, all above a clean row of lit candles, it read to me as ornately confusing.
 
-In the morning the glass was empty. Bone dry. Not a drop left, not even a residue ring. And the glass was in a different position on the sink. I had left it on the right side. It was now on the left, closer to the mirror.
+On it was another little dinner bell. I dinged it, and from the back, came the spitting image of Bray. I mean, identical. She did say "twin", but I didn't expect just... her again. I blinked, let loose a kind of incredulous chortle, and said, "Uh, hi. I think I just met your sister?"
 
-The grout was almost black.
+The woman gave me a coquetish smirk. "Ah, you met Bray. I'm Shay. It's nice to meet you."
 
-I tried to find the previous tenant. My landlord gave me a name and I found her on social media after some digging. I messaged her. It took four days for her to respond.
+"Pleasure's mine," I said. "I just need a room for the night."
 
-Her message was short.
+She seemed to study me for a moment, her eyes wolfish and astute. Then, she wagged her eyebrows and said, "Any friend of Bray is a friend of mine. Room's on the house."
 
-"You found the list?"
+She bent down and pulled an old key out from under the desk. "Room one-oh-three, just down the hallway here. Enjoy your stay, and holler if you need anything."
 
-Yes, I said.
+I took the key, and started to head to my room, but hesitated. Turning around, I said, "Are you two the only ones in town?"
 
-"Are you following the rules?"
+And she shook her head with a sharp laugh. "No, no. There are others. Not many, but some. Some people like it here." She shrugged. "They don't leave."
 
-I told her I broke three of them before I started following the rest. The shower. The knocking. The mirror.
+I mouthed an awkward "oh, okay", and thanked her before heading to my room. Down a crimson carpet hall, I found it, and unlocked the door. When I opened it a wave of just, old, hit my nose. Old dust. Like the room had been undisturbed for years. But there was something else too, a, a burnt smell. Smokey. I don't know what that's about.
 
-She didn't respond for two days. Then:
+I came in, set my stuff down, flipped the bedside lamp on, and cozied up in the (surprisingly) comfortable bed. 
 
-"I need you to understand something. I didn't write those rules. I found them the same way you did, taped inside the cabinet, when I moved in. I followed them perfectly for three years. I never broke a single one. And nothing ever happened to me. Nothing. The apartment was quiet, the grout stayed white, the mirror was just a mirror."
+Wasn't long before I was asleep, just happy to be somewhere somewhat safe. And as I fell asleep, I thought back to Shay and Bray. It's odd, but they felt familiar somehow. Like, maybe we'd met before. But I'm fairly sure we haven't. I chalked it up to being tired.
 
-"The rules work. Whatever is in that apartment respects them. But you broke three. I don't know what happens when you break them because I never did."
+I don't think I dreamt that night, which is unusual for me. So I didn't exactly wake up rested. Still, the sleep was welcome.
 
-"The tenant before me broke one. Just one. The shower rule. She moved out after two weeks and wouldn't tell me what happened."
+But when I left the room that morning and headed out to the lobby, I found it oddly quiet. And I mean, Candletown was already quiet, but something about this just felt... still. I set the key down on the desk as an uneasy jitter crept through my gut. I felt that now was as good a time as any to leave.
 
-"You broke three."
+Outside, I loaded up my jeep and started her up. I pulled out onto the main street, and still I didn't see a soul. That "creeped out" feeling started getting more urgent, so I hit the road for the highway, leaving Candletown in my rear view mirror with a heavy sigh of relief.
 
-I asked her what she thinks is in the apartment.
+I traveled maybe two miles down the road.
 
-She said: "I don't think anything is IN the apartment. I think the apartment IS it. The walls, the pipes, the tiles, the mirror. It's all one thing. And the rules are the terms it set for living inside it."
+And then, cresting a hill, I saw... Candletown. The main street. The hotel, the gas station. The obelisk marker, the church, the mines. And I admit, it kind of broke my brain. I couldn't comprehend it. I know I didn't go the wrong way; I had gone the way I came. But it just, looped back to Candletown.
 
-"You broke its terms. I don't know what that means. But the grout changing color means it's angry. When I moved in, the grout was white. When the woman before me moved in, the grout was white. If it's turning dark for you, something has changed and it's not going back."
+I drove through the town again. I don't know why, but I thought if I just, kept on through the main street, going straight, I'd get (somewhere else*. But as Candletown vanished behind me, as I drove over another hill... Candletown appeared.
 
-I haven't responded to her last message yet. That was three days ago.
+I stopped at the top of the hill completely speechless. I audibly breathed a "no fucking way" through my lips. I blinked, rubbed my eyes, and stared, jaw agape, at the crumbling town. I did the only thing I knew to do: I checked my phone. I still had service, so that was a blessing. I thought as hard as I could. I had a sister in Phoenix, Arizona. Maybe she could help, if she didn't think I'd completely lost it.
 
-The grout is completely black now. Every line between every tile in the bathroom. It happened overnight. I went to bed and it was dark grey. I woke up and it looked like someone had filled every seam with ink.
+I hesitated. She might think I was mad. Maybe I *had* gone mad. But she was still my best shot. So I called her.
 
-The smell is stronger. Not just the bathroom anymore. It's in the hallway outside the bathroom door. Wet stone. River water. Something underneath.
+It rang once. Twice. Three times, and I started to pray. But then, she answered. She sounded tired, groggy.
 
-Last night I heard the drain. The breathing sound from rule four. Slow, rhythmic, unmistakable. Not mechanical. Not pipes. Something pulling air in and pushing it out, coming from the drain of my shower, and it didn't stop when I left the room and closed the door.
+"Uh, hello?"
 
-It's been going for nine hours now.
+"Hey! Hey. It's me," I spat out. "What are you doing?"
 
-I'm sitting in my kitchen writing this. The bathroom door is closed. I can still hear it from here. Slow, steady, patient. Like something that was asleep for a long time and is now very much awake.
+She groaned. "Sleeping, jeez. What are *you* doing?"
 
-I don't know what to do. I can't afford to break my lease. I can't explain this to my landlord without sounding insane. I followed the remaining rules perfectly for three weeks and it hasn't mattered. Whatever this is, it's not following the rules anymore either.
+I paused. "Why are you still asleep. It's like, mid morning."
 
-I just want to know one thing. The woman before the woman before me. The one who broke just the shower rule and left after two weeks.
+"What?" came her disbelieving response. "It's three in the morning. Are you okay?"
 
-What did she see that made her leave that fast?
+I swallowed. *My* clocks said 10AM. The sun was rising in the sky. "Are you sure?" I asked.
 
-Because I broke three rules and I'm still here and I'm starting to think that's not because I'm brave. I'm starting to think it's because it hasn't decided what to do with me yet.
+She huffed. "Yes, I am. Where are you?"
 
-The breathing just got louder.
+I sucked in a sharp breath and, not knowing what else to say, I told her, "Candletown. Candletown, Nevada. Have you ever heard of it?"
+
+"No," she said. It sounded like she was sitting up. "I thought you were in like, Havensburg or something."
+
+"Well, yeah. I was headed there but I almost ran out of gas and ended up in Candletown. But like, I..." I paused. How was I supposed to even *begin* to explain this? "I don't think I can leave."
+
+"What are you talking about? Are you safe?"
+
+I licked my lips. "I do not know. To be honest."
+
+From there, I did my best to explain myself, but I'm not sure she understood. I don't blame her, I mean. I wouldn't believe it if she told me what *I* had just told *her*. I did my best though.
+
+Beneath the panic, I had an idea. I told her to hang on while I pulled up my maps app. And when I did - well, I was expecting *something*, but the maps app was black. Empty. Like I was in a void.
+
+"I don't think I have GPS," I told her. "Can you see where Candletown is?"
+
+I heard the *tap tap tap* of long nails on a phone. Then a pause. Then more tapping. And after another bout of silence, she said, "There is no Candletown in Nevada. There's no Candletown in the US, like at *all*."
+
+I dropped my phone, her "hello?"s echoing at my feet. And I just stared at the town. The town in the middle of nowhere. The town *in* nowhere, apparently. I guess I had finally found the literal "Nowheresville". 
+
+Eventually I managed to get some of my senses back. I picked up my phone with shaking fingers, pressed it to my ear, and said, "If... if there's no Candletown, where am *I*?"
+
+Silence.
+
+Then: "Share your location on snapchat."
+
+I did so.
+
+"Well?" I asked.
+
+More silence.
+
+Then, finally: "I don't see it. It doesn't even say you're online."
+
+My heart began to flutter. I felt queasy, cold, rigid. Like a corpse with food poisoning. I didn't know what else to say, what to *do*. My breathing quickened and my tremors grew to a shake. And then, just before I could say anything else, I saw movement in the town. A figure. *Someone*, going into the church.
+
+They were tall, dressed in a black dress. I think it was Shay. Or Bray. I'm not sure.
+
+Without anything left, I told my sister I'd call her back and hung up unceremoniously. Whoever *that* was, they were probably my best bet. I started my engine and made my way down the hill to the main street where I parked at the church. It loomed over me like a sentinel, guarding... something.
+
+And, I mean, that's where I am now. Just sitting outside of the church, staring at its wooden doors. Truth be told, I'm afraid to go in. I have this sickly feeling, a nausea from the pit of my chest, just staring at the building. Maybe it's because I'm already incredibly freaked out. Maybe my gut is telling me something. I just don't know.
+
+A red moth just fluttered by and I flinched. Just to show how, I dunno, how paranoid I am right now.
+
+Does anyone have any advice, please? I don't know what to do. Should I go in the church? It seems like it might be my best bet, if that's where Bray/Shay went. Maybe they know something. Or, I mean, maybe it's a bad idea. I don't know.
+
+Help. Please. I don't want to be stuck in Candletown.
+
+[Update.](https://www.reddit.com/r/nosleep/s/td7bsENnug)
