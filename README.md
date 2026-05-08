@@ -1,158 +1,268 @@
-# I'm stuck in a place called Candletown. Please help me.
-Has anyone ever heard of this place? Because I'm stranded here. It's a ghost town unlike I've ever seen, and I'm an avid explorer who's been to many a ghost town. Let me back up to the beginning though.
+# That Time We Saw a Boy Band in the Woods
+Hey guys! My name is Brittany. I go to Percstace High School in southern California! I love my friends, cheerleading, and, of course, everyone’s new favorite band, 2-3ornot2-3! Squee! They make me fangirl so hard, haha!
 
-I like to travel. Specifically, I like to travel to nowhere. Small, middle-of-the-empty towns, isolated parks, and, of course, forgotten ghost towns, things of that nature. I'm actually working on a travel series called "Nowheresville, USA," documenting my adventures to places like this.
+But that’s enough about me. I want to tell you all about the time I went camping in the woods with my five favorite girls- Priscilla, Cayli, Jessica, Rebecca, and Nikki! We are, like, the three amigos, but like, there’s six of us! OMG, I just love my girls!
 
-Well this time, I was headed out to the middle of Nevada, way out in the desert to a small ghost town called Havensburg. It is \*way\* out there, like, so far out in that tan wasteland that I was worried I'd run out of gas. I'd been traveling for hours at this point, down an old state highway with absolutely nothing but shrubland and sand around me, and I was starting to get nervous. I did have an extra gas container, but... well, you never want to have to actually *use* the thing.
+Anywho, I think the best way to tell a story is to get right into it, so here we go!
 
-So imagine my relief when I saw a big, beautiful sign for Candletown, USA. Population 250, if the sign was to be believed. It felt like finding an oasis in the Sahara. Gas and food, and a little bit of rest, all promised in shining metallic green. And it was just 15 miles ahead, off the highway.
+“Ugh, are we there yet?” Priscilla moaned. “I didn’t download any of my music and I literally need to go to bed with Pierre in my ears.”
 
-I sped there. My gas light was close to lighting up, so it was pedal to the metal for 15 long, empty miles. Then, an exit, and two more miles on a side road into desert land. For a minute, I felt I'd been lied to. There was a hill before me, but no sign of the town so far. Typical, for these isolated hamlets. But unnerving all the same.
+“You are soooo addicted to 2-3ornot2-3, Priscilla!” Jessica teased.
 
-And yet when I crested that hill, there she was in all her dilapidated glory. Roughshod, collapsed buildings dotted the sandy valley. There were only a few beaten and sand-blasted roads off of the Main Street, one leading to a small, deserted residential plot of homes, another to what appeared to be a mine shaft. Another still branched up a hill to old mining buildings, and the fourth went to a sharp, white-stone historical marker in the shape of an obelisk.
+“Well, like, I literally can’t help it, have you SEEN him?! Such a dreamboat!”
 
-The main street was quaint, if empty. An empty parlor with no door sat beside an old grocery store, its windows whole but dusty. A few empty, decaying cars sat parked in slanted parking spots. There was a church, and it seemed to be in pretty solid shape, its wood well painted and its steeple still standing proud. Beside it, a gas station, and then, a hotel, both of which seemed open. Hallelujah, I thought. I'd be okay.
+“Yeah, but I’m sooo much more into Shea! He’s, like, the full package!” I called out.
 
-I stopped at the fuel station first, parking at its only pump. By now, the desert was growing colder, darker as the sun began to retreat beneath the bruised horizon. Lucky me, that hotel was right there. I slipped into the store and looked around, resolved to hurry up and snag a room to rest.
+“You bitches are CRAZY. Have you SEEN William? OMG I want him to ravage me,” said Cayli.
 
-The shelves were stocked, which was nice. I grabbed some bottles of water, and some snacks, and headed to the vacant counter. A little dinner bell sat here, begging to be tapped, and so I did. Its little *ding* summoned the attendant.
+“Ugh, Cayli, you slut, keep that to AO3!” Nikki taunted, and we all laughed.
 
-She was tall. That was the first thing I noticed. Very tall, like six and a half feet. Slender and beautiful, though, with long black hair and sharp features. She offered a wary, if pleasant smile as she came out of the back.
+“Hey guys,” Rebecca called out. “This map is like, super out of date I think, are you sure we’re going in the right direction?”
 
-"Hi," I said, placing my purchases on the counter.
+“Uhh… duh???” I retorted. “I’ve been on this trail, like, all the time before my dad cheated on my mom. The camp site is literally right up ahead.”
 
-"Hello," she purred back. "We don't get many travellers out here. Is this all for you?"
+“Okayyyy, Brittany.” She pulled out her phone. “OMG, you guys have to stop using Nikki’s uncle’s mugshot as an emoji, she might, like, actually start to have an eating disorder!”
 
-I nodded. "This and thirty on your pump."
+“Oh, shut up, Rebecca. You’re just jealous my family actually has good drama. Your dad is always like, ‘Hey girls, do you want money for Starbucks?’ or ‘Hey, wanna go to the movies?,’ or like ‘Wow, Nikki, you’re really smart…’”
 
-She began to ring me up. "So," she said, her voice almost humming, "What brings you this far out?"
+“...bitch do you have a crush on my dad????”
 
-"Oh, I'm headed to Havensburg. I'm a sort of writer-explorer, and Havensburg is my next topic."
+“We’re here!!!” I called. The campsite was just as I remembered, a little shitty, but like, soooo nostalgic. I took a few selfies to post later, and then we started unpacking all our stuff for the night. We were planning on staying out for three whole days, which, I know, is like, so crazy! I definitely need to hit up a spa after this.
 
-She grinned. "Ghost towns, huh? You know, Candletown is considered such. You might consider staying a while and writing about us."
+“Cayli, you have the matches in your bag, right?”
 
-"Oh, maybe," I chuckled. "Maybe on my way out. I mean, it is pretty desolate. Kind of wild to meet anyone at all out here. You live here?"
+“I think so… yeah, here you are.”
 
-Shrugging, she said, "Sort of. My twin and I keep the spirit going."
+“OMG, finally, service!” Priscilla rejoiced. “I was like, so worried about not having our tunes. And also… OMG who the fuck is Matt with?”
 
-"Twin?" I asked.
+We all crowded around her. “What, what’s wrong?”
 
-"Yep. She runs the hotel next door. You'll know her when you see her."
+“My fucking stupid boyfriend is with that whore Gertrude! UGH!” she started to cry a little. “I know that tramp has totally already slept with him if she took a photo with him, I’m actually gonna kill myself!”
 
-My eyebrows shot up. "I was actually going to try and rent a room there!"
+Jessica put a comforting arm around Priscilla. “No, bae, there’s like, no way, Matt like, totally loves you!”
 
-Her eyes lit up. "Oh, well, tell her Bray sent you. She'll comp the room; seems like you could make good use of it anyway."
+“No, like, you don’t understand; Gertrude must have a black hole for a pussy cuz it just sucks all the men in. Like she’s why Cassie and Jerry broke up.” She started to cry harder. “I knew I should have gave Matt a handy before I left!”
 
-"Oh yeah, absolutely," I said. "I'm exhausted."
+“Wait, hold up, Jerry fucked Gertrude?!” Brittany exclaimed. “I thought Cassie left his ass because he was broke?”
 
-Her smile widened. "Glad you're here. Always good to see a new face out here."
+“No, I think cuz the CONDOM broke.” Jessica said. “Jerry was so scared he got her pregnant he told Cassie, like, immediately. It was kinda cute if he wasn’t so pathetic.”
 
-I smiled back. "Thanks a lot, I appreciate you."
+“Ugh! I know right.” said Nikki. “I hate men. Well, except for one…”
 
-She merely winked as I turned heel to go fill up my jeep. Once that was done, I scooted my car a lot over and parked at the hotel. It's old, the hotel. From the 60's, *maybe* the 70's. Certainly preserved well. By the twins, I figured. Still, something about it was, um. Odd. Out of place. I pinned it to the pristine nature of the building, as juxtaposed with the rest of the ghost town. But I didn't - and don't - think that captures the entire essence of the hotel.
+“Bitch if you say my dad I’m actually going to kill you.” Rebecca sneered.
 
-Still, I needed sleep.
+“Ladies, ladies, chill the fuck out, OMG, I’m getting the hot dogs ready.” I called. “Someone brought ketchup, right?”
 
-So I grabbed my travel bag and headed on in through the etched glass doors and found myself in a marble-floor, glass-chandeliered lobby. The furniture was all antique, plush and richly red. The receptionist desk stood out to me, being lovingly chiseled redwood. The symbology on it was, well, odd to say the least. A carved-out circle in the center, surrounded by a flock of moths, all above a clean row of lit candles, it read to me as ornately confusing.
+“No, but I have mustard,” said Cayli.
 
-On it was another little dinner bell. I dinged it, and from the back, came the spitting image of Bray. I mean, identical. She did say "twin", but I didn't expect just... her again. I blinked, let loose a kind of incredulous chortle, and said, "Uh, hi. I think I just met your sister?"
+“Who the fuck brings mustard but not ketchup? What are we, seventy???” said Jessica. 
 
-The woman gave me a coquetish smirk. "Ah, you met Bray. I'm Shay. It's nice to meet you."
+“Calm down, calm down, it's in my bag,” I said, when my eyes spotted movement in the forest. “Hey, uh, guys, I think I just saw something.”
 
-"Pleasure's mine," I said. "I just need a room for the night."
+“It was probably, like a rabbit.” Nikki said. “Forests have a lot of those. I heard about it in a documentary.”
 
-She seemed to study me for a moment, her eyes wolfish and astute. Then, she wagged her eyebrows and said, "Any friend of Bray is a friend of mine. Room's on the house."
+Priscilla took a break from crying for a moment. “You needed a documentary for that?”
 
-She bent down and pulled an old key out from under the desk. "Room one-oh-three, just down the hallway here. Enjoy your stay, and holler if you need anything."
+“No, it was like, way bigger than a rabbit.” I looked deeper into the woods, scanning for any more movement, when, from behind a bush, I saw two eyes looking back at me. Two human eyes. I stepped back a little, and when I did, it turned and fled. 
 
-I took the key, and started to head to my room, but hesitated. Turning around, I said, "Are you two the only ones in town?"
+“Brittany, what?” Rebecca asked.
 
-And she shook her head with a sharp laugh. "No, no. There are others. Not many, but some. Some people like it here." She shrugged. "They don't leave."
+“I think it was like, a person…. Guys do you think it was like a pedophile or a rapist or something?”
 
-I mouthed an awkward "oh, okay", and thanked her before heading to my room. Down a crimson carpet hall, I found it, and unlocked the door. When I opened it a wave of just, old, hit my nose. Old dust. Like the room had been undisturbed for years. But there was something else too, a, a burnt smell. Smokey. I don't know what that's about.
+“No, Nikki’s uncle is still in prison, I think,” said Jessica.
 
-I came in, set my stuff down, flipped the bedside lamp on, and cozied up in the (surprisingly) comfortable bed. 
+“OMG, shut the fuck UP, Jessica,” Nikki said. “It could be, like, a different one.”
 
-Wasn't long before I was asleep, just happy to be somewhere somewhat safe. And as I fell asleep, I thought back to Shay and Bray. It's odd, but they felt familiar somehow. Like, maybe we'd met before. But I'm fairly sure we haven't. I chalked it up to being tired.
+“Uh, it probably was him; how many pedophiles even live in southern California?”
 
-I don't think I dreamt that night, which is unusual for me. So I didn't exactly wake up rested. Still, the sleep was welcome.
+“Oooh! Oooh! Two thousand, five hundred, and forty six.” answered Cayli. 
 
-But when I left the room that morning and headed out to the lobby, I found it oddly quiet. And I mean, Candletown was already quiet, but something about this just felt... still. I set the key down on the desk as an uneasy jitter crept through my gut. I felt that now was as good a time as any to leave.
+“Who the fuck knows that???” Priscilla yelled.
 
-Outside, I loaded up my jeep and started her up. I pulled out onto the main street, and still I didn't see a soul. That "creeped out" feeling started getting more urgent, so I hit the road for the highway, leaving Candletown in my rear view mirror with a heavy sigh of relief.
+“You can never be too prepared.”
 
-I traveled maybe two miles down the road.
+“For what??? Rape jeopardy????”
 
-And then, cresting a hill, I saw... Candletown. The main street. The hotel, the gas station. The obelisk marker, the church, the mines. And I admit, it kind of broke my brain. I couldn't comprehend it. I know I didn't go the wrong way; I had gone the way I came. But it just, looped back to Candletown.
+I stepped behind the bush, and saw tracks in the ground… hands and feet, almost galloping away from where we were. There were three sets of tracks, and following them a little, I saw a deer, its stomach ripped over, flesh torn messily about the area.
 
-I drove through the town again. I don't know why, but I thought if I just, kept on through the main street, going straight, I'd get (somewhere else*. But as Candletown vanished behind me, as I drove over another hill... Candletown appeared.
+“Ewwwwww, guys, there’s like, a dead deer over here. I think a bear ate it.”
 
-I stopped at the top of the hill completely speechless. I audibly breathed a "no fucking way" through my lips. I blinked, rubbed my eyes, and stared, jaw agape, at the crumbling town. I did the only thing I knew to do: I checked my phone. I still had service, so that was a blessing. I thought as hard as I could. I had a sister in Phoenix, Arizona. Maybe she could help, if she didn't think I'd completely lost it.
+“Oooh! Oooh! I wanna see!” Cayli called out and rushed over. “OMG, ewww, I need a photo of this for my tumblr!”
 
-I hesitated. She might think I was mad. Maybe I *had* gone mad. But she was still my best shot. So I called her.
+“Didn’t tumblr ban gore?” asked Rebecca.
 
-It rang once. Twice. Three times, and I started to pray. But then, she answered. She sounded tired, groggy.
+“Good point, Twitter it goes.”
 
-"Uh, hello?"
+“Did you like, see the bear, Brittany?” Jessica said as she walked over.
 
-"Hey! Hey. It's me," I spat out. "What are you doing?"
+“I think I saw one of them. But I swear, it was a person.”
 
-She groaned. "Sleeping, jeez. What are *you* doing?"
+“Yeah, but like, a person wouldn’t do this. They have, like, sophistication or whatever.”
 
-I paused. "Why are you still asleep. It's like, mid morning."
+“True….”
 
-"What?" came her disbelieving response. "It's three in the morning. Are you okay?"
+“Okay, what’s even going on over here?” Priscilla said, walking into the clearing, and looking at the deer. “No, no no no, we are NOT sleeping here anymore! I am not going to be attacked by flies and shit while I am sleeping. Grab EVERYTHING, next site.”
 
-I swallowed. *My* clocks said 10AM. The sun was rising in the sky. "Are you sure?" I asked.
+“Oh, c’mon, Pris, it’s like, twenty feet away. That’s like a football field,” said Cayli.
 
-She huffed. "Yes, I am. Where are you?"
+Jessica stared at Cayli. “What football field is twenty feet???”
 
-I sucked in a sharp breath and, not knowing what else to say, I told her, "Candletown. Candletown, Nevada. Have you ever heard of it?"
+“No, but I agree.” I said. “Like, if anything, I don’t want to get mauled by a bear. It'll probably come back for seconds.”
 
-"No," she said. It sounded like she was sitting up. "I thought you were in like, Havensburg or something."
+“Ugh… FINE, Brittany!” Cayli said. “I can’t believe you’re seriously gonna be the fun police.”
 
-"Well, yeah. I was headed there but I almost ran out of gas and ended up in Candletown. But like, I..." I paused. How was I supposed to even *begin* to explain this? "I don't think I can leave."
+“What’s fun about a dead deer, you sick freak?” Priscilla scoffed.
 
-"What are you talking about? Are you safe?"
+“We could see if the birds use its intestines as, like, nesting material.” Nikki said.
 
-I licked my lips. "I do not know. To be honest."
+“...okay yeah on second thought let’s get out of here.” said Cayli as she grabbed her stuff.
 
-From there, I did my best to explain myself, but I'm not sure she understood. I don't blame her, I mean. I wouldn't believe it if she told me what *I* had just told *her*. I did my best though.
+Nikki stared at Cayli, and then looked to Rebecca. “Was it something I said?”
 
-Beneath the panic, I had an idea. I told her to hang on while I pulled up my maps app. And when I did - well, I was expecting *something*, but the maps app was black. Empty. Like I was in a void.
+“Meh, fifty/fifty.”
 
-"I don't think I have GPS," I told her. "Can you see where Candletown is?"
+We grabbed all of our stuff, and trekked for another fifteen minutes, before putting down our stuff and setting up the campsite. We gossiped, we drank, we scrolled instagram reels for a little bit because like OMG, Nikki is just like, SOOO much, but like we love her??? She’s so great. Anyway, when night came, we started a fire. It was sooo pretty. Except for the fact Priscilla’s hair almost caught on fire. That was, like, crazy. And everything was going super great until Jessica had to go to the bathroom.
 
-I heard the *tap tap tap* of long nails on a phone. Then a pause. Then more tapping. And after another bout of silence, she said, "There is no Candletown in Nevada. There's no Candletown in the US, like at *all*."
+“You need someone to go with you, Jess?” Nikki asked.
 
-I dropped my phone, her "hello?"s echoing at my feet. And I just stared at the town. The town in the middle of nowhere. The town *in* nowhere, apparently. I guess I had finally found the literal "Nowheresville". 
+“Uh, no, what, you wanna look at my pussy?”
 
-Eventually I managed to get some of my senses back. I picked up my phone with shaking fingers, pressed it to my ear, and said, "If... if there's no Candletown, where am *I*?"
+“....I mean….” Nikki bit her lip and played with her hair.
 
-Silence.
+Jessica giggled. “Okay, when I get back,” and blew her a kiss, then walked out of the firelight and into the woods. After three minutes, we heard Jessica scream, and then deep, guttural moans in the distance.
 
-Then: "Share your location on snapchat."
+“OMG, Jessica???” I called. I grabbed my flashlight.
 
-I did so.
+“Ugh, I can't believe she didn’t wait for me, whore…” Nikki sighed as she turned on her phone flashlight. 
 
-"Well?" I asked.
+We all followed where Jessica went, brushing past bushes and branches, where we came upon Jessica. She was unconscious, the back of her head covered in blood from where she must have fallen on a rock, and staring at her, slightly crouching, were three humanoid figures in tight, ripped spandex. When we approached, lights shining on them, they turned to face us, their mouths agape with her pale teeth, their eyes pinpricks staring into the light. We all gasped.
 
-More silence.
+“Oh… my… God…” said Priscilla.
 
-Then, finally: "I don't see it. It doesn't even say you're online."
+“I… I can’t believe it…” Cayli said as she fell to her knees.
 
-My heart began to flutter. I felt queasy, cold, rigid. Like a corpse with food poisoning. I didn't know what else to say, what to *do*. My breathing quickened and my tremors grew to a shake. And then, just before I could say anything else, I saw movement in the town. A figure. *Someone*, going into the church.
+“She… I… they…” stammered Nikki. 
 
-They were tall, dressed in a black dress. I think it was Shay. Or Bray. I'm not sure.
+“OMG, I’m gonna puke, I’m gonna puke,” cried Rebecca.
 
-Without anything left, I told my sister I'd call her back and hung up unceremoniously. Whoever *that* was, they were probably my best bet. I started my engine and made my way down the hill to the main street where I parked at the church. It loomed over me like a sentinel, guarding... something.
+“Yeah,” I said, “it’s….”
 
-And, I mean, that's where I am now. Just sitting outside of the church, staring at its wooden doors. Truth be told, I'm afraid to go in. I have this sickly feeling, a nausea from the pit of my chest, just staring at the building. Maybe it's because I'm already incredibly freaked out. Maybe my gut is telling me something. I just don't know.
+“2-3 OR NOT 2-3!!!!” we all screamed together.
 
-A red moth just fluttered by and I flinched. Just to show how, I dunno, how paranoid I am right now.
+The figures rose. Sure enough, it was them; all three boys from the band, there was Shea, there was Pierre, and there was William, all of them in the flesh.
 
-Does anyone have any advice, please? I don't know what to do. Should I go in the church? It seems like it might be my best bet, if that's where Bray/Shay went. Maybe they know something. Or, I mean, maybe it's a bad idea. I don't know.
+“What… what… what… what are you doing out here????” 
 
-Help. Please. I don't want to be stuck in Candletown.
+“Plane… crashed….” William croaked.
 
-[Update.](https://www.reddit.com/r/nosleep/s/td7bsENnug)
+“We… starving….” Shea added.
+
+“OMG, you guys are so lucky! We have hotdogs!” said Cayli. “Come over to our fire!” Rebecca and Nikki picked up and carried Jessica, while Priscilla grabbed Pierre by the arm, Cayli hugged William and walked with him, and I kinda just walked nearby Shea over to the campfire.
+
+“This is, like, sooooo crazy!!!” I said. “We could not, like, stop talking about you guys the entire hike.”
+
+“Yeah, you guys are sooooo dreamy!” Rebecca said, grunting from the weight. 
+
+“I can’t believe my fan fic is coming true…” said Cayli.
+
+“More… food?” said Pierre.
+
+“Uh, yeah, but like, first, you need to tell us SOOOOO much tea!!!” said Priscilla. “I heard rumors about a new album. Is it true???”
+
+Pierre looked at Shea. “Al….bum….?”
+
+“Is there not??? OMG, that sucks!”
+
+“And how is the tour?” Nikki asked. “I mean, how was it? Before, like, such a crazy plane crash?”
+
+“You guys literally could have been like Lynyrd Skynyrd,” added Cayli.
+
+“Who???”
+
+“You know, ‘Sweet Home Alabama’?”
+
+“Oh yeah, that’s Nikki’s uncle’s favorite song!” laughed Rebecca.
+
+“You skank!” laughed Nikki. “I swear, one of these days…”
+
+We all sat around the campfire. Rebecca and Nikki placed Jessica in a sleeping bag behind where we were sitting, and Cayli passed around hotdogs to the boys. They didn’t even cook them, they just took the meat in their hands and gnashed two or three hotdogs at a time.
+
+“More…” Shea begged.
+
+“Um, I think they were in Jessica’s bag,” Cayli said. “Let me just….”
+
+William grabbed her wrist. “Want… you….” he said.
+
+Cayli’s face flushed with emotion. “Anything for you, William!!!!”, and she grabbed his arm and they went into hers and my tent.
+
+“God, she is so easy….” said Priscilla. She looked at Pierre, and blinked cutely at him. “You’re not like that, are you Pierre?”
+
+Pierre looked at her with uneasy and confused eyes. He then picked up an empty bottle, and fiddled with it. While he did, Cayli’s soft moans started to echo across the campsite.
+
+“OMG! Yes! We should SOOOOO play spin the bottle!” said Nikki.
+
+“YES! YES! YES!” said Priscilla. She grabbed Pierre’s thigh tightly. He snarled at her. “I think luck is on my side….”
+
+“Okay, Brittany, you start!” 
+
+I breathed in deeply. Shea was right next to me. I spun the bottle. I have played this game 100 times, I know I’ll be able to make it hit…
+
+“OMG, Brittany, you slut!” Nikki said when the bottle landed on her, and she reached over, pulled me by my shirt, and gave me a deep, passionate kiss. As we did, we heard Cayli’s voice crescendo with wet, soft sounds. 
+
+“My turn! My turn!” Rebecca said. She spun the bottle, spinning around and around and around and around, and finally landing on… Pierre.
+
+“Oooooh! I’m so sorry Priscilla!” she said as she grabbed his arm, leading him to her tent.
+
+“Rebecca! You slut! You know how much I love him!!!!”
+
+“You can have him next!” she giggled, and unzipped the tent and crawled inside. 
+
+“UGHHH! THIS IS WHY I HATE MEN!” Priscilla cried and ran away.
+
+“Come back, silly!” Nikki said as she followed Priscilla. And then, it was just me and Shea at the fire.
+
+I couldn’t say anything to save my life. He was so perfect and beautiful and handsome sitting in front of me. “So, um, hey, so like, what are you like when you’re not on tour?”
+
+He stared at me with empty eyes.
+
+“You know, like, you’re Shea from 23ornot23. But like…. Who’s the real you?”
+
+He stared, unblinking.
+
+“Who’s the real you?”
+
+He looked deeply at me, and then uttered one word. “Hun…gry.”
+
+He slowly brought his face to mine, his mouth slightly opening. OMG, was this really going to happen? His mouth opened further, revealing rows and rows and rows of sharp, bloodstained teeth… and then….
+
+“No, no, NO! I can NOT take this!” Priscilla charged over to Rebecca’s tent. I stood up from Shea, and went to join her and Nikki, who was following right behind. She unzipped the tent, and screamed.
+
+On the floor of the tent, Rebecca was lying in a pool of blood, her throat was torn out, and her chest was being flayed and consumed by Pierre. He dug in hungrily, breaking her ribs easily as he bit into her. He turned back to stare at Priscilla, and growled angrily.
+
+“P-p-p-p-pierre, I, I don’t, what, how could you, I’m…”
+
+Pierre leaped off of Rebecca’s desecrated body, and bit into the left side of Priscilla’s head, ripping out a chunk of her skull, and hungrily tearing into her flesh. His tongue lapped up the blood and grey matter in her head as he clawed deeply into Priscilla’s torso. Nikki and I screamed.
+
+“OMG, OMG, OMG, what the fuck, what the fuck, what the fuck….” Nikki cried as we backed away slowly. We turned around to see Shea on top of Jessica’s unconscious body, her left arm torn off, and Shea gnawing on it like an angry rottweiler.
+
+“Where is Cayli? Where is Cayli?” I cried. We ran to her tent and unzipped it, and sure enough, Cayli’s naked frame was sprawled on the tent floor, William tearing flesh from bone between her legs, as she cried and whimpered, her torso laying in a pool of her own blood, tears streaming down her face.
+
+“Help… me…”
+
+Nikki and I backed up slowly, as William turned around, his mouth covered in Cayli’s chunks of viscera. He snarled with in a low pitch, and then muttered,
+
+“Still…. Hungry…..”
+
+Nikki and I ran. I grabbed my phone from the log we were sitting on, and Nikki picked up a flaming piece of firewood. Leaves crumpled underfoot, alerting Shea of our movement, as he got up from one meal to go to the next. Shea and William both started to give chase, as Nikki and I started to run deep into the woods. While we ran, Nikki started to light the bushes and trees on fire. 
+
+We ran, and we ran, until Nikki started to wheeze, and then, under the dark canopies of the tree, Nikki tripped on a root, and fell down, the air leaving her lungs.
+
+“Nikki!”
+
+“KEEP RUNNING!” she cried. “GET OUT, BRITTANY! I LO-”, her final words being cut off by Shea and William’s hungry assault.
+
+So I ran. And I kept running. And eventually, I found Route 5, where I was lucky to be picked up by a trucker going into a town. He inquired about my clothes, the cuts on my arms, and the tears on my face, but I couldn’t answer him.
+
+When I got into town, I went to the police station, and told them about what had happened in the woods. I told them it was bears; I knew they wouldn’t believe me otherwise. They sent a team back into the woods, but they found no trace of the boys or my girls; the entire area had been scorched by flames, leaving no proof we had even been there.
+
+I haven’t gone back into the woods since then, and I also haven’t been able to listen to 23ornot23 without vomiting in my mouth. I know they still go on tour, however, and I don’t think that it was really them in the woods that night, but, I think what’s even scarier is if it was them. I don’t want to know either way. I guess what they say is true; never meet your heroes.
