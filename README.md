@@ -1,268 +1,136 @@
-# That Time We Saw a Boy Band in the Woods
-Hey guys! My name is Brittany. I go to Percstace High School in southern California! I love my friends, cheerleading, and, of course, everyone’s new favorite band, 2-3ornot2-3! Squee! They make me fangirl so hard, haha!
+# I Found a Hidden Door Behind My Bathroom Mirror. The Notebook Inside Had My Name on It.
+I don't know how to explain what's been happening to me so I'm just going to write it exactly as it happened and you can decide what to do with it.
 
-But that’s enough about me. I want to tell you all about the time I went camping in the woods with my five favorite girls- Priscilla, Cayli, Jessica, Rebecca, and Nikki! We are, like, the three amigos, but like, there’s six of us! OMG, I just love my girls!
+Three weeks ago I found a small door behind my bathroom mirror.
 
-Anywho, I think the best way to tell a story is to get right into it, so here we go!
+Not a cabinet. Not a shelf. A door. Maybe two feet wide, cut into the wall like someone built it there on purpose and then covered it up. I don't know how long it had been there. I don't know how I never noticed it. I've lived in this apartment for two years and I brush my teeth every morning in front of that mirror and I never once thought to push it.
 
-“Ugh, are we there yet?” Priscilla moaned. “I didn’t download any of my music and I literally need to go to bed with Pierre in my ears.”
+Inside was a notebook with my name on the cover.
 
-“You are soooo addicted to 2-3ornot2-3, Priscilla!” Jessica teased.
+I want you to understand something about me before I keep going. I'm not a forgetful person. I remember things. Faces, conversations, the name of a kid I sat next to in third grade. My memory has always been the thing I trusted most about myself.
 
-“Well, like, I literally can’t help it, have you SEEN him?! Such a dreamboat!”
+So when I started reading and realized I had no memory of writing any of it, I felt something shift in my chest. Not fear exactly. Something worse. The feeling you get when you realize the ground under you isn't as solid as you thought.
 
-“Yeah, but I’m sooo much more into Shea! He’s, like, the full package!” I called out.
+The first entry was fourteen months ago.
 
-“You bitches are CRAZY. Have you SEEN William? OMG I want him to ravage me,” said Cayli.
+March 3rd. The sound came back tonight. I don't want to write about the sound.
 
-“Ugh, Cayli, you slut, keep that to AO3!” Nikki taunted, and we all laughed.
+Gone. That whole day, just gone. Not forgotten the way you forget a boring afternoon. I mean there is nothing there when I reach for it. Like a hole in the middle of my life that someone patched over so neatly I never noticed the stitching.
 
-“Hey guys,” Rebecca called out. “This map is like, super out of date I think, are you sure we’re going in the right direction?”
+I kept reading. I couldn't stop.
 
-“Uhh… duh???” I retorted. “I’ve been on this trail, like, all the time before my dad cheated on my mom. The camp site is literally right up ahead.”
+Every date in that notebook was a day I couldn't remember. Every single one. Weeks of my life just missing, and I had never noticed because the days around them were still there, still intact, and my brain had just quietly closed the gap.
 
-“Okayyyy, Brittany.” She pulled out her phone. “OMG, you guys have to stop using Nikki’s uncle’s mugshot as an emoji, she might, like, actually start to have an eating disorder!”
+April 17th. I tried to call my sister today. I don't know why I couldn't finish dialing.
 
-“Oh, shut up, Rebecca. You’re just jealous my family actually has good drama. Your dad is always like, ‘Hey girls, do you want money for Starbucks?’ or ‘Hey, wanna go to the movies?,’ or like ‘Wow, Nikki, you’re really smart…’”
+I don't have a sister.
 
-“...bitch do you have a crush on my dad????”
+I'm almost certain I don't have a sister.
 
-“We’re here!!!” I called. The campsite was just as I remembered, a little shitty, but like, soooo nostalgic. I took a few selfies to post later, and then we started unpacking all our stuff for the night. We were planning on staying out for three whole days, which, I know, is like, so crazy! I definitely need to hit up a spa after this.
+June 2nd. The light is wrong again. It's always the same in here. I've stopped checking what time it is because it doesn't seem to matter.
 
-“Cayli, you have the matches in your bag, right?”
+I put the notebook down and looked at my living room.
 
-“I think so… yeah, here you are.”
+The light was doing what it always does. Sitting there. Flat. Unchanging.
 
-“OMG, finally, service!” Priscilla rejoiced. “I was like, so worried about not having our tunes. And also… OMG who the fuck is Matt with?”
+I thought about the last time I watched the sun move through my apartment and I couldn't find it. I couldn't find a single memory of standing in a different quality of light depending on the hour.
 
-We all crowded around her. “What, what’s wrong?”
+I picked the notebook back up.
 
-“My fucking stupid boyfriend is with that whore Gertrude! UGH!” she started to cry a little. “I know that tramp has totally already slept with him if she took a photo with him, I’m actually gonna kill myself!”
+August 9th. I found the door again. I always find it and then something happens and I forget. I think I'm supposed to forget. I think that's the whole mechanism.
 
-Jessica put a comforting arm around Priscilla. “No, bae, there’s like, no way, Matt like, totally loves you!”
+I read that four times standing barefoot on my bathroom floor.
 
-“No, like, you don’t understand; Gertrude must have a black hole for a pussy cuz it just sucks all the men in. Like she’s why Cassie and Jerry broke up.” She started to cry harder. “I knew I should have gave Matt a handy before I left!”
+I always find it.
 
-“Wait, hold up, Jerry fucked Gertrude?!” Brittany exclaimed. “I thought Cassie left his ass because he was broke?”
+How many times had I stood here. How many times had I opened this door and read this notebook and felt exactly what I'm feeling right now and then lost it completely.
 
-“No, I think cuz the CONDOM broke.” Jessica said. “Jerry was so scared he got her pregnant he told Cassie, like, immediately. It was kinda cute if he wasn’t so pathetic.”
+I reached back into the space and felt around the edges of the wall. In the back corner, taped flat against the plaster so carefully I almost missed it, was a piece of paper.
 
-“Ugh! I know right.” said Nikki. “I hate men. Well, except for one…”
+A phone number. My handwriting.
 
-“Bitch if you say my dad I’m actually going to kill you.” Rebecca sneered.
+Two words underneath it.
 
-“Ladies, ladies, chill the fuck out, OMG, I’m getting the hot dogs ready.” I called. “Someone brought ketchup, right?”
+Don't forget.
 
-“No, but I have mustard,” said Cayli.
+My hands were shaking by then. Actually shaking. I hadn't noticed until I saw the paper trembling.
 
-“Who the fuck brings mustard but not ketchup? What are we, seventy???” said Jessica. 
+I didn't call the number that night.
 
-“Calm down, calm down, it's in my bag,” I said, when my eyes spotted movement in the forest. “Hey, uh, guys, I think I just saw something.”
+I don't know why. Instinct maybe. Some part of me that wasn't ready for whatever was on the other end.
 
-“It was probably, like a rabbit.” Nikki said. “Forests have a lot of those. I heard about it in a documentary.”
+I kept reading instead. The entries got shorter and harder to read as they went on. The handwriting getting smaller and shakier, like whoever wrote them was exhausted or frightened or both.
 
-Priscilla took a break from crying for a moment. “You needed a documentary for that?”
+October 14th. I think I understand what this is now. I really wish I didn't.
 
-“No, it was like, way bigger than a rabbit.” I looked deeper into the woods, scanning for any more movement, when, from behind a bush, I saw two eyes looking back at me. Two human eyes. I stepped back a little, and when I did, it turned and fled. 
+November 1st. I tried the door at the end of the hallway. It doesn't open from this side. I can hear things through it sometimes. Voices. Machinery.
 
-“Brittany, what?” Rebecca asked.
+I live in an apartment. I don't have a hallway that ends in a door.
 
-“I think it was like, a person…. Guys do you think it was like a pedophile or a rapist or something?”
+I walked out of the bathroom slowly. I looked down the hallway.
 
-“No, Nikki’s uncle is still in prison, I think,” said Jessica.
+There was a door at the end of it.
 
-“OMG, shut the fuck UP, Jessica,” Nikki said. “It could be, like, a different one.”
+White. Same shade as the walls. Small silver handle. Right there. I have walked past that spot every day for two years and I am telling you I have never seen it. I cannot explain that. I cannot make it make sense.
 
-“Uh, it probably was him; how many pedophiles even live in southern California?”
+I walked to it and put my hand on the handle.
 
-“Oooh! Oooh! Two thousand, five hundred, and forty six.” answered Cayli. 
+Cold. Colder than anything in the apartment had any reason to be.
 
-“Who the fuck knows that???” Priscilla yelled.
+It didn't open.
 
-“You can never be too prepared.”
+But I could hear something on the other side.
 
-“For what??? Rape jeopardy????”
+A sound like breathing. Slow and mechanical and steady. Like something working very hard to keep a rhythm going.
 
-I stepped behind the bush, and saw tracks in the ground… hands and feet, almost galloping away from where we were. There were three sets of tracks, and following them a little, I saw a deer, its stomach ripped over, flesh torn messily about the area.
+I went back to the notebook.
 
-“Ewwwwww, guys, there’s like, a dead deer over here. I think a bear ate it.”
+The last written entry was dated the same day I found it. Three weeks ago. A day I have no memory of.
 
-“Oooh! Oooh! I wanna see!” Cayli called out and rushed over. “OMG, ewww, I need a photo of this for my tumblr!”
+We keep finding this and we keep forgetting and I don't know how many loops we've been through. I stopped counting because counting made it worse.
 
-“Didn’t tumblr ban gore?” asked Rebecca.
+Call the number. That's all. Just call.
 
-“Good point, Twitter it goes.”
+I heard them talking through the door again last night. They're discussing stopping. I don't know what stopping means here but I know it isn't good. I know if they stop something ends.
 
-“Did you like, see the bear, Brittany?” Jessica said as she walked over.
+Then one final line at the very bottom of the last page. Barely visible. Pressed so lightly into the paper it was almost not there at all.
 
-“I think I saw one of them. But I swear, it was a person.”
+If you can read this then you haven't come back yet.
 
-“Yeah, but like, a person wouldn’t do this. They have, like, sophistication or whatever.”
+Please come back.
 
-“True….”
+I'm writing this because I'm terrified that if I don't get it out of my head and into somewhere permanent I'll wake up tomorrow and it'll be gone again.
 
-“Okay, what’s even going on over here?” Priscilla said, walking into the clearing, and looking at the deer. “No, no no no, we are NOT sleeping here anymore! I am not going to be attacked by flies and shit while I am sleeping. Grab EVERYTHING, next site.”
+The phone is sitting next to me.
 
-“Oh, c’mon, Pris, it’s like, twenty feet away. That’s like a football field,” said Cayli.
+I'm going to call.
 
-Jessica stared at Cayli. “What football field is twenty feet???”
+Update:
 
-“No, but I agree.” I said. “Like, if anything, I don’t want to get mauled by a bear. It'll probably come back for seconds.”
+I called.
 
-“Ugh… FINE, Brittany!” Cayli said. “I can’t believe you’re seriously gonna be the fun police.”
+No one answered.
 
-“What’s fun about a dead deer, you sick freak?” Priscilla scoffed.
+But the moment the line connected I heard it, just for a second before it cut to silence.
 
-“We could see if the birds use its intestines as, like, nesting material.” Nikki said.
+The same mechanical breathing sound from behind the door.
 
-“...okay yeah on second thought let’s get out of here.” said Cayli as she grabbed her stuff.
+I'm posting this now because I need someone to read it before I forget.
 
-Nikki stared at Cayli, and then looked to Rebecca. “Was it something I said?”
+And because I just looked at my bathroom mirror and it's pushed slightly open and I have no memory of closing it after I found the notebook.
 
-“Meh, fifty/fifty.”
+Which means I've already started forgetting.
 
-We grabbed all of our stuff, and trekked for another fifteen minutes, before putting down our stuff and setting up the campsite. We gossiped, we drank, we scrolled instagram reels for a little bit because like OMG, Nikki is just like, SOOO much, but like we love her??? She’s so great. Anyway, when night came, we started a fire. It was sooo pretty. Except for the fact Priscilla’s hair almost caught on fire. That was, like, crazy. And everything was going super great until Jessica had to go to the bathroom.
+I know now that none of that was real.
 
-“You need someone to go with you, Jess?” Nikki asked.
+I was in a coma for two years after a car accident. What you just read was my life inside my own head while my body was lying in a hospital bed with machines keeping it breathing. I built an entire world, an apartment, a routine, a version of myself that felt completely normal, and somewhere underneath all of it some part of me knew the truth and kept trying to leave me clues. The door at the end of the hallway was the hospital room. The mechanical sound was the ventilator. The phone number was my mother's number, the one she's had for thirty years, and I couldn't remember it clearly enough to dial it.
 
-“Uh, no, what, you wanna look at my pussy?”
+I woke up four days ago.
 
-“....I mean….” Nikki bit her lip and played with her hair.
+I'm writing this because the doctors say it'll help to process it.
 
-Jessica giggled. “Okay, when I get back,” and blew her a kiss, then walked out of the firelight and into the woods. After three minutes, we heard Jessica scream, and then deep, guttural moans in the distance.
+What I can't stop thinking about is the last line I wrote to myself in that notebook.
 
-“OMG, Jessica???” I called. I grabbed my flashlight.
+Please come back.
 
-“Ugh, I can't believe she didn’t wait for me, whore…” Nikki sighed as she turned on her phone flashlight. 
-
-We all followed where Jessica went, brushing past bushes and branches, where we came upon Jessica. She was unconscious, the back of her head covered in blood from where she must have fallen on a rock, and staring at her, slightly crouching, were three humanoid figures in tight, ripped spandex. When we approached, lights shining on them, they turned to face us, their mouths agape with her pale teeth, their eyes pinpricks staring into the light. We all gasped.
-
-“Oh… my… God…” said Priscilla.
-
-“I… I can’t believe it…” Cayli said as she fell to her knees.
-
-“She… I… they…” stammered Nikki. 
-
-“OMG, I’m gonna puke, I’m gonna puke,” cried Rebecca.
-
-“Yeah,” I said, “it’s….”
-
-“2-3 OR NOT 2-3!!!!” we all screamed together.
-
-The figures rose. Sure enough, it was them; all three boys from the band, there was Shea, there was Pierre, and there was William, all of them in the flesh.
-
-“What… what… what… what are you doing out here????” 
-
-“Plane… crashed….” William croaked.
-
-“We… starving….” Shea added.
-
-“OMG, you guys are so lucky! We have hotdogs!” said Cayli. “Come over to our fire!” Rebecca and Nikki picked up and carried Jessica, while Priscilla grabbed Pierre by the arm, Cayli hugged William and walked with him, and I kinda just walked nearby Shea over to the campfire.
-
-“This is, like, sooooo crazy!!!” I said. “We could not, like, stop talking about you guys the entire hike.”
-
-“Yeah, you guys are sooooo dreamy!” Rebecca said, grunting from the weight. 
-
-“I can’t believe my fan fic is coming true…” said Cayli.
-
-“More… food?” said Pierre.
-
-“Uh, yeah, but like, first, you need to tell us SOOOOO much tea!!!” said Priscilla. “I heard rumors about a new album. Is it true???”
-
-Pierre looked at Shea. “Al….bum….?”
-
-“Is there not??? OMG, that sucks!”
-
-“And how is the tour?” Nikki asked. “I mean, how was it? Before, like, such a crazy plane crash?”
-
-“You guys literally could have been like Lynyrd Skynyrd,” added Cayli.
-
-“Who???”
-
-“You know, ‘Sweet Home Alabama’?”
-
-“Oh yeah, that’s Nikki’s uncle’s favorite song!” laughed Rebecca.
-
-“You skank!” laughed Nikki. “I swear, one of these days…”
-
-We all sat around the campfire. Rebecca and Nikki placed Jessica in a sleeping bag behind where we were sitting, and Cayli passed around hotdogs to the boys. They didn’t even cook them, they just took the meat in their hands and gnashed two or three hotdogs at a time.
-
-“More…” Shea begged.
-
-“Um, I think they were in Jessica’s bag,” Cayli said. “Let me just….”
-
-William grabbed her wrist. “Want… you….” he said.
-
-Cayli’s face flushed with emotion. “Anything for you, William!!!!”, and she grabbed his arm and they went into hers and my tent.
-
-“God, she is so easy….” said Priscilla. She looked at Pierre, and blinked cutely at him. “You’re not like that, are you Pierre?”
-
-Pierre looked at her with uneasy and confused eyes. He then picked up an empty bottle, and fiddled with it. While he did, Cayli’s soft moans started to echo across the campsite.
-
-“OMG! Yes! We should SOOOOO play spin the bottle!” said Nikki.
-
-“YES! YES! YES!” said Priscilla. She grabbed Pierre’s thigh tightly. He snarled at her. “I think luck is on my side….”
-
-“Okay, Brittany, you start!” 
-
-I breathed in deeply. Shea was right next to me. I spun the bottle. I have played this game 100 times, I know I’ll be able to make it hit…
-
-“OMG, Brittany, you slut!” Nikki said when the bottle landed on her, and she reached over, pulled me by my shirt, and gave me a deep, passionate kiss. As we did, we heard Cayli’s voice crescendo with wet, soft sounds. 
-
-“My turn! My turn!” Rebecca said. She spun the bottle, spinning around and around and around and around, and finally landing on… Pierre.
-
-“Oooooh! I’m so sorry Priscilla!” she said as she grabbed his arm, leading him to her tent.
-
-“Rebecca! You slut! You know how much I love him!!!!”
-
-“You can have him next!” she giggled, and unzipped the tent and crawled inside. 
-
-“UGHHH! THIS IS WHY I HATE MEN!” Priscilla cried and ran away.
-
-“Come back, silly!” Nikki said as she followed Priscilla. And then, it was just me and Shea at the fire.
-
-I couldn’t say anything to save my life. He was so perfect and beautiful and handsome sitting in front of me. “So, um, hey, so like, what are you like when you’re not on tour?”
-
-He stared at me with empty eyes.
-
-“You know, like, you’re Shea from 23ornot23. But like…. Who’s the real you?”
-
-He stared, unblinking.
-
-“Who’s the real you?”
-
-He looked deeply at me, and then uttered one word. “Hun…gry.”
-
-He slowly brought his face to mine, his mouth slightly opening. OMG, was this really going to happen? His mouth opened further, revealing rows and rows and rows of sharp, bloodstained teeth… and then….
-
-“No, no, NO! I can NOT take this!” Priscilla charged over to Rebecca’s tent. I stood up from Shea, and went to join her and Nikki, who was following right behind. She unzipped the tent, and screamed.
-
-On the floor of the tent, Rebecca was lying in a pool of blood, her throat was torn out, and her chest was being flayed and consumed by Pierre. He dug in hungrily, breaking her ribs easily as he bit into her. He turned back to stare at Priscilla, and growled angrily.
-
-“P-p-p-p-pierre, I, I don’t, what, how could you, I’m…”
-
-Pierre leaped off of Rebecca’s desecrated body, and bit into the left side of Priscilla’s head, ripping out a chunk of her skull, and hungrily tearing into her flesh. His tongue lapped up the blood and grey matter in her head as he clawed deeply into Priscilla’s torso. Nikki and I screamed.
-
-“OMG, OMG, OMG, what the fuck, what the fuck, what the fuck….” Nikki cried as we backed away slowly. We turned around to see Shea on top of Jessica’s unconscious body, her left arm torn off, and Shea gnawing on it like an angry rottweiler.
-
-“Where is Cayli? Where is Cayli?” I cried. We ran to her tent and unzipped it, and sure enough, Cayli’s naked frame was sprawled on the tent floor, William tearing flesh from bone between her legs, as she cried and whimpered, her torso laying in a pool of her own blood, tears streaming down her face.
-
-“Help… me…”
-
-Nikki and I backed up slowly, as William turned around, his mouth covered in Cayli’s chunks of viscera. He snarled with in a low pitch, and then muttered,
-
-“Still…. Hungry…..”
-
-Nikki and I ran. I grabbed my phone from the log we were sitting on, and Nikki picked up a flaming piece of firewood. Leaves crumpled underfoot, alerting Shea of our movement, as he got up from one meal to go to the next. Shea and William both started to give chase, as Nikki and I started to run deep into the woods. While we ran, Nikki started to light the bushes and trees on fire. 
-
-We ran, and we ran, until Nikki started to wheeze, and then, under the dark canopies of the tree, Nikki tripped on a root, and fell down, the air leaving her lungs.
-
-“Nikki!”
-
-“KEEP RUNNING!” she cried. “GET OUT, BRITTANY! I LO-”, her final words being cut off by Shea and William’s hungry assault.
-
-So I ran. And I kept running. And eventually, I found Route 5, where I was lucky to be picked up by a trucker going into a town. He inquired about my clothes, the cuts on my arms, and the tears on my face, but I couldn’t answer him.
-
-When I got into town, I went to the police station, and told them about what had happened in the woods. I told them it was bears; I knew they wouldn’t believe me otherwise. They sent a team back into the woods, but they found no trace of the boys or my girls; the entire area had been scorched by flames, leaving no proof we had even been there.
-
-I haven’t gone back into the woods since then, and I also haven’t been able to listen to 23ornot23 without vomiting in my mouth. I know they still go on tour, however, and I don’t think that it was really them in the woods that night, but, I think what’s even scarier is if it was them. I don’t want to know either way. I guess what they say is true; never meet your heroes.
+I almost didn't.
