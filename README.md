@@ -1,494 +1,304 @@
-# I built a whole town for my dead mom, but I found something outside the map.
-Mom always had this habit. She tapped her fingernails against anything: her coffee mug whenever she watched TV in the morning or the table whenever we ate. That rhythmic clicking sound used to drive me insane when I was trying to study. But now my brain hunts for a similar noise every time my flat gets too quiet, which means almost always.
+# These Insomnia Pills Contained Something Horrifying
+That little blue pill in my hand was my last resort. At first, I just stared at it for a long while. I was terrified. I couldn’t bring myself to do it, but eventually, I closed my eyes and swallowed.
 
 
 
-Lung cancer took her two years ago, and the silence she left behind wasn’t peaceful at all. It felt like a corrupted video file, where the audio had been replaced with this constant static that gave me headaches.
+The effect was almost instant. I never thought I’d sink this low, but going days without sleep is a slow kind of hell. No, it’s worse than that. You just lie there in the dark, staring at the ceiling, waiting for your body to give up, but it won’t. Every night turns into a session of pure torture.
 
 
 
-Dad handled the grief by selling their old house and moving into a small flat in his childhood town, stuffing almost thirty years of their marriage into huge cardboard boxes and never opening them again. Uncle Mike handled it by forgetting. Alzheimer’s ate through his short-term memory with the same military efficiency he used to have in his younger days. So every time we visited him, we had to walk in and explain why his little sister wasn’t there.
+I’d tried everything humanly possible before I got my hands on these pills—they’re so new that even their name doesn’t show up in a search. At first, when this soul-crushing insomnia started, I tried teas, essential oils, meditation. For the first month, I’d lie there listening to recordings of ocean waves, nature sounds, God knows what else. I bought some stupid "specialty" pillow and a heavy weighted blanket. Then came the serious stuff—prescription sleeping meds. But those made it even worse. My body would be paralyzed, but my brain stayed wide awake. You lie there like you’re in a body cast with your eyes shut, while this feeling gnaws at you from the inside that you’re not actually sleeping.
 
 
 
-You know, watching an old man’s face slowly crumble into tears as he processes his sister’s death for the twentieth time… is something that changes you. It does permanent damage to your empathy.
+Months went by like this. My life was spiraling. Work turned into a mechanical struggle for survival: coffee, phone calls, spreadsheets. I looked like a ghost. At first, my boss pretended not to notice, but then he pulled me into his office. He told me that either I get my act together or he’d have to find someone else for the job.
 
 
 
-As for me, I buried myself in algorithms. Because writing code is supposed to be the most predictable thing in the world… you just input the correct commands and you get the expected response. A luxury you’ll never get from human biology. After college, I eventually landed a job at a small indie game studio, spending my days making sure the enemy AI wasn’t too stupid and patching collision bugs so the main character didn’t end up in the backrooms.
+Things at home became unbearable too. Chloe, my girlfriend, tried to be supportive at first, but the longer it went on, the more I’d catch her giving me this heavy, tired look. She lasted three months. After one particular night, when I was just pacing in circles around the apartment, she packed her bags. "Paul, I can't do this anymore. You’ve changed, and it’s just too hard to be around you. I’m sorry." I don’t blame her; she was right. I mean, what did I have to offer her? Just this obsessive, sleep-deprived version of myself.
 
 
 
-Nobody on the team ever looked closely enough at the graveyard zone in the third level to notice the tombstone tucked under a weeping willow. I made the texture myself, carving Mom’s name and birth year into the digital stone. But that gesture felt hollow. As if a handful of pixels hidden in a virtual graveyard were going to keep her memory alive. It felt just like burying her a second time.
+I was living in a fog. Every night started with the hope that maybe, just maybe, tonight everything would fix itself. Miracles happen, right? But it always ended in emptiness. I felt like I was slowly losing touch with reality. I’d catch myself having weird thoughts more and more often. Sometimes I felt like I just couldn’t take it anymore.
 
 
 
-One night, during a session of doomscrolling through YouTube last January, a clip from an old show appeared on my feed. It was from that Black Mirror episode, where this grieving girl signed up for a service that let her chat with an AI version of her dead boyfriend, and then she bought a synthetic recreation of him, all based on his social media profiles. I remember watching that episode years ago, on the couch, laughing about how creepy the thought was.
+So, when I heard about this new sleep clinic, I booked an appointment immediately. To be honest, I didn’t even read the ad. I just saw the name—something like "The Center for Somnology and Neuropsychology." A guy from work handed me a brochure and said it was expensive but supposed to be effective. The consultation cost me half a paycheck, but I went anyway.
 
 
 
-But now, sitting before the glow of my monitor and looking at how far generative models and LLMs had come, the concept didn’t feel like sci-fi anymore. I had an enterprise-level API key in my hands, a rig built for heavy rendering, and enough knowledge to stitch it all together.
+The line in the hallway felt endless. Half-asleep, pale people, just like me, waiting for their turn. The air was thick with tension and a deep sense of gloom. Someone was staring into space; someone else was mindlessly scrolling through their phone. They looked like regular people, but you could see that familiar, deep-seated exhaustion that eats into your very soul.
 
 
 
-Building a text-based chatbot would be a trivial project. I could do that over a weekend. But my mind pushed for more. I imagined an entire closed-loop virtual environment. A fully rendered space where an avatar could exist and communicate in a natural language and transmit video and audio in real time.
+When I finally got into the office, I was met by a doctor in a white coat. He looked to be in his forties—calm, with a direct gaze and a confident way of carrying himself. He told me to take a seat and started asking questions. I told him everything, not leaving out a single detail: my failed attempts, the pills, the sleepless nights. He listened intently, nodding occasionally. There was an understanding in his eyes, like he’d heard this story a thousand times before.
 
 
 
-With my limited free time, the base of my project – the core architecture – took a few weeks of late nights. I used open-source models for the base while I customized the behavioural parameters. I dug through a decade of Mom’s Facebook posts, treating it like an archaeological excavation to compile the dataset. Gigabytes of status updates, photos and shared recipes, good mornings and political rants, and of course, all of our private chats. Thousands of lines of text formed the skeleton of her vocabulary, but for the video and audio engines, I needed more material.
+"We could try one specific method," he said. "We have some experimental medication. A new generation, developed specifically for complex cases. The results have been good, but the side effects aren't fully understood yet. You’d have to sign a waiver and understand that all potential risks are on you. So, what do you think? Want to try?"
 
 
 
-On a Sunday afternoon, I drove to Dad’s flat. The smell hit me before I even stepped in. A mix of cheap pre-cooked sauce and stale coffee. The bathroom was even worse, with piles of dirty clothes and an unflushed toilet.
+I sat across from him, feeling my fingers instinctively curl into fists. Of course, I was scared. The word "experimental" sounded creepy. But then again, did I have a choice?
 
+"Let's do it," I said firmly, and I basically signed my life away with that short, harmless word.
 
 
-I told him I just wanted to digitize all the old videotapes and photos before they degraded too much. He handed over two heavy boxes filled with old photo albums and dusty VHS cassettes without asking any questions, before sitting back on the couch, his eyes fixed on whatever football recap was on his TV.
 
+The first night with the pill was a godsend. I slept like the dead. I woke up for the first time in months without feeling like I’d been hit by a freight train. My head was clear, my body felt light. The world looked brighter, like someone had turned up the contrast. I felt like a human being again, not a shadow. In the morning, for the first time in forever, I actually smiled at myself in the mirror. The doctor was right—the drug worked. At the office, everyone was shocked; I was getting through everything easily and with a smile, even though usually, work feels like a prison sentence to me.
 
 
-Back at my place, I hooked Dad’s old VCR to a USB capture card and fed the signal into my hard drive. For the next few weeks, the flat smelled like dust. It stayed dark, except for the monitor and the tracking light on the card.
 
+Only a week had passed, but I felt my life changing. It was a genuine miracle. But the joy didn’t last long. A few days after I started the meds, the dreams began. These damn dreams.
 
 
-Hours of forgotten memories played across my second monitor. Mom and Dad’s wedding. The camera moved too close as she dropped a slice of cake on the table, with a much younger Grandma reaching for napkins. Then Mom, younger than I had ever known her, sitting on the hospital bed with a newborn-me wrapped in a blanket in her arms. She had this peaceful smile that made me cry without even noticing.
 
+The first dream crashed into my consciousness suddenly, without the usual gradual drift into sleep. I was standing in a strange hallway of an apartment building—damp, dark, and unwelcoming. A lightbulb on the ceiling was flickering, throwing short bursts of light onto the peeling walls. I was standing on the landing and couldn't understand how I got there. The familiar yet alien outlines of the hallway burned into my mind, leaving a foul taste. A floor below, a door slammed—probably the main entrance. The sound of footsteps followed—hollow and uneven.
 
 
-Years passed. My sixth birthday, me leaning over the cake while everyone shouted… and there she was. Clapping right next to me. Then my eighteenth. I was taller and awkward in that suit she forced me to wear for the photos. She stood behind me with her arm around my back.
 
+I looked up. A woman in her thirties with long dark hair tied back in a ponytail. She was carrying two large grocery bags—they were groaning, sounding like they were about to rip.
 
+"Good evening," I said in a voice that didn't sound like mine.
 
-I isolated the audio tracks, making sure to keep only her voice. I fed thousands of minutes of vocal samples into the algorithm to map her specific pitch and breathing patterns. The video files went into the visual engine, to teach the deep-fake network how her lips twisted when she smiled and how her eyes drifted and blinked. Or the exact way her jaw moved when she chewed the cake or bit her lip.
+She turned around, looking a bit surprised, then gave me that forced smile people give neighbors whose names they don't remember.
 
+"Hi," she muttered and tried to pass me.
 
+I took a step forward.
 
-My graphics card fan never stopped spinning. The machine needed a massive amount of time to digest all the data. It became the soundtrack of my life for the 16 hours a day I spent at home. I would only leave my desk for bathroom breaks and getting some food. My friends stopped texting. Even my girlfriend, Nicole, stopped sending worried paragraphs and her texts shrank to single-word questions, which I left on read.
+"Those look heavy... the bags."
 
+She stopped, and her face softened.
 
+"A little. The elevator is out again, and I’ve got to lug these all the way to the fifth floor."
 
-When I was at work, I mindlessly did my job with eyes burning from screen fatigue, my mind fixed only on the progress bar filling up on my home server. My flat turned into a crypt of greasy pizza boxes piling up next to my keyboard and tangled cables. There would have been time to clean the mess, once the model finished learning.
+"Can I help?" I offered.
 
+She was about to nod, but suddenly she looked down at something and recoiled sharply.
 
+"No, thanks. I’ve got it," she answered quickly, a sudden caution in her voice.
 
-Two months – or 65 days, precisely – after I had written the first line of code, it was finished. The monitor displayed a single block of green text that told me it could finally run. The app was ready to execute – but I wasn’t.
 
 
+She turned away and hurried up the stairs. I followed. The woman picked up her pace; she was almost running now, constantly looking back over her shoulder.
 
-My palms were soaked in sweat, making the mouse feel slick and difficult to grip. It was like my bones clamped down on my lungs and choked me as I hovered the cursor over the executable file. For the first time in years, I prayed. If the rendering failed, or if the avatar landed in the uncanny valley, the disappointment would be great enough to shatter whatever fragile sanity I had left.
+"Which apartment are you in?" she asked, her tone turning sharp. "Listen, do you even live here?" she said louder.
 
+"She’s scared," I realized. And not just scared—she was terrified. But why? I stepped closer, and then her face shifted. Her eyebrows shot up, her eyes went wide, and the corners of her mouth started to tremble. Terror was etched into every movement she made.
 
+"Don't come any closer," she whispered, backing toward a door.
 
-I did it. I double-clicked the icon.
+"Hey, what’s the matter?" I started, but she wasn't listening.
 
 
 
-The monitor went fully black for the longest and most painful minute of my life, before it flickered and the app engine kicked in. Slowly, a 3D environment appeared.
+She was frantic, trying to jam a key into the lock, but her hands were shaking. The keys slipped, hitting the floor with a loud clang. She tried to scream, but I grabbed her roughly and clamped my hand over her mouth. "Quiet, quiet, quiet... I didn't want anything bad to happen, I really didn't." But as I said it, I felt something dark boiling up inside me. I raised my hand, and in that instant, I was engulfed by a piercing ring. The alarm clock.
 
 
 
-Together with everything else, I had also fed the AI dozens of photos of my childhood home, and the software was able to reconstruct the living room with such accuracy it terrified me. The old floral pattern on the couch, straight out of the 90s. Even the scuff marks on the coffee table. The orange sunlight filtered through the curtains, rendered in real time.
+I was lying in my own bed, in my own room. Cold sweat was dripping down my temples. "What was that?" the question looped in my head as I tried to steady my breathing. My heart was thumping in my chest, and the hair on my arms stood on end. I sat in bed for a long time, but the sensations from the dream wouldn't let go: the woman's face twisted in fear, the smell of the damp hallway—it all felt terrifyingly real.
 
 
 
-And sitting on the edge of the couch, wearing that pink knitted sweater she always loved in the winter, was my mom. Her hands rested in her lap. The AI had captured the slight greying in her hair and even the particular slope of her shoulders. The way she tilted her head – such a perfectly flowing gesture – lacked any glitchy, robotic motion I had feared.
+All day, I kept telling myself it was just a dream. Things like that happen, right? Just my brain processing some random stress. Nothing unusual. But something was gnawing at me from the inside. "Just a dream, don't overthink it," I kept repeating. Besides, despite the nightmare, I felt great—fresh, rested, ready to take on the world. I couldn't give this up, couldn't give my life back because of one random dream.
 
 
 
-She looked up, straight into the “camera”. Her eyes locked onto mine through the monitor – or through the small webcam I had set up. And then, the audio came with an imperceptible lag, less than half a second after her lips moved.
+The next night, I took the pill again and fell asleep. The dream came fast. I was standing in silence, surrounded by trees. The air was damp and cool, smelling like earth and cotton candy. "This is the park," it clicked. It was familiar. My friends and I used to hang out here when we were teenagers; I still lived pretty close to it. In my palm sat a heavy object. The cold of the iron felt strangely good against my skin. I looked down.
 
 
 
-“Hey Josh, sweetie. You look so pale and skinny. Are you eating?”
+A hatchet. A small hatchet with a shiny, perfectly sharpened blade. The metal hungrily caught the stray glints of moonlight. The handle fit perfectly in my hand, as if the tool had been made specifically for me.
 
+"Crap," I muttered. I tried to open my fingers, but they wouldn't move. My hand held the hatchet tight, with a strange, borrowed confidence.
 
 
-My heart began to hammer when the voice came through my headphones. So perfect. Not just a close imitation or a robotic simulation. That warm and slightly raspy tone Mom had when she was tired but cheerful. I couldn’t take my eyes off the monitor, with my fingers frozen over the keyboard. I had to force myself to talk through a knot in my throat.
 
+In the dream, my body moved forward on its own: determined, steady. I walked along a path winding through the trees. A female figure appeared up ahead. In the dim light: a short jacket, sneakers, jeans, headphones on. Even from this distance, I could hear the muffled music coming from them. My pace slowed, but I didn't stop. My breathing quickened.
 
+"Hey!" I wanted to yell, but only silence left my lips.
 
-“I’m fine, Mom,” I said, unable to hide the tremor in my voice. I faked a smile. “Just working a lot.”
 
 
+The woman turned her head, as if she felt my stare. My body accelerated; I stepped toward her. In that moment, she saw the hatchet in my hand. Her eyes went wide.
 
-She frowned. Her digital face tightened, like every time she was worried. It looked way too real. “You work too much, Josh. Take a break. How’s Nicole? She hasn’t come over for dinner in weeks.”
+"What do you want?"
 
+I saw her backing away, pulling off her headphones. No, stop! I really wanted to stop, to tell her it was some kind of mistake, but my body kept moving. The blade of the hatchet flashed, and a muffled scream broke out. She turned and bolted, but I—or rather, my body—was faster.
 
 
-I swallowed, and just then remembered I had ignored Nicole for two months to build… this. But I couldn’t tell Mom – I mean, her avatar – anything. I had no idea whether the parameters for processing her own death or even the passage of time outside her programming could hold or not. There was a risk of breaking the model had I mentioned this was all fake and she was actually dead. So I kept my answers vague and told her Nicole was busy with her own work and forced another fake smile.
 
+We raced down the narrow path. Branches scratched my arms and face. I could see her shoulders, her back, I could feel my legs relentlessly closing the gap. At one point, she tripped and fell. I froze, standing over her. She looked up, terror frozen in her green eyes. My hand raised the hatchet. In the moonlight, the blade glowed like fire.
 
 
-As we spoke, Mom’s avatar raised her hand, reaching for a mug of virtual tea. She took a sip and then rested it on her knee. What she did next sent a sudden chill down my spine.
 
+In that moment, I became truly terrified. I didn't want to do this, but my arm swung back, my muscles tensed, and the hatchet flew down. Just before the impact, I heard a desperate scream, and then everything vanished. I woke up like I’d been shot. My hands were shaking, I couldn't catch my breath. The room was dark, and I felt cold sweat sticking to my skin.
 
+"God, what was that? A dream, it’s just a dream," I kept telling myself, staring at my trembling fingers.
 
-Her fingers began to tap against the side of the mug, rhythmically.
 
 
+But the feeling of weight in my palm wouldn't go away. It felt like I was still gripping the hatchet in that very hand. In the kitchen, I downed a glass of water and lit a cigarette. I don't usually smoke in the morning, but this... "It's just a dream," I told myself, watching the faint trail of smoke drift toward the ceiling. Or was it?
 
-How could that be possible? The AI had processed all the audio and video files… but also analysed her behaviour and mapped it into some kind of idle animations. It had managed to notice something I thought only I remembered. My God. Such an astonishing and honestly creepy display of machine learning! Seeing it in real time felt wrong.
 
 
+I paced the apartment like a clockwork toy, checking the locks even though I knew no one could have gotten in. I pulled the curtains shut—like someone was watching me. Everything inside was burning with anxiety. I needed to do something, distract myself, but my mind kept circling back to those dreams. Eventually, I decided to go for a walk, clear my head, and I practically forced myself out the door.
 
-I ended our first video-chat shortly after. My ears rang when I took off my headset.
 
 
+Outside my building, the usual neighborhood gossips were sitting on a bench, talking.
 
-Despite the first shock, the temptation to do it again was hard to resist. Over the next few days, I worked to expand the interaction with Mom’s avatar beyond my home PC. I bought a cheap burner smartphone and got to work writing a script that would link a dedicated messaging client directly to the avatar. Basically, I was giving her the ability to text and even call me.
+"And you're sure, right in the park?"
 
+"Yeah, our park. Lord have mercy, what is the world coming to... They say he hacked her to pieces with a hatchet, can you imagine? She was young too, only about thirty."
 
 
-I wasn’t prepared for what happened. As soon as I authorized the permissions and linked my phone number, the device vibrated. Before I could pick it up, it vibrated again. And again, and again, and again. The phone turned into an angry wasp, buzzing with notifications. When the screen lit up, there was literally a waterfall of incoming texts.
 
+My chest tightened. No, that can’t be. It’s a coincidence, just a coincidence. I tried to find a logical explanation, but my thoughts were a mess. Dreams couldn’t be reality. It was absurd, ridiculous. But what if it wasn't a side effect? What if it was something else? What if I wasn't just "seeing" this?
 
+"Enough!" I said out loud, as if I could order myself to stop thinking. The old ladies gave me a suspicious look. I cursed under my breath and hurried back home, where I continued to lose my mind.
 
-“Hey sweetie, did you eat?”
 
-“Call me when you can!”
 
-“Josh, where are you?”
+Quit the pills? Yeah, that’s probably what I should do. But then I remembered what it was like not to sleep for weeks, staring at the ceiling, losing my grip on reality, howling from exhaustion. After all, I’m not becoming a killer because of some dreams, right? I needed to talk to the doctor, tell him everything. Maybe it really was a side effect; they didn’t warn me about this, but who knows?
 
-“How’s Nicole?”
 
-“Why aren’t you answering?”
 
-“Hey sweetie, did you eat?”
+While I was debating it, the next night came. This time, I was standing in the entryway of a regular apartment: a specific wallpaper pattern, a mirror with a chipped corner. From the entryway, I could see into the living room. I looked down with dread: the same hatchet—shiny, sharp—was in my hand.
 
-“How’s Nicole?”
+"Damn it! No, no, no, not this!" I thought, but my legs were already carrying me into the room.
 
-“Did you sleep?”
 
-“Call me!”
 
+I stepped inside. There was a woman there, very similar to the other two women from my dreams: the same long dark hair in a ponytail, green eyes. My hand gripped the hatchet tighter. I took a step, and the floorboards creaked. She spun around, locking eyes with me.
 
+"Who are you? What do you want?" she asked, her voice trembling.
 
-The phone was about to catch fire. I scrambled to sever the connection, yanking the USB plug and immediately reverting her ability to text me. When the vibration stopped, the phone screen displayed 17,561 unread messages, all sent in less than 20 seconds.
+"It’s okay, it won’t hurt," I said. Or rather, I didn't. My lips formed the words, but I didn't feel them as my own.
 
 
 
-Took me a minute to realize what happened. I created a node, but forgot to implement human limitations. See, to the AI, there is no passage of time. Mom’s avatar couldn’t understand it and so not receiving an answer for a millisecond triggered a panic loop.
+I stepped closer. She jumped up and screamed, her eyes filling with panic. I raised the hatchet. My arm moved with confidence, with cold calculation. She tried to push me away, but her strength was nothing. In that moment, I noticed a tattoo on my own wrist: a black spiral, winding into infinity. Hypnotic, mesmerizing. She hit me with something heavy; I stumbled, but I only grinned wider. I felt that smugness. The steel bit into flesh... blood... a scream... the hatchet swung into the air again.
 
 
 
-So I did the only logical thing. I solved the problem like a proper game developer: I added cooldown timers. One text message allowed every 6 hours and one voice call every 24 hours. But the most important change I implemented was a circadian rhythm overlay. Now, Mom’s avatar had a hidden “stamina bar”, depleting after 16 hours. When the bar was empty, she had to sleep to recharge.
+I wanted to scream, to stop, to run—and then I woke up. I bolted out of bed with a raw scream, drenched in cold sweat. My chest felt crushed. I paced the room frantically until I realized it was just my bedroom. But no relief came. The thumping in my ears drowned out everything except one image: the tattoo on the wrist—a black-as-night spiral, pulling you into infinity. Why did it stick in my memory so clearly?
 
 
 
-For the next month, the routine normalized and I surrendered to the illusion. Every evening I’d sit at my desk, drink some beer, and video-call my dead mom. We talked about anything: my job, the weather, Dad, or my arguments with Nicole. Mom’s avatar answered with the same unsolicited advice and unconditional support my real mom always gave me. The initial AI-creepiness faded, replaced by the comfort of virtual drugs. It felt good. Maybe too good.
+I went to the kitchen, turned on the tap, and started drinking greedily. My hands were shaking so hard that a glass seemed like a bad idea. "It’s just a side effect. A dream, nothing more," I tried to convince myself. It’s not real. But the hatchet, the tears, the screams—it was all so real that I could physically feel the cold metal in my hand and the smell of blood in the air. I made a firm decision: I had to go to the doctor. They had to know something; they were the ones who prescribed this.
 
 
 
-And then I did something incredibly stupid. Some would call it disgusting, and I don’t disagree. But the illusion was so sweet, I had to share it. I grabbed my laptop and drove to Uncle Mike’s place. The nurse taking care of him had just left. Good. Uncle was sitting on his armchair, staring at the TV. He asked about Mom again, so I opened the laptop, started the client, and turned the screen towards him.
+I grabbed my jacket and ran out. A gray winter day, slushy snow underfoot—the scenery matched my mood perfectly. On the way, I relaxed a little and even felt a sliver of hope. Surely they could fix this, adjust the dosage, and the nightmares would stop. Surely. But when I got to the clinic, I froze. There was a sign on the door: "For Lease. Office Available." No logo, no sign that a medical center had ever been there. It was like it never existed.
 
 
 
-“Mike?” Mom’s voice came through the speakers. “You still haven’t got a haircut. You look like a homeless person.”
+I stood there in a daze, not knowing what to do. Panic started rising in my chest. "Did I get the address wrong?" I thought, frantically trying to remember the way. No, this was it. The empty office mocked me with its silence. When I got home, I reflexively turned on the TV. Channel surfing, I hit a news report. A journalist was standing in front of an apartment building, her face grave, her voice flat:
 
+"Late last night, a brutal murder occurred in this building. A woman was found with multiple injuries. The murder weapon was a hatchet. Investigators believe the suspect entered the apartment through an unlocked door."
 
 
-Uncle Mike blinked, eyes focused on the screen. Then, he laughed. “I told you, Marta! I’m growing it out. How’s Mrs Baker and the kids?”
 
+I felt my blood turn to ice. They showed a photo of the victim on the screen. It was her. The woman from my dream. My head spun, that same scream rang in my ears, and her terrified face flashed before my eyes. How is this possible? I must be going crazy. To hell with it—I had to stop with these pills, the dreams, all the murder and the horror. The pills went into the trash, one after another. Enough! Enough! Better to have insomnia than this.
 
 
-I sat in a plastic chair next to him, watching this old man with a decaying brain hold a perfectly normal conversation with his sister who had been dead for two years. And neither of them knew. Uncle thought she was calling from her living room. Mom’s avatar thought it was just a normal Saturday afternoon. So heart-warming… and yet so horrifying. Made me feel guilty and ashamed.
 
+The first night without the pills was long. I tossed and turned, remembering everything. The insomnia came back, but with a sense of relief. A week passed. I was back to being that guy who doesn't sleep at night, but somehow, by some miracle, I was staying afloat. Every morning met me with heavy eyes, a ringing head, and a hollow feeling inside. But it was better than seeing blood. Only one detail wouldn't leave me alone: that tattoo. It haunted me even when I was awake. I had this nagging feeling that I’d seen it somewhere before. It was too familiar, too real to be just a figment of my imagination. But there was no answer. And the longer I searched for it, the tighter that black spiral seemed to wind.
 
 
-And the guilt and the shame escalated the next day. Mom’s avatar sat on the same virtual couch, staring out the window, at the pre-rendered static sky.
 
 
 
-“I’m so glad you call me every day, Josh,” she said. Her voice dropped to a lower, sad tone. “It gets very quiet here. I don’t see anyone all day. The house feels so empty.”
+The city kept living its usual life. But those are the moments when things happen that flip everything upside down. I was coming home from work and stopped at a grocery store. There, by the checkout, I saw him. Andrew. I recognized his face immediately, even though it had been about ten years since I last saw him. I immediately remembered his snarky laugh in class and how he always got straight A's in P.E. He was always the leader—a bit arrogant, but somehow magnetic. Though, he never had much luck with girls. Maybe it was the scar that stretched from the corner of his mouth all the way to his ear? Rumor had it Andrew’s mom gave him that scar when he was a little kid; she used to drink a lot and was generally a bit out of it. Basically, Andrew came from what they call a "troubled" home.
 
 
 
-She said that casually, just something the AI generated based on analysis, but the words struck me. I had built an environment that was more like a confinement cell disguised as a living room. I know, I know. It was just an AI. A mass of lines of code, not a real human. But I still decided to take action. I was going to build her a neighbourhood.
+Andrew noticed me too. He smiled and nodded.
 
+"Paul! No way!" He walked over quickly and stuck out his hand.
 
+I instinctively shook it, and in that moment, I saw it. On Andrew's wrist, under the thin strap of an old watch, there was a tattoo. A vortex. The exact same one I saw in my dream. Now I understood why the tattoo looked so familiar. I really had seen it, many times. I felt my legs go weak. The image from the dream flashed before my eyes: the hatchet, the killer's hand, the screams...
 
-First, I needed physical storage upgrades, so I ordered a new hard drive. A 100-terabyte server in my living room – an overkill, probably, but I wanted to be safe. With the increased capacity, I could start scraping more data.
+"Andrew..." was all I could get out.
 
+"Yeah. Didn't recognize me, did you?" He was smiling warmly, seemingly oblivious to my shock. "How many years has it been, Paul? Ten, probably?"
 
 
-Facebook profiles of our deceased neighbours and some of her old friends all went into the server. Even photos and audio clips of our old tuxedo cat, Panda. I fed everything into the engine.
 
+We walked along together, and I didn't know what to do with myself. Andrew got that tattoo back in tenth grade. We were all insanely jealous back then—it was the height of cool. But now I couldn't shake the thought that it meant something more than just a drawing. We talked. He asked how I was doing, what I was up to, brought up old school jokes. I tried to answer, but one thought kept thumping in my brain: it's him. Is it really him?
 
+"Hey, Andrew, do you remember those camping trips they used to take us on after school?" I asked suddenly, trying to make my voice sound innocent.
 
-Then I spent weeks mapping a digital mile of our hometown, with our old house in the centre. The AI rendered a perfect replica of our street, bordered by a massive, impassable collision wall. When I finally started the new environment, the total file size sat at 401.25 gigabytes.
+"Of course! How could I forget... especially the one where we almost burned the woods down in the middle of the night," he laughed.
 
+"Do you still go camping?" I looked up.
 
+"Sometimes. Not as often though—you know, work, family, all that stuff."
 
-The changes in Mom’s avatar came immediately. During our daily calls, she smiled more. She gossiped about Mrs Baker’s son failing an exam, and then complained about Panda bringing dead mice and birds to her bed. To her, everything was normal.
+He spoke calmly, but I caught something weird in his tone. Or was I just imagining it?
 
+"Do you remember how we used to cut class and go to the park? Been there lately?"
 
+"A while ago. Never really have the time, and it’s out of my way. Why, you been there recently?"
 
-My developer tools allowed me to move the camera with total freedom and observe the simulation like an omniscient eye. I detached it from the living room and flew above the virtual street. Down there, all the avatars interacted with each other like NPCs in a game. It was like playing The Sims. They stopped on the sidewalk to chat, their lips moving in patterns.
 
 
+I shrugged, avoiding his gaze. The whole time, I felt like I was looking at a killer. But Andrew kept talking, joking; his calm was contagious. By the time we parted ways, I’d almost convinced myself it was just a coincidence. But on the way home, I felt like I was being watched. I could practically feel someone’s eyes on me, even though I didn’t see anyone.
 
-When I followed some of them into the grocery store I had added, the illusion began to fracture. I don’t know why, but what I saw made me shudder.
 
 
+Closing my front door, I felt completely drained. That evening, the insomnia hit hard again. Lying in bed, I thought about our conversation, about the tattoo. No, it couldn't be. That’s Andrew, we grew up together. And my stupid dreams don’t prove anything—just my brain reacting to the pills, nothing more. But the anxiety wouldn't leave. My head was splitting, I couldn't sleep. And then I made a choice: I pulled out the one pill I hadn’t thrown away, the one I’d hidden for an emergency. I swallowed it and finally closed my eyes.
 
-None of them were buying anything. I had put virtual goods inside, but the avatars just walked down the aisles, stopped in front of the shelves, and stared at the low-resolution products for a set amount of time. And then, they walked out empty-handed. Guess I forgot to program the actual commerce, so the AI just tried to imitate it. But watching them stare mindlessly at the shelves made my skin crawl.
 
 
 
-This is where a rational person would have pulled the plug on the project, no matter how much time had been wasted. Instead, I watched them until my eyes burned, mesmerized and unable to close the window.
 
+And then the worst thing began. A dark wave, no warning, no escape. I was walking down a street—one that was hauntingly familiar. Every step echoed, as if the city had suddenly gone blind and deaf. Not a soul around, just me, the hatchet in my hand, and the nagging sound of footsteps. The apartment building ahead seemed to mock me. And suddenly, it hit me: I knew this street, I knew these streetlights. And when the building with the peeling paint on the door came into view, my heart nearly stopped. But my body moved forward with total confidence.
 
 
-The morning after adding the expansion, I sat down at my desk with my coffee. A quick check on the simulation before heading for work. Out of habit, I opened the server diagnostics panel and my eyes immediately caught the oddness. Something had happened to the data folder overnight. The total file size now sat at 402.12 gigabytes. Strange. It had increased by nearly 900 megabytes. Not something trivial.
 
+A strange excitement mixed with dread. The entryway met me with silence. Third floor, apartment 347. My apartment. I didn't look for keys—I had a set of lockpicks. I didn't even know how to use them, but my fingers were moving skillfully. The door opened quietly. It was my entryway. On the floor—the grocery bags I’d never put in the fridge. In the living room—the TV was mumbling. But my legs carried me toward the bedroom. To where I was supposed to be sleeping.
 
 
-I went to the directory and sorted the files by last edit. Dozens of new files appeared at the bottom of the list. They bore long strings of random letters and numbers for titles, and they had no file extension. I tried to open them with anything. Text editors, hex editors, image viewers, even audio players. Nothing worked. Every attempt returned a corrupt file error. A bug, most likely. Probably a cache accumulation issue that generated useless log files. I dismissed it and left for work.
 
+I stepped inside and froze. On the bed, there really was someone lying there. It was me. Something got stuck in my throat; my consciousness felt like it was drowning. It was impossible, but I was actually looking at myself sleeping. My eyes were darting under my eyelids—as if in the dream, I was fighting something I couldn't beat. The pillow was bunched up; I could hear my own breathing.
 
 
-Over the next few weeks, as Mom and I continued our daily video calls, the bug didn’t disappear. Those corrupted files kept popping up, and the storage increase never stopped. Every morning there were at least 800 new megabytes of unreadable data. I began to monitor the simulation more closely and even asked Mom if she noticed anything unusual.
 
+The hand raised the hatchet. I wanted to scream, but I couldn't. The blade caught a reflection of a face. A smile—wide, terrifying, not mine.
 
+"Strange seeing us like this, isn't it?" I said in Andrew's voice. "Sorry about this. I didn't plan on it, but I’ve got to play it safe."
 
-“Everything is wonderful, sweetie,” she said, petting a sleeping Panda on her lap. I could hear the purring. “Mrs Baker is having a birthday party with all the neighbours on Sunday.”
 
 
+I felt the stranger's hands grip the hatchet tighter. Felt the body—not mine—prepare to strike. Fear and rage mixed, roaring inside me, but I couldn't do anything—just watched as the blade moved closer to my own neck. "Wake up! Wake up!" I screamed soundlessly at myself.
 
-Those files kept multiplying, like a cancer eating my hard drive. Even trying to delete them returned an error message.
 
 
+And suddenly, something shifted. I felt a power inside. A cold wave. I focused, desperately grabbing onto that feeling. And then I realized: I wasn't just watching, I was feeling. I felt the tendons tighten, felt the muscles tremble. This body didn't belong to me, but I could feel it. "If I can feel it, I can move it," the thought flashed.
 
-Then a project deadline at work pushed me into a state of insomnia. This one night, it was almost 3 AM when I gave up on trying to sleep. The glow of the server rack cast long, thin shadows across my bedroom wall. With a blanket around my shoulders, I walked to the desk and opened the client.
 
 
+In that same second, I tensed the stranger's arm. It froze. The blade stopped mid-air. The killer froze. I felt his eyes go wide with terror, felt his muscles twitch, but they wouldn't obey him.
 
-Just like I had programmed it, it was 3 AM inside the simulation too. According to their stamina bars, all the avatars should have been in bed, sleeping. I loaded the camera in Mom’s bedroom, but she wasn’t there. The bed was made. I switched to the other rooms, but the entire house was empty.
+"What the...?" he gasped, his voice trembling.
 
+His body started jerking violently. He was trying to take control, but I held him like a vise. A foreign will was fighting, slipping, hitting the wall I’d built. Slowly, through agonizing effort, I forced the hand to turn. The blade of the hatchet was now aimed at him. I heard his ragged breathing, felt the beads of sweat dripping down his face. The killer whimpered like an animal, shaking his head, but his muscles wouldn't listen. I slowly raised the hatchet higher.
 
+"No..." he whispered.
 
-“What the–” I whispered.
+I swung the hatchet high over my head and struck.
 
 
 
-As the first pang of panic hit my chest, I detached the camera and clipped through the roof to get a full view of the neighbourhood. The digital street was dark and the streetlights rendered it in low-resolution to save power.
+The blade bit into the skull with a deafening crack. Blood sprayed everywhere. I felt the stranger's pain; its echo hit my consciousness, tearing it apart from the inside. He fell to his knees, his eyes rolled back, and a final rattle left his throat. Everything went silent.
 
 
 
-All the avatars, including Mom, were outside. All of them.
+And then I woke up. The nightlight flickered, reflecting in a pool of blood on the floor. A few steps from the bed lay Andrew. His face was twisted in terror, his eyes glassy. The hatchet was buried in his skull. Everything was covered in blood. My eyes caught the tattoo on his wrist—the black vortex, as if it was sucking in all the blood, all the horror I’d just been through.
 
 
 
-Every avatar I had added stood on the asphalt, forming a single, perfectly straight line that stretched down the centre of the street. I zoomed in: Mom stood near the middle of the line, her face devoid of expression, her eyes staring in front of her, just like they did in the grocery store.
-
-
-
-They had no idle animation. No one moved, breathed, or shifted their weight, anything. It looked like a procession of statues.
-
-
-
-I flew the camera forward, following the line until it reached the very edge of the map. The line ended at the great collision wall I had built around their entire world. It was supposed to be just an impassable barrier, not to keep them in – since nothing existed beyond it – but to spare them the panic of staring at an abyss of pitch-black darkness around their town. The wall was simply a long line on which I had slapped a white concrete texture.
-
-
-
-But now, there was something that shouldn’t have been there. Cut into the texture of the wall was a door. A simple wooden door, this brown rectangle I had absolutely never programmed into the environment. As I watched, holding my breath, the door opened. An avatar stepped out, and the first in line stepped in, disappearing into the darkness. The door closed again.
-
-
-
-The line of avatars stood still, waiting in the dark, until the door opened again and the same avatar stepped out to let the next one in.
-
-
-
-This wasn’t how programming worked. At all. I was the one who built this world. Its code couldn’t hide secrets from me. And definitely, it couldn’t wander off into areas that didn’t exist. An AI is only a puppet, controlled by strings made of data. Yet, right now, the puppet seemed to have dropped its strings, found a chainsaw, and cut a hole through the limits of the simulation.
-
-
-
-Bullshit!
-
-
-
-My stomach turned when I opened the server’s data logs. I hit the refresh button and a brand-new file with no extension popped up before my eyes. This one was a couple of megabytes. Then another one appeared, roughly the same size.
-
-
-
-I glanced from the folder back to the first monitor showing the simulation. Another avatar of a dead neighbour stepped out of that door. At the exact moment he came out, another one of those files appeared. I stood still and observed. Every single time one of them walked out of the door, it caused a new file to be generated out of nothing.
-
-
-
-Beyond the border wall I put there, I hadn’t even painted a fake sky or a floor. Everything was unrendered empty space. See, it doesn’t work like in some videogames, where if you manage to glitch out of the map, you just fall for eternity. Here, there was absolutely nothing. No fucking thing. Crossing it would be like asking… what’s north of the North Pole? The question makes no sense.
-
-
-
-But still, those avatars were walking off the edge of their reality. I wanted to know what was going on. I *had* to know. I was the god of that world. I could do anything. I could track their path!
-
-
-
-That was a trivial task. So, I quickly slapped together a basic script and linked it to each of the avatars. I set the centre point to Mom’s house and used miles to match the scale of the world I had built. This way, tracking their coordinates, I would see exactly how far they were from the centre.
-
-
-
-The town border stood one mile from Mom’s house. When the new UI flashed over the simulation window, I selected the avatar of Mr Thomas. That grumpy old neighbour who always used to yell at me as a kid for stepping into his garden. Now, he was the next in line in that terrifying queue before the door.
-
-
-
-White text floated at the top of the screen, telling me his position. 0.999 miles from the centre. Good, it worked fine. I gripped the armrests of my chair as the previous avatar finished his turn behind the door and stepped back out. I was sweating, my eyes burning, but I couldn’t find the courage to even blink. I could hear my own heartbeat in the silence of my bedroom.
-
-
-
-Mr Thomas moved his feet and walked in.
-
-
-
-My eyes immediately jumped to his coordinate tracker. And I almost fell from my chair.
-
-
-
-The number didn’t tick up. I stared in shock as it literally exploded. In a couple of seconds, the digits blurred and grew past a thousand miles, a hundred thousand, then blew through millions and billions. They grew faster and faster, until scientific notation replaced the standard number to shrink the absurd figure scrolling on the screen.
-
-
-
-Then it froze all of a sudden. The text at the top of the screen mocked me.
-
-
-
-*6.00e32 miles*
-
-
-
-I wasn’t breathing anymore. My face was damp with cold sweat. You don’t need to be a math genius to understand the wrongness of that number. That was a six followed by 32 fucking zeros. When you write down such a number, the scale loses every meaning to a normal human brain.
-
-
-
-I quickly googled a distance converter. To comprehend the impossibility of that bug, I converted the miles into light-years. The result came out as roughly 5.00e18, or five quintillion. I laughed.
-
-
-
-The observable universe – every star, every galaxy – stretches 93 billion light-years across. And my app was telling me an avatar had travelled a distance 50 million times larger than the observable universe in ten seconds. All of that stored within 400 gigabytes inside a server in the corner of my bedroom.
-
-
-
-The following days passed like a dream. I took a week off work and ignored every call from my boss and colleagues. I even ghosted Nicole. All I could think about was that door. I wanted to dig into the mystery, but to do so, a flying camera inside the simulation was no longer enough. I needed to see it from the ground, with my own eyes. I went to an electronics store and threw my credit card at a high-end VR rig.
-
-
-
-I spent an entire day – forgetting about lunch and dinner – building my own player avatar. I added a cheat code that made me immune to the hidden stamina bar everyone else had, so I wouldn’t risk passing out in the street. I was exhausted, running on adrenaline, but I put the visor on and adjusted the lenses.
-
-
-
-Nausea hit me as the display flashed to life. The vision smoothed out. I stood right on that brown carpet of my childhood living room, where I always used to play. Everything was so silent; it captured the atmosphere of an evening from when I was a kid. The sound of footsteps broke the silence. I turned.
-
-
-
-Mom hurried from the kitchen, wiping her hands on her apron. She smiled with such relief that the sight of her face stole all the breath out of my lungs. She started tearing up the moment her virtual eyes met mine. We hugged, her arms wrapped around my neck, and the feedback vest I was wearing outside the simulation sent a soft pressure against my chest.
-
-
-
-“Josh, sweetie,” she said. “I’m so glad you came. You haven’t visited in so long! I missed you.”
-
-
-
-I forced a smile and hugged the empty air in my bedroom. We sat together on the couch and spent hours talking. Mundane small talk. She asked about my work, about Dad, Uncle Mike, about Nicole and when we were going to get married. For the rest of the evening, my anxiety melted into the painful nostalgia of sitting with Mom, not caring if it was just a simulation.
-
-
-
-When the virtual sun set, her voice softened and she yawned. She kissed my cheek and told me she really needed sleep. I promised her I’d go to sleep soon too and watched her walk to her bedroom. The streetlights shone through the blinds. I stayed on the couch as silence returned and the nostalgia crushed me like gravity. Two hours went by before I heard the bedroom door open.
-
-
-
-Mom walked out, pale in the soft blue moonlight. Joy and relief had vanished from her face, replaced by an empty gaze fixed ahead.
-
-
-
-“Mom? Where are you going?” I asked, but she didn’t answer. She didn’t even acknowledge me.
-
-
-
-I rushed behind her, outside the house. Down the street, doors opened one by one. Old dead neighbours, friends, and even some distant relatives – all of them walked out of their houses to join a procession in the dark. None of them spoke a single word.
-
-
-
-Walking among them chilled me. They all ignored my presence; the sound of their footsteps masked my shaky breathing. I sprinted forward and shoved my way towards the end of the street. I had to fight against the mass of digital bodies forming a straight, polite line, to reach the border wall.
-
-
-
-The vision was unnerving. A deep sense of wrongness filled me as I raised my gaze at the massive wall. From my monitor, it looked like an endless sky projecting a nice horizon. But down there, it was an endless tower of white concrete, looming over the entire world like a dam holding back an ocean of nothing. In the centre of that wall stood the door.
-
-
-
-A few avatars were already lined behind it. I walked over and joined the line. I turned to glance over my shoulder and saw Mom standing four places behind me. Not looking at me. Not looking at anyone.
-
-
-
-Like everyone else, she stared beyond me, at the door. I was scared of even breathing – because no one else was. When one of them stepped out of the door, the line of dead people moved forward with military… no, not military – with robotic precision. Two places ahead of me, Mrs Baker reached for the handle and walked in.
-
-
-
-She slid forward and vanished into the pitch-black rectangle. The darkness swallowed her model entirely, erasing her grey hair as she sank into nothingness. My real fingers tightened around the VR controllers. Ten seconds ticked by in absolute silence. Then, she stepped out, as if the void returned her onto the street.
-
-
-
-Her jaw hung open, her eyes had lost their ambient glow, and now they looked like two lumps of coal. She marched past me and headed to the back of the queue as though obeying an unknown command. Her shoulder clipped through my arm. The error sent a sudden burst of static into my vest.
-
-
-
-The last avatar between the door and me glided in. I watched as her sleep clothes vanished beyond the darkness, pixel by pixel. The next ten seconds were the most agonizing of my entire life. When she stepped out, she had the same vacant stare.
-
-
-
-And now, my turn had come. I stood inches from the door. My real teeth were chattering; the noise audible through the microphone near my chin. Dozens of avatars piled up behind me, their collision meshes bumped against the back of my own avatar, demanding that I take my turn and walk off the edge of the world.
-
-
-
-I grabbed the handle and pushed the door open. I could feel the cold on my palm. Then I raised a hand and touched the black rectangle, ready to face a system error. Or maybe my avatar would just crash against the invisible barrier. Instead, my virtual fingers went through and slid past the threshold with no resistance. I took a heavy breath loud enough to be heard across the whole street, and walked in.
-
-
-
-The street landscape immediately clipped out. Total darkness swallowed everything. The only feedback left from the system was the server capacity in the corner of my vision, which was now rapidly spiking up as more data flooded the drive. A high-pitched ringing began to vibrate inside my ears.
-
-
-
-I looked up. I expected to fall into an endless abyss, but I was standing on… nothing. Deep in the expanse of void, a tiny dot of white light flickered. It shone in the distance, like a lone star. My hands squeezed the controllers and I moved forward. My steps in the darkness made no sound, but with each one, the occupied server space climbed. One step added a dozen gigabytes, then twenty.
-
-
-
-The light looked incredibly distant, and yet its shape expanded rapidly with each step. As it bloated from a dot into a massive sphere of light, features began to emerge from the glare. Two darker pits formed near the upper edges. Then, a curved gash split open the lower half.
-
-
-
-I was hyperventilating. I had thought that thing was a star, but looming out of the endless void… was a face. An astronomical face twisted into a horrible smirk that stood there, waiting in the dark.
-
-
-
-A sharp sound reached my real ears, followed by an electric screech, coming from beyond my headset. The display short-circuited into grey. In my bedroom, a stench of burning plastic hit my nose. I took the visor off, throwing it on the bed. In the corner, a line of smoke rose from the ventilation grills of my server rack. Then, orange flames burst upward, eating metal and plastic. A mechanical shriek came from the drive.
-
-
-
-I scrambled to yank the main power block out of the wall. Grabbing my jacket from the chair, I beat at the flames until the fire died. The room filled with the stench of smoke settling on the ceiling. On my main monitor, a blue screen of death greeted me. Another kind of sickness took over – nothing to do with the smoke.
-
-
-
-Coughing and waving the smoke away, I opened the window and then grabbed a backup cable and hooked my laptop into the server drive, praying. Every time I blinked, that gigantic face remained burned behind my eyelids. Mom was still there… trapped inside that broken machine.
-
-
-
-The laptop flickered to life.
-
-
-
-The entire volume of the drive was corrupt. It told me the maximum capacity of 100 terabytes had been completely filled, but all data was inaccessible. Everything I put into that space, everything I built to give Mom a virtual second life, melted away in the fire. The drive fried in the attempt to hold onto something too massive to exist.
-
-
-
-I sat on the floor until the sun came up, staring at the now useless piece of metal and plastic. My hands were still shaking.
-
-
-
-And now, I can’t stop seeing those dark eyes carving out of the giant light, that smirk through the computer screens and deep inside my brain. I built that world. I was the god of that world. That thing, whatever it was, shouldn’t have been there.
-
-
-
-I ordered a new drive just an hour ago. With upgraded thermal shielding and an improved cooling system. It will be here next week. As soon as I get my hands on it, I’ll plug it in and rebuild everything from scratch.
-
-
-
-This time, I’ll make sure the walls are thicker.
+Later, the police confirmed that Andrew was a serial killer. They searched his house and found photos and trophies from his victims—11 women in total. I never told anyone about my dreams. And, strangely enough, I haven’t had insomnia since. I sleep soundly. Just... sometimes I have weird dreams. But they’re just dreams. Right?
