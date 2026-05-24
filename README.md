@@ -1,159 +1,290 @@
-# She promised to walk my dog with me. Now she’s dead.
-I like to go on long walks at night.
+# I work at a mental asylum. Everyone here is sane, happy, and perfectly healthy.
+I applied for the job on a whim.
 
-Ever since early high school, I’d spend some nights just wandering around the neighborhoods for a few odd hours. I’d feel the cool air in the fall and the humid Florida heat in the summer.
+It was one of dozens of government listings, anything that paid better than what I was making - most of them I barely remembered applying for. So when I got the email back, I had to reread it twice.
 
-I spent many of those countless hours thinking about her. It made me feel silly and childish, but I guess I *was* a child, after all. Things never ended up working out, although not for a lack of trying. I talked to her all the time, spent all my energy vying for a grain of her attention, and I think it had been working, too.
+***Patient Supervisor - Private Mental Facility***  
+***Salary:*** higher than expected.
 
-She passed away during one of those sticky, hot nights. The kind that makes you feel like you’re swimming in the black sky. Which I was. While she was dead on the ground, I was wading through the inky, star-freckled darkness. 
+Almost *four times* higher.
 
-It smelled like rotten eggs that night.
+I accepted before I could talk myself out of it.
 
-I found out the next day. My kid brain had trouble accepting it. The lack of a concrete explanation from my mom didn’t help, either. I mean, I *knew* she was dead. But, sitting there at the kitchen table, prodding at tasteless grits, I didn’t *know* she was dead. The words went in one ear and my mind transfixed them into something else. Something easier. 
+A few days later, a letter arrived. No company branding - just an address, a time, and brief instructions.
 
-She was “gone”. That was all.
+***Report to: Bradley (facility entrance)***  
+***Role: Patient Supervisor (handover)***
 
-I *knew* she would be back in time to walk my dog with me later that day. I mean, she promised it. I fixed my eyes onto our texts. A little bubble appeared at the bottom of the chat. 
+I pulled into the parking lot for my first day yesterday.
 
-She was typing.
+It was a grey Friday morning, and the sun was just starting to emerge, casting an orange glow over the large building.
 
-Of course, the time for dog walks came and went. He sat whimpering at the door and I kept refreshing my phone. Something was bound to change if I just waited a bit longer. That little bubble kept shaking around at the bottom of the screen, almost like it was mocking me.
+From the outside, it was exactly what you’d expect - brick walls, tall fences, cameras, tight security. The kind of place you don’t accidentally wander into.
 
-Later, when it was just past midnight, I decided to walk alone. The dog yipped and yipped as I passed him out the door. He’d have to wait for another time.
+“John?”
 
-My feet floated above the pavement, taking me away from my neighborhood and onto the main road. I kept walking. My mind didn’t drift towards *her*. I wouldn’t let it. I just looked ahead at empty businesses and parked cars. I made a turn and soon I was on the gravel path that led into the nearby woods. 
+A man in his late fifties stood there in a dark blue uniform.
 
-The place used to be a community park, until some little kid, the same age as me at the time, got lost. They found him two days later, perfectly fine, only a couple miles deep into the forest. Regardless, a mob of concerned parents got it all shut down. The city never bothered to get rid of the playground equipment. All they did was put up a chain at the entrance, letting it all rot into dirt and rust. 
+“I'm Bradley,” he said, shaking my hand. “You’re taking over from me."
 
-That's where I was headed that night. The same place I had been the night before.
+He glanced up at the building and sighed.
 
-I passed the last, flickering, orange glow of the streetlamps before I faded into the darkness beyond. My hands met the familiar rough texture of the chain and I lifted it over my head. 
+“Thirty years and I’m done. This time next week, I’ll be on a beach with the missus, cocktail in hand.”
 
-Stepping foot onto the bouncy mulch, I could already smell it. Just as strong as before. A sort of sulfurey, rotten smell. It burned my nostrils. I looked around, struggling to find a source.
+I chuckled as we walked inside.
 
-That's when my phone buzzed in my pocket.
+The moment I stepped through the glass doors, I stopped.
 
-*WH*
+The inside didn’t match the outside at all - polished floors, purple carpet, marble reception desk.
 
-*HERE .*
+Quiet. And very expensive-looking.
 
-My heart pounded furiously in my chest as I read the texts. My mind raced as I contemplated if they were really from her or not. I texted back.
+It looked more like a hotel than an asylum - no shouting or chaos to be seen anywhere.
 
-*Hello???*
+“Most patients are still asleep,” Bradley said, as if reading my thoughts. “You’ll see more later.”
 
-*Are you okay????*
+I followed him down the hall.
 
-At first, no response. Then, the bubble appeared at the bottom again. I stood there in the dark for a good few minutes waiting for her to finish typing. I kept thinking.
+The metal doors at the end had been wedged open with a shoe. He pulled them open and they slid apart.
 
-*Is she coming back? Is she here now?*
+“Your job’s simple,” he began. “You get assigned one patient a week. Follow them, observe, report anything concerning.”
 
-The thought of her being there right in that moment in the hot, lonely playground sent a sudden chill down my spine. I looked up from my phone and I searched my environment. My eyes struggled to adjust to the dark. I turned on the flashlight on my phone and started walking around.
+“Like what?”
 
-The light pierced the structure of the playground and reflected grey-orange rusted pipes and slides. They met at odd intersections and cast shifting shadows that unnerved me. There didn’t seem to be anything around.
+He shrugged.
 
-After pacing around the whole playset, I stepped towards the woods beyond. My light shined upon tall, thin trees densely packed just past the end of the mulch. I took another step. And then another. Soon, I found myself a few yards into the forest.
+“Honestly? Nothing ever really happens.”
 
-I heard a branch snap ahead towards my left. 
+I raised an eyebrow skeptically.
 
-I fixed my flashlight towards the sound. The scent of rotten eggs was overpowering, causing my eyes to water. Then I saw movement.
+Just then, a door opened and a young man stepped out in a bathrobe with a coffee in his hand.
 
-Something tall, impossibly tall, and skinny, almost like the trees around it. I wouldn’t have even noticed it if it weren’t moving. It passed between two trees and disappeared in a fraction of a second. That fraction was enough time for me to decide what to do next.
+He couldn’t have been older than early thirties. He had dark hair, still damp like he’d just taken a shower. He looked confident and relaxed.
 
-I sprinted home faster than I ever had before. The whole world around me– the businesses, parked cars, houses, everything, it was all a blur. I stumbled as I ran up my porch and unlocked the front door.
+He smiled when he spotted us.
 
-My heart only began to calm when I was under the covers of my bed. Even still, I felt a slick sweat on my brow. Opening my phone, I found that she was still typing. I barely slept that night.
+“Morning.”
 
-I awoke in the morning to a new text.
+I leaned slightly toward Bradley. “Is he staff?”
 
-*YOU*
+Bradley shook his head. "Patient."
 
-*25.15 -87.02*
+I stared.
 
-*YOU. Y ?*
+The man approached, eyes flicking briefly to Bradley. For a split second, he looked confused.
 
-At that point I figured it was probably smarter not to respond. I wondered what the numbers were supposed to mean. They looked like coordinates. Putting them into Google Maps, it spat out a location in the middle of the Gulf of Mexico. I wasn’t sure what to make of it, but I felt uneasy.
+Then Bradley grinned.
 
-I left my room and went to fix myself a bowl of cereal. My mom was already in the kitchen frying eggs in a pan.
+The man’s expression snapped back into place, as if a switch was flipped. He smiled again and held out his hand.
 
-She turned and smiled at me. “Morning. You want me to fix you something?” 
+“Tavian,” he said. “Call me Tav. Good to meet you.”
 
-“Mom… what happened to Sarah?” I stopped in the entrance to the space, not taking another step closer.
+I hesitated.
 
-She frowned. “Uh, honey, I, I don’t know what to say. I’m sorry that–” 
+Bradley chuckled, and Tav laughed.
 
-I cut her off. “You should just tell me. I want to know how she died.”
+“Oh come on,” Tav said. “I'm not gonna rip your arm off.”
 
-She pursed her lips and brought a hand to her face, preceding a shaky inhale. She turned off the stove and faced me, her eyes hidden. I saw a tear roll down past her hand, curving to her chin and falling.
+“I just...” I started.
 
-“Sarah, uh, well,” she said, dropping nearly to a whisper. “They found her… without her brain.” That last word made her voice crack and made me freeze in place. 
+“Not all of us are running around in straitjackets, you know,” he added casually. “This isn’t Arkham.”
 
-“What? What do you mean? Without a brain?” My eyes widened as I spoke, my voice rising.
+Bradley snorted.
 
-“Honey, please. We shouldn’t talk about this,” she said, her voice shaky and nervous.
+“Right,” I muttered, shaking his hand. His grip was firm.
 
-I turned around and left the room before I could say anything to make her more upset.
+When lunch came around, we entered the cafeteria.
 
-I spent most of the day locked up in my room, pacing around, refreshing my texts. The typing bubble appeared again and didn’t go away. I kept looking back at those coordinates. I was becoming obsessive.
+It looked more like a mini Michelin star restaurant than a hospital lunch hall. The kind of place that served a droplet of food in the middle of a huge plate.
 
-Then, at 6pm, something popped into the chat.
+Bradley sat with the patients. Not near them - *with* them at their table. I followed hesitantly and sat opposite him as the other patients filed in. 
 
-*WHERE ARE YOU ?*
+Tav slid into the seat next to him, and a few others joined their side of the table. Tav was now dressed in a sleek black Nike running top and joggers, like he'd just finished a morning workout.
 
-My grip tightened on my phone. My breathing intensified. I felt like I was going to have a panic attack. It was all just too much. I fell to the ground, embraced the warm carpet, and decided I needed to do something.
+“So," Bradley began, "what did you do before this, John?"
 
-That night, after my parents went to bed, I grabbed a flashlight with fresh batteries and a kitchen knife, shoving the latter into my backpack. I walked out the front door and was on my way.
+"Office job," I said. "Admin."
 
-That flashlight illuminated my surroundings far better than the phone had. Regardless, I was still terrified. Every little shadow or thing in my peripheral vision made me jump. I didn’t float above the pavement that night. When I exited the neighborhood and reached the main road, it hit me.
+"Ah the nine to five," said Tav nonchalantly, cutting into his steak. "Used to work in insurance, I get it."
 
-That smell. Rotten eggs. Sulfur. Acrid, yet smoky. 
+Just then, a young blonde woman sat beside me. She looked between me and Bradley curiously for a second, then a smile spread across her face as she turned to me.
 
-*But why here?*
+"Briony," she said, offering her hand. "You the new supervisor?"
 
-I wasn’t anywhere near the woods. I kept walking forwards slowly. I swiveled my flashlight around my body, a cone that would surely ward off anything that may harm me. As I walked, the smell grew stronger.
+I nodded, shaking it. She was wearing an Apple watch.
 
-The entrance to the park path was just past me around a bend in the road that obscured it. The smell had grown strong enough to make my eyes water again. As soon as I made the distance, I set the flashlight on the gravel, only a few meters ahead and to my right. 
+She glanced at Tav across the table and they grinned at each other briefly. I noticed it, but I didn't understand it.
 
-It stood right there in the open, blocking the entrance. Even through the tears in my eyes, I could make it out clearly enough to trigger a deep, primal fear in me.
+Then she turned back to me.
 
-It was paper thin, and standing at what must have been over nine feet tall. All of its skin was a bluish grey, and it had a balloon-like skull, with two bulging black eyes. Its long, slender fingers held Sarah’s phone.
+“Someone’s gotta replace him,” she added, looking towards Bradley. “He’s getting old.”
 
-I felt fire in my feet and I started to turn just as the flashlight flickered and went out. I ran under the flickering and dimming orange streetlights, hearing an ear-piercing high-pitched buzz. My phone vibrated violently. I swung my backpack over my shoulder and fumbled to pull the knife out. 
+Everyone laughed, and the conversation drifted to Bradley’s retirement plans. It felt far too normal - like lunch with coworkers, not mental patients.
 
-With no warning, something tightened around my left ankle and pulled me backwards. My body swung face-first towards the pavement, the knife flying from my grip. I landed hard, my nose cracking on the rough ground. I looked up and saw the knife in the distance, bubbling and melting on the road.  
+The tour with Bradley continued after lunch.
 
-I screamed and I felt warm liquid trickle down my face as it dragged me hastily. It was taking me towards the playground. No matter how hard I kicked, it wouldn’t let go. 
+Doctors in white coats nodded at us politely.
 
-My fingers dug into the pavement and I attempted to slow my kidnapping. My nails cracked and bled, bits of dust and sharp fragments of rocks jutting into my fingertips. I only stopped when the nails started to pop out one by one, leaving my fingers sticky and soft with dark blood. I let go of the ground and cried out in pain.
+I wasn't even sure who was a patient or who was staff. There were no gowns, no medication carts, no restraints.
 
-My mind went numb and I don’t remember much else from the dragging. I only started to register in my brain what was happening when I was in a small clearing somewhere deep in the woods. 
+The common room had a fireplace and a huge plasma screen TV. Just people lounging around and chatting - it felt like a resort.
 
-I was forced to sit up and a blinding green light appeared overhead. Its eerie glow made the blood on my hands look black. My head was being held still by something. I felt a vibration and heard a loud whizzing sound behind my ears. My teeth were vibrating. I felt dizzy. I raised a hand and grasped onto its cold fingers, which were wrapped around the entire top of my head. 
+By the end of the day, I didn’t know what to think.
 
-I moved my hand to the back of my skull, and the vibrating stopped. I felt a deep horizontal gash right at the middle-back of my head. I only felt it for a second before another giant hand grabbed mine and forced it away. The vibrating began again. 
+Bradley handed me a folder and a small remote with a red button on it.
 
-*She had no brain.*
+“Schedules, protocols,” he said. “Any issues, press the button and staff will come running. Not that you'll need it.”
 
-I shrieked out in terror. My limbs started flailing out, trying anything to release myself from the creature. My eyes locked onto a large rock a few feet in front of me. I kicked it closer to my hand and I grabbed it, my knuckles white.
+Then he looked around the place and sighed.
 
-I flung it above my head and down onto the hand that held me in place with all the force I could possibly muster. 
+"Well, I'm out."
 
-The rock landed hard, forcing it to release me. I felt a sharp, bruising pain on the top of my head. I scrambled away desperately, before turning around and throwing the rock at its large head. The rock landed right on one of its eyes, and it emitted the same high-pitched buzzing sound as before. I stood up and ran.
+He reached into his pocket.
 
-I could see a faint orange glow beyond the tree line. I managed to reach the road before it could and I didn’t stop.
+Then he paused.
 
-I made it home that night.
+“Left my badge at home on my last day. Brilliant.”
 
-My parents took me to the hospital after that. 
+I shrugged and handed him mine.
 
-After a CT scan, 14 staples, lots of bandages, and a mountain of pain medication, I was set free. The police are running under the assumption that there’s a serial killer at large. 
+“Here,” I said.
 
-I didn’t show them the texts. 
+"Ah, thanks."
 
-As much as it seems stupid, I just couldn’t do it. I knew they would take away my phone. My last connection to *her*. I want it to last. I really, really do.
+Bradley swiped it on the door and handed it back to me. Then gave me a salute and left.
 
-I think it will last.
+Across the room, Tav and Briony were watching, amused. They probably just found it funny he'd forgotten his badge, I thought.
 
-Just as I was typing this, my phone buzzed. A new text from her.
+I headed to the locker room to grab my things.
 
-It was the coordinates to *my house.*
+The moment I stepped inside, the smell hit me immediately. Metallic and pungent.
 
+I gagged, covering my mouth.
+
+*What the hell was that?*
+
+The lockers looked like they were pushed out further than they were this morning. I stepped closer and looked behind them.
+
+And then I saw it.
+
+A body was wedged between the lockers and the wall.
+
+One arm twisted beneath him. Fingers stiff and curled.
+
+His dark blue uniform was soaked through. Blood was smeared across the metal - drag marks, like he’d been forced into the gap after it was over.
+
+I screamed and pushed the button.
+
+The alarm sounded and staff rushed in, crowding around the body.
+
+The director glanced down into the gap. Then he looked up at me slowly.
+
+"Who let you in this morning?" He asked quietly. Everyone was silent.
+
+“B-Bradley," I said.
+
+He pointed at the body.
+
+"*That* is Bradley."
+
+Laughter erupted behind me.
+
+I turned around.
+
+The patients were crying with laughter. Tav was covering his face, and Briony was almost in tears.
+
+The director took a tablet from security and started watching the footage.
+
+As he saw me handing the security badge to the man in the blue uniform, his expression darkened, then his face turned red.
+
+"That," he said slowly, "is not Bradley. That's Ed."
+
+My stomach dropped.
+
+"You just let a patient walk out."
+
+He looked up at me slowly, irate, his face twisted in fury.
+
+"You had one job!" he snapped. "One job, you stupid government buffoon!"
+
+The laughter behind me grew even louder.
+
+“That’s not-” I stammered, mortified. “I... I was just with-”
+
+"Did he even give you a uniform?" He yelled.
+
+My face burned as the realization dawned.
+
+"Come on director, he's just a baby." Briony said sweetly. "You're gonna make him cry."
+
+"Government wage slave," someone else snorted, "What did you expect?"
+
+The director turned to them.
+
+“You think this is funny? You want this place shut down?”
+
+“Relax. We just wanted to see if Ed could pull it off.” Tav smirked. “Didn’t think anyone would be *that* stupid. At least he gets you tax deductions.”
+
+I stood there shaking.
+
+Not only did no one seem to care that there was a dead body behind the lockers, but now I was being violently berated by my boss.
+
+Who I'd just met.
+
+On my first day at a new job.
+
+In front of an entire facility of mental patients, who were joining in...
+
+...And had all known that another patient was pretending to be a dead staff member for an entire day, right in front of me.
+
+The director waved a hand at security, who started pulling the body out.
+
+“Dispose of it,” the director muttered. “Call legal.”
+
+He shoved a uniform into my hands and glared at me like I was scum, then stormed out. The crowd dispersed, leaving me in mortified silence.
+
+Then the janitor walked in with a bucket and mop, and began cleaning like it was routine.
+
+"What the hell is wrong with this place..." I muttered.
+
+"You," he said nonchalantly.
+
+I blinked.
+
+"E-excuse me?"
+
+He leaned on his broom.
+
+“No one filled you in?” he said. “No one here’s *actually* insane. They just had lawyers good enough to dodge death row with an insanity plea.”
+
+My mouth went dry.
+
+"They *all* ended up here?" I asked shakily.
+
+He exhaled, like it like it was the most obvious thing in the world.
+
+“Money talks. Same circles, same connections. They bankroll this place, keep it quiet. *You’re* the only part they can’t get rid of - government requirement.”
+
+The door opened again and I flinched.
+
+Tav entered and smiled at the janitor, ignoring me completely.
+
+“Hey,” he said to the janitor. “How’s the wife?”
+
+“Good,” the janitor said, smiling.
+
+They shook hands, and Tav passed a folded bill into his.
+
+"Take her out somewhere nice."
+
+The janitor pocketed it and chuckled with a grateful nod of appreciation. Tav grabbed something from a locker and left. Didn't look at me once.
+
+So now...
+
+I’m the joke.
+
+In a facility full of people smart and connected enough to get away with the worst things imaginable.
+
+I don't know how I'm gonna go back there on Monday.
+
+God help [me](https://www.reddit.com/user/TwistedUrbanTales/).
