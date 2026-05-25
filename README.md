@@ -1,290 +1,225 @@
-# I work at a mental asylum. Everyone here is sane, happy, and perfectly healthy.
-I applied for the job on a whim.
+# The Rotation
+I moved into my apartment on Delmar Street in February, which is honestly a terrible time to move anywhere in this city.
 
-It was one of dozens of government listings, anything that paid better than what I was making - most of them I barely remembered applying for. So when I got the email back, I had to reread it twice.
+The building is a six-floor mid-rise from the seventies. The hallways always smell like carpet cleaner mixed with old cooking not bad, just... nothing good either.
 
-***Patient Supervisor - Private Mental Facility***  
-***Salary:*** higher than expected.
+Unit 4C. Two bedrooms. I use one as a home office. East-facing windows that get nice morning light I’m never awake to see.
 
-Almost *four times* higher.
+I work overnight shifts at a 24-hour pharmacy 10 p.m. to 6 a.m., four nights a week. I’d been on that schedule for about two years, so my body had already adapted in that way where it stops fighting and just gives up. I sleep from around 7 a.m. to 2 or 3 p.m. I grocery shop at night. I watch TV at times that don’t match when anything originally aired.
 
-I accepted before I could talk myself out of it.
+Most people in the building leave around 8 a.m. and come back at 6 p.m.
 
-A few days later, a letter arrived. No company branding - just an address, a time, and brief instructions.
+I’m the only one consistently home during the day.
 
-***Report to: Bradley (facility entrance)***  
-***Role: Patient Supervisor (handover)***
+That matters.
 
-I pulled into the parking lot for my first day yesterday.
 
-It was a grey Friday morning, and the sun was just starting to emerge, casting an orange glow over the large building.
+The first thing I noticed was the French press.
 
-From the outside, it was exactly what you’d expect - brick walls, tall fences, cameras, tight security. The kind of place you don’t accidentally wander into.
+I keep it on the left side of the kitchen counter, next to the toaster. Not intentionally  it’s just where I put it the first time and where it stayed.
 
-“John?”
+One morning in March, I came home from work, went to start the kettle, and saw it sitting on the right side of the toaster.
 
-A man in his late fifties stood there in a dark blue uniform.
+I stood there for a second, then moved it back.
 
-“I'm Bradley,” he said, shaking my hand. “You’re taking over from me."
+Didn’t think much of it. I live alone. I was tired. Easy explanation.
 
-He glanced up at the building and sighed.
 
-“Thirty years and I’m done. This time next week, I’ll be on a beach with the missus, cocktail in hand.”
+Three days later, I came home and my desk chair was facing the window.
 
-I chuckled as we walked inside.
+Normally, it’s pushed in under the desk, facing the monitor. Always.
 
-The moment I stepped through the glass doors, I stopped.
+But that morning it was pulled out and turned toward the window.
 
-The inside didn’t match the outside at all - polished floors, purple carpet, marble reception desk.
+I sat in it. Looked outside. Just the alley and the neighboring wall. Nothing.
 
-Quiet. And very expensive-looking.
+I told myself I probably left it like that.
 
-It looked more like a hotel than an asylum - no shouting or chaos to be seen anywhere.
 
-“Most patients are still asleep,” Bradley said, as if reading my thoughts. “You’ll see more later.”
+It happened again.
 
-I followed him down the hall.
+So when my friend Kat came over for dinner, I mentioned it.
 
-The metal doors at the end had been wedged open with a shoe. He pulled them open and they slid apart.
+She shrugged and said, “Put tape under the wheels. Then you’ll know.”
 
-“Your job’s simple,” he began. “You get assigned one patient a week. Follow them, observe, report anything concerning.”
+So I did. Three small strips of blue painter’s tape under the wheels.
 
-“Like what?”
+On April 9th, I came home and the chair was back at the window.
 
-He shrugged.
+One strip of tape was still under a wheel.
 
-“Honestly? Nothing ever really happens.”
+The other two were still stuck to the floor where I’d left them.
 
-I raised an eyebrow skeptically.
 
-Just then, a door opened and a young man stepped out in a bathrobe with a coffee in his hand.
+I took a picture.
 
-He couldn’t have been older than early thirties. He had dark hair, still damp like he’d just taken a shower. He looked confident and relaxed.
+Then I pushed the chair back and went to bed.
 
-He smiled when he spotted us.
 
-“Morning.”
+I didn’t call anyone.
 
-I leaned slightly toward Bradley. “Is he staff?”
+That probably sounds strange, but think about it: nothing was stolen. No signs of forced entry. No noise, no person, nothing actually there.
 
-Bradley shook his head. "Patient."
+Just… things slightly out of place.
 
-I stared.
+I told myself there had to be a logical explanation.
 
-The man approached, eyes flicking briefly to Bradley. For a split second, he looked confused.
+Loose chair mechanism. Memory gaps. Night shift fatigue.
 
-Then Bradley grinned.
+All reasonable.
 
-The man’s expression snapped back into place, as if a switch was flipped. He smiled again and held out his hand.
 
-“Tavian,” he said. “Call me Tav. Good to meet you.”
+On April 14th, I came home at 6:20 a.m. and went to the kitchen.
 
-I hesitated.
+The French press was on the right side again.
 
-Bradley chuckled, and Tav laughed.
+That’s when I noticed the cabinet above the toaster was slightly open.
 
-“Oh come on,” Tav said. “I'm not gonna rip your arm off.”
+Inside were my mugs.
 
-“I just...” I started.
+All facing the same way  handles to the right.
 
-“Not all of us are running around in straitjackets, you know,” he added casually. “This isn’t Arkham.”
+Except the front one.
 
-Bradley snorted.
+It was turned outward.
 
-“Right,” I muttered, shaking his hand. His grip was firm.
+Like someone had just set it down facing me.
 
-When lunch came around, we entered the cafeteria.
 
-It looked more like a mini Michelin star restaurant than a hospital lunch hall. The kind of place that served a droplet of food in the middle of a huge plate.
+I checked everything.
 
-Bradley sat with the patients. Not near them - *with* them at their table. I followed hesitantly and sat opposite him as the other patients filed in. 
+Windows locked. Doors locked. Closet, bathroom, office , empty.
 
-Tav slid into the seat next to him, and a few others joined their side of the table. Tav was now dressed in a sleek black Nike running top and joggers, like he'd just finished a morning workout.
+Nothing wrong.
 
-“So," Bradley began, "what did you do before this, John?"
+Except someone had clearly been inside.
 
-"Office job," I said. "Admin."
 
-"Ah the nine to five," said Tav nonchalantly, cutting into his steak. "Used to work in insurance, I get it."
+I called building management.
 
-Just then, a young blonde woman sat beside me. She looked between me and Bradley curiously for a second, then a smile spread across her face as she turned to me.
+They said they’d check if maintenance had entered the unit.
 
-"Briony," she said, offering her hand. "You the new supervisor?"
+They never followed up.
 
-I nodded, shaking it. She was wearing an Apple watch.
 
-She glanced at Tav across the table and they grinned at each other briefly. I noticed it, but I didn't understand it.
+I installed a second lock myself.
 
-Then she turned back to me.
+And I started taking photos before leaving for work.
 
-“Someone’s gotta replace him,” she added, looking towards Bradley. “He’s getting old.”
+Just quick ones  kitchen, desk, chair.
 
-Everyone laughed, and the conversation drifted to Bradley’s retirement plans. It felt far too normal - like lunch with coworkers, not mental patients.
+A record.
 
-The tour with Bradley continued after lunch.
 
-Doctors in white coats nodded at us politely.
+Nothing happened for almost three weeks.
 
-I wasn't even sure who was a patient or who was staff. There were no gowns, no medication carts, no restraints.
+Then on May 3rd, the chair was at the window again.
 
-The common room had a fireplace and a huge plasma screen TV. Just people lounging around and chatting - it felt like a resort.
 
-By the end of the day, I didn’t know what to think.
+I checked my photos from the night before.
 
-Bradley handed me a folder and a small remote with a red button on it.
+Everything was normal.
 
-“Schedules, protocols,” he said. “Any issues, press the button and staff will come running. Not that you'll need it.”
+Then I scrolled further back.
 
-Then he looked around the place and sighed.
+I found a random photo from early April  just a picture of a plant by the window.
 
-"Well, I'm out."
+In the background, slightly out of focus, was my desk.
 
-He reached into his pocket.
+And on it was my teal coffee mug.
 
-Then he paused.
+Facing outward.
 
-“Left my badge at home on my last day. Brilliant.”
+I’ve never used that mug at my desk.
 
-I shrugged and handed him mine.
 
-“Here,” I said.
 
-"Ah, thanks."
+That photo was taken weeks before I noticed anything.
 
-Bradley swiped it on the door and handed it back to me. Then gave me a salute and left.
 
-Across the room, Tav and Briony were watching, amused. They probably just found it funny he'd forgotten his badge, I thought.
 
-I headed to the locker room to grab my things.
+I called the police.
 
-The moment I stepped inside, the smell hit me immediately. Metallic and pungent.
+They checked the apartment. No forced entry.
 
-I gagged, covering my mouth.
+Told me to keep documenting.
 
-*What the hell was that?*
 
-The lockers looked like they were pushed out further than they were this morning. I stepped closer and looked behind them.
 
-And then I saw it.
+Management later confirmed no one had accessed my unit.
 
-A body was wedged between the lockers and the wall.
 
-One arm twisted beneath him. Fingers stiff and curled.
+The new lock has held.
 
-His dark blue uniform was soaked through. Blood was smeared across the metal - drag marks, like he’d been forced into the gap after it was over.
+Nothing’s moved since.
 
-I screamed and pushed the button.
+That was six weeks ago.
 
-The alarm sounded and staff rushed in, crowding around the body.
 
-The director glanced down into the gap. Then he looked up at me slowly.
+I still live here.
 
-"Who let you in this morning?" He asked quietly. Everyone was silent.
+I don’t know why. Maybe waiting for something clearer. Something I can actually explain to someone else without sounding insane.
 
-“B-Bradley," I said.
+In the meantime, I keep taking photos.
 
-He pointed at the body.
 
-"*That* is Bradley."
+Recently, I started going back through older ones.
 
-Laughter erupted behind me.
+From when I first moved in.
 
-I turned around.
 
-The patients were crying with laughter. Tav was covering his face, and Briony was almost in tears.
+There’s one from February 16th moving day.
 
-The director took a tablet from security and started watching the footage.
+I’m standing in the empty living room, smiling like an idiot.
 
-As he saw me handing the security badge to the man in the blue uniform, his expression darkened, then his face turned red.
+Behind me, the door to the second bedroom is open.
 
-"That," he said slowly, "is not Bradley. That's Ed."
+Inside, on the floor, there’s a coffee mug.
 
-My stomach dropped.
+Just sitting there. Upright.
 
-"You just let a patient walk out."
+In an empty room I hadn’t even used yet.
 
-He looked up at me slowly, irate, his face twisted in fury.
 
-"You had one job!" he snapped. "One job, you stupid government buffoon!"
+I didn’t own that mug at the time.
 
-The laughter behind me grew even louder.
+I bought mine weeks later.
 
-“That’s not-” I stammered, mortified. “I... I was just with-”
+I’ve looked at that photo dozens of times.
 
-"Did he even give you a uniform?" He yelled.
+It’s not a shadow.
 
-My face burned as the realization dawned.
+It’s not packing material.
 
-"Come on director, he's just a baby." Briony said sweetly. "You're gonna make him cry."
+It’s a mug.
 
-"Government wage slave," someone else snorted, "What did you expect?"
+Someone was in that apartment before I was.
 
-The director turned to them.
 
-“You think this is funny? You want this place shut down?”
+I lock both locks now. Every time.
 
-“Relax. We just wanted to see if Ed could pull it off.” Tav smirked. “Didn’t think anyone would be *that* stupid. At least he gets you tax deductions.”
+Even if I’m just stepping into the hall.
 
-I stood there shaking.
+I don’t know what that actually protects me from.
 
-Not only did no one seem to care that there was a dead body behind the lockers, but now I was being violently berated by my boss.
 
-Who I'd just met.
+This morning, before leaving for work, I checked everything.
 
-On my first day at a new job.
+Chair in place.
 
-In front of an entire facility of mental patients, who were joining in...
+Cabinet closed.
 
-...And had all known that another patient was pretending to be a dead staff member for an entire day, right in front of me.
+French press on the left side of the toaster.
 
-The director waved a hand at security, who started pulling the body out.
 
-“Dispose of it,” the director muttered. “Call legal.”
+Sometimes when I get home, I don’t check the photos right away.
 
-He shoved a uniform into my hands and glared at me like I was scum, then stormed out. The crowd dispersed, leaving me in mortified silence.
+I just make coffee first.
 
-Then the janitor walked in with a bucket and mop, and began cleaning like it was routine.
+Stand there for a minute.
 
-"What the hell is wrong with this place..." I muttered.
+Look at the counter.
 
-"You," he said nonchalantly.
+And lately, I’ve started realizing something.
 
-I blinked.
-
-"E-excuse me?"
-
-He leaned on his broom.
-
-“No one filled you in?” he said. “No one here’s *actually* insane. They just had lawyers good enough to dodge death row with an insanity plea.”
-
-My mouth went dry.
-
-"They *all* ended up here?" I asked shakily.
-
-He exhaled, like it like it was the most obvious thing in the world.
-
-“Money talks. Same circles, same connections. They bankroll this place, keep it quiet. *You’re* the only part they can’t get rid of - government requirement.”
-
-The door opened again and I flinched.
-
-Tav entered and smiled at the janitor, ignoring me completely.
-
-“Hey,” he said to the janitor. “How’s the wife?”
-
-“Good,” the janitor said, smiling.
-
-They shook hands, and Tav passed a folded bill into his.
-
-"Take her out somewhere nice."
-
-The janitor pocketed it and chuckled with a grateful nod of appreciation. Tav grabbed something from a locker and left. Didn't look at me once.
-
-So now...
-
-I’m the joke.
-
-In a facility full of people smart and connected enough to get away with the worst things imaginable.
-
-I don't know how I'm gonna go back there on Monday.
-
-God help [me](https://www.reddit.com/user/TwistedUrbanTales/).
+I can’t always remember leaving the French press there.
