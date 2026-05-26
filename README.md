@@ -1,225 +1,72 @@
-# The Rotation
-I moved into my apartment on Delmar Street in February, which is honestly a terrible time to move anywhere in this city.
+# I work long hours in a factory and am lucky to feel the sunshine,
+I have become moon-tan pale, and therefore chose outdoor hobbies for my free time and began painting landscapes in the wild.
 
-The building is a six-floor mid-rise from the seventies. The hallways always smell like carpet cleaner mixed with old cooking not bad, just... nothing good either.
+While scouting the wetlands, the shame of being summoned across the factory floor by younger men who outrank me panged in my mind. Standing with their hands in their pockets, they spoke to one another while I disengaged from production and walked the length of the line toward them as a tired dog comes when called. I thrust it away and renewed my focus on my hobby with effort.
 
-Unit 4C. Two bedrooms. I use one as a home office. East-facing windows that get nice morning light I’m never awake to see.
+Visiting a feed and tackle where they served country gravy on biscuits and sold watery beer by the cube, I shrank at the debate that followed my inquiry. A debate about locations that would meet my object offered a handful of leads.
 
-I work overnight shifts at a 24-hour pharmacy 10 p.m. to 6 a.m., four nights a week. I’d been on that schedule for about two years, so my body had already adapted in that way where it stops fighting and just gives up. I sleep from around 7 a.m. to 2 or 3 p.m. I grocery shop at night. I watch TV at times that don’t match when anything originally aired.
+They told me of a basin where clean mountain water overflows into the marsh and of a pond above a waterfall that is shockingly deep and eerily still. The Wapato chapel overlooks it. The zealots, they said, are buying the surrounding land. The patrons exchanged knowing looks and urged me to bring wapato for the old man. I bought a bundle of the vegetable that is endemic to these parts only because it made leaving easier.
 
-Most people in the building leave around 8 a.m. and come back at 6 p.m.
+Grown in the brackish wetlands, the starchy tuber is prized by the old one, they said. He was successful in life and became trapped in the crystal drinking water due to his corpulence. Never again will he enter the passage that communicates with the swamp.
 
-I’m the only one consistently home during the day.
+Following the topography along gravel roads, I found the waterfall spoken of. There, sterling and gold water dispensed into the fetid swamp that swallowed the foothills. The desolate landscape hosted houseboats and stilted cabins hidden among its willows.
 
-That matters.
+Cresting the most conspicuous hill, I came upon a trapezoidal clearing among Douglas fir. Here I found safe parking and sweeping views. On one side of this hilltop lay an expanse of muddy willows seaward. The other held forested hills forming the horizon, and a downward incline to an azure pond lay before me. At the end of this road the pioneer-era Wapato chapel stood partially visible, glaring white in the distance.
 
+I left my car where backpackers conferred over itineraries and discussed bear postings. I shouldered my gear and moved downhill toward the water.
 
-The first thing I noticed was the French press.
+The clearing is bowl-shaped, logged three to five years ago by my estimate. Paths proceed without apparent reason around haphazard replanting. Traversing it, it is clear how easily a hiker could turn an ankle or slide beneath dangerous debris piles.
 
-I keep it on the left side of the kitchen counter, next to the toaster. Not intentionally  it’s just where I put it the first time and where it stayed.
+My place was chosen on the lakeside where the pond reflected a cotton-white overcast sky, split neatly at its widest measure by a forest of perpetual twilight.
 
-One morning in March, I came home from work, went to start the kettle, and saw it sitting on the right side of the toaster.
+Checking the time, I noted how much more daylight I would have and unpacked.
 
-I stood there for a second, then moved it back.
+During these considerations I saw that the double doors of the distant chapel were no longer white but black, standing open. It was Saturday. I recalled being told the congregation were sabbath keepers.
 
-Didn’t think much of it. I live alone. I was tired. Easy explanation.
+In town I heard they worship at the water and perform singular baptisms. Dressed in white, eyes closed, they speak in tongues and chant hymns like dirges.
 
+The lone angler who had shared the bank reeled in his line when the ringing of church bells stole our peace. Gathering his things, he walked toward the road. As expected, he stopped beside me. He asked in few concerned words if I had wapato, to which I nodded. We watched the water in silence.
 
-Three days later, I came home and my desk chair was facing the window.
+In the mirror stillness a disturbance swelled. Breaking the surface tension before us, a razor-plated back of a tremendous creature presented itself, moving with the deliberation of an old machine.
 
-Normally, it’s pushed in under the desk, facing the monitor. Always.
+The fisherman whispered about the old man being aware it was his sabbath. He said it was the largest sturgeon anyone had seen and at least three hundred years old.
 
-But that morning it was pulled out and turned toward the window.
+When I turned to answer him, I was alone.
 
-I sat in it. Looked outside. Just the alley and the neighboring wall. Nothing.
+People appeared on the hilltop that held the church. Dressed as white as the building that had poured them forth, they walked two and three abreast down the clear-cut incline. They did not follow the wandering paths but came directly, stepping over debris without hesitation as if the ground had been instructed.
 
-I told myself I probably left it like that.
+Each carried a small bundle.
 
+They arranged themselves along the margin opposite me. Interrupted, I watched as they stood motionless, regarding me under white hoods.
 
-It happened again.
+Rising slowly, I walked to the water’s edge. I laid my wet and soil-covered bundle of wapato into the pond and made a deliberate sign of the cross for their benefit.
 
-So when my friend Kat came over for dinner, I mentioned it.
+My offering floated toward deeper water while they continued their worship and ignored me.
 
-She shrugged and said, “Put tape under the wheels. Then you’ll know.”
+I returned to my easel. As I considered whether to include the white-robed congregation in the composition, the floating bundle was snatched from the surface and taken into the depths with a splash, leaving only a widening ring of ripples.
 
-So I did. Three small strips of blue painter’s tape under the wheels.
+I felt an unaccountable elation build inside.
 
-On April 9th, I came home and the chair was back at the window.
+Brush met canvas and the forms resolved with a precision beyond my ability. The pond, the forest, the falling water, the white figures at the margin arranged themselves into a perfect composition that flowed forth, creating itself without my input.
 
-One strip of tape was still under a wheel.
+The sun broke through the cloud cover. Golden light struck the water. The congregation moved in a fever, immersing youths and speaking in rapid tongues. The great sturgeon breached once, a slow arch of armored antiquity.
 
-The other two were still stuck to the floor where I’d left them.
+Through tears I completed the portrait.
 
+Reckless, I approached them and offered my contact information and a donation to their work. I promised to return the following Saturday.
 
-I took a picture.
+Running up the hill with my gear, I immediately drove home at reckless speed to my wife.
 
-Then I pushed the chair back and went to bed.
+She did not share my excitement. There was only concern in her face and a mounting suspicion that I had lost my mind. For the first time that day I was cognizant of how peculiar the events had been. I smelled of a damp swamp.
 
+The canvas was placed for unveiling and I stood behind it. As the cloth fell, I watched her expression change to confusion. She looked at me as one looks at an insect.
 
-I didn’t call anyone.
+Moving to indicate the pond, I saw only degenerated smears. Thick paint cracked and was wasted like mangled infection. The image appeared to depict a cosmic weeping.
 
-That probably sounds strange, but think about it: nothing was stolen. No signs of forced entry. No noise, no person, nothing actually there.
+Within the chaos of color, a form resolved, the razor forehead and armored face of an ancient sturgeon.
 
-Just… things slightly out of place.
+Its eyes held us. They did not release.
 
-I told myself there had to be a logical explanation.
+We were still staring when the strange-looking parishioners arrived hoodless and parked their battered church van in my driveway.
 
-Loose chair mechanism. Memory gaps. Night shift fatigue.
-
-All reasonable.
-
-
-On April 14th, I came home at 6:20 a.m. and went to the kitchen.
-
-The French press was on the right side again.
-
-That’s when I noticed the cabinet above the toaster was slightly open.
-
-Inside were my mugs.
-
-All facing the same way  handles to the right.
-
-Except the front one.
-
-It was turned outward.
-
-Like someone had just set it down facing me.
-
-
-I checked everything.
-
-Windows locked. Doors locked. Closet, bathroom, office , empty.
-
-Nothing wrong.
-
-Except someone had clearly been inside.
-
-
-I called building management.
-
-They said they’d check if maintenance had entered the unit.
-
-They never followed up.
-
-
-I installed a second lock myself.
-
-And I started taking photos before leaving for work.
-
-Just quick ones  kitchen, desk, chair.
-
-A record.
-
-
-Nothing happened for almost three weeks.
-
-Then on May 3rd, the chair was at the window again.
-
-
-I checked my photos from the night before.
-
-Everything was normal.
-
-Then I scrolled further back.
-
-I found a random photo from early April  just a picture of a plant by the window.
-
-In the background, slightly out of focus, was my desk.
-
-And on it was my teal coffee mug.
-
-Facing outward.
-
-I’ve never used that mug at my desk.
-
-
-
-That photo was taken weeks before I noticed anything.
-
-
-
-I called the police.
-
-They checked the apartment. No forced entry.
-
-Told me to keep documenting.
-
-
-
-Management later confirmed no one had accessed my unit.
-
-
-The new lock has held.
-
-Nothing’s moved since.
-
-That was six weeks ago.
-
-
-I still live here.
-
-I don’t know why. Maybe waiting for something clearer. Something I can actually explain to someone else without sounding insane.
-
-In the meantime, I keep taking photos.
-
-
-Recently, I started going back through older ones.
-
-From when I first moved in.
-
-
-There’s one from February 16th moving day.
-
-I’m standing in the empty living room, smiling like an idiot.
-
-Behind me, the door to the second bedroom is open.
-
-Inside, on the floor, there’s a coffee mug.
-
-Just sitting there. Upright.
-
-In an empty room I hadn’t even used yet.
-
-
-I didn’t own that mug at the time.
-
-I bought mine weeks later.
-
-I’ve looked at that photo dozens of times.
-
-It’s not a shadow.
-
-It’s not packing material.
-
-It’s a mug.
-
-Someone was in that apartment before I was.
-
-
-I lock both locks now. Every time.
-
-Even if I’m just stepping into the hall.
-
-I don’t know what that actually protects me from.
-
-
-This morning, before leaving for work, I checked everything.
-
-Chair in place.
-
-Cabinet closed.
-
-French press on the left side of the toaster.
-
-
-Sometimes when I get home, I don’t check the photos right away.
-
-I just make coffee first.
-
-Stand there for a minute.
-
-Look at the counter.
-
-And lately, I’ve started realizing something.
-
-I can’t always remember leaving the French press there.
+They did not knock.
