@@ -1,80 +1,71 @@
-# The Night We Met
-My legs gave out. I fell against the hospital wall. I slowly slid down to the floor. I just laid there. I knew people were looking but I didn’t care. My Bella. My sweet, beautiful, smart Bella. 
+# Blue Ball
+In theory, digesting my thoughts into this passage could be one of the worst decisions I make. Though if I don’t digest my thoughts awake, I fear it will, one day, happen while I am asleep. I will keep my writing short for my own sake.
 
-The doctor’s voice rang in my head.
+I haven’t had an easy life. Assuming my feelings and memories aren’t lying to me, I have survived a large amount of family trauma. 
 
- “Bella…she’s gone.”
+This is not what my story is about, or at least not entirely.
 
-She’s gone. She’s gone. She’s gone. She’s gone. My Bella. My Bella is gone. I let out a sob. 
+Due to said trauma, I have very few actively recallable memories from before the age of 11 or so. The memories I recall are not sequential, and I can only gauge a stretch of years the memory could be from. All except for the first memory I can remember in my life. This memory comes from a dream. A short and vivid dream that I believe is my first dream. 
 
-I knew I would forever be haunted by the memory of her. I remembered all the beautiful moments we shared together. I remembered the night we met. It was a party I never wanted to be at. Loud. Crowded. Suffocating. I had slipped away into my friend’s office to breathe, and there she was, already hiding, like me. We weren’t talkers, not usually. But somehow, we did. We clicked. 
+The dream begins from my point of view, scooting down the basement stairs in my parents’ house. I was already partially down the stairs at the start of the dream. I distinctly remember the darkness of the staircase and the feeling of long carpet strands brushing against my legs as I descended. I reached the bottom of the stairs and now stood in my finished basement. I saw light coming from the bend around the staircase. My vision started to pan around the wall to the other side, as if I had become disembodied. A basement window high up in the ceiling is shining a patch of carpet in an open area of the basement, where my vision was locked. My gaze followed the dust particles flowing until I noticed something in the middle of the light. It was small, smaller than me, but I couldn’t make out what it was. My vision moved just inches closer to the silhouette before I could make out what it was. 
 
-I knew from the moment my eyes locked with hers that she was the love of my life. I wish I could go back to that moment. I wish I could go back to the night we met.
+A dark blue hairy ball that looked like it was covered in actual long hair or fur that was dyed blue. It had two oval eyes that were sunk into its sockets, staring and unblinking. The hair made the eyes look angry. A purple flat nose in the middle of its face begins to scrunch while its pupils start shaking. I want to say that it has a mouth, but if I try to imagine what the mouth looks like on its own I can’t imagine it. In the dream however, I didn’t have enough time to understand what I was looking at. I stand frozen in fear exchanging stares with the blue ball. Suddenly, my vision was instantly and completely obscured by blue ball’s face and the most horrifically painful and terrifying feelings came over me. It’s hard to explain what this felt like, but if I were to give it a shot, my senses were overwhelmed. My body became full of intense pins and needles while an incredibly loud unthinkable sound petrifies me. I had to experience this while seeing nothing but the face of blue ball. 
 
-“I think I can help with that.” 
+That’s the last thing I remember from the dream. I don’t remember what happened when I woke up. This wasn’t the last time I encountered blue ball. I would occasionally have dreams that contained blue ball. Any time blue ball was encountered, even if I was able to get away, the dreams would end the same way. The only difference being the torture I would have to endure started to feel longer each time this happened. 
 
-I looked up. A tall, pale man with slick black hair in a sleek black suit stood before me. I had thought I was only thinking my wish. Had I really said it aloud?
+When I was old enough to talk, I remember shakily telling my parents about my blue ball dreams. My mother, with a slight frown on her face, looked at my father for a moment before turning back and opening her mouth to speak. 
 
-The man held out a stopwatch to me. If you really wish to see Bella again, this can help you. 
+“We threw away blue ball. When you used to misbehave we would bring out blue ball and shake it in front of your face.” She said smoothly and calmly. “We probably shouldn’t have done that. That wasn’t something parents should do. It’s okay. If we still had blue ball now a-days, you would think it was hilarious.”
 
-*How could he know this?* 
+I was too young to understand how vile her words were. I would continue to have nightmares of blue ball until I reached puberty. The dreams faded and so did my memories of blue ball. That was, until one night before my eighth-grade track meet. 
 
-I thought incredulously. I closed my eyes tight. I must be hallucinating. When I opened them, he was gone, but on the ground next to me was the pocket watch with a note. 
+My mother and I were watching muppets on television before bed. Something about the way the muppets looked must have triggered something in my mother, because she brought up blue ball suddenly. I don’t even remember what she said, but it amounted to just reminding me how ‘funny’ it was. She sent me to bed with melatonin that night so I could get a good enough sleep for my meet. What a fucking mistake.
 
-*This watch can take you to one moment in your past. Set it by turning the dial while concentrating on the memory. Once set, it cannot be changed. To travel, press the button on the side. To return, press again.*
+I entered a dream that placed me in the centre of a wooden house. The floor and walls were made of a dark brown wood with the boards stretching all the way to each wall in the room. The dark room was cluttered with random objects that I didn’t have the ability to parse. There were hallways to my left and right. I picked one of them randomly and crept down the hall, wood whining beneath my feet. The hallway outlet led to another room, similar to the initial one, but not the same. I wandered the vacant house like this for what felt like a whole night of rest. The house was very obviously non-Euclidean and sprawling over a distance far larger than a house. 
 
-*BEWARE: Once—*
+Eventually, I came to a room that appeared to have an endless pit in the centre with a wooden plank laid across it like a makeshift bridge. The longer I was in the room the larger the hole seemed to be. This continued until the hole reached wall-to-wall. The only way across was now the plank. The plank was nigh the size of my foot. I approached the plank and stared at it contemplating the trek across. I rested my left foot on the plank and looked straight into the abyss, feeling pressure in my head as I lifted my other leg. Shaking, I aimed my raised foot over the spot I wanted to stand. I took another look into the hole, and the hole starts to get bigger again, or so it seems. 
 
-I didn’t read the rest. I didn’t need to.
+No longer feeling my body, I realise the hole isn’t actually getting bigger, my vision is panning down into the hole. I try to jump or fly or swim or open a pause menu to exit the situation. I can do nothing but watch as any light slowly dissipates as I’m lowered into the hole. An unknowable amount of time passes where I could see nothing but darkness and visual snow. I began to make out a shape that was approaching me. As I got closer my vision panning began to speed up. Before I knew it, I was standing on the shape I saw. More floorboards in a perfect square. 
 
-I only needed Bella.
+There were no walls here. Past the borders of the floor was a pure void. I was able to see this floor as if it were illuminated under normal light. There was a deafening silence in this place. I waved my hand off the edge of the floor. It was indeed more endless abyss. I retracted my hand and had my vision drawn toward two wicked eyes far down in the dark. I recognised those eyes instantly and I began to jump as hard as I could to leave this place. I began flying upward, repeating the motion of jumping. I quickly looked down and could no longer see the square floor, but I could still see the eyes. I began panicking and flailed upward as hard as I could. I could see the initial pit I jumped down as I reached out my hand. My ascent slows as I get closer and within an arm's length of reach, I’m unable to rise any higher. The opening began rushing away from me as I began to fall toward the eyes as they got closer and closer and closer and then I couldn’t see or feel anything. My vision was instantly obscured by blue ball as all of my senses became electrified with horror and pain. An endless rising discomfort filled my body and I could feel myself breaking from the stimuli. I was stuck staring at blue ball unable to escape this torture. The torture started to feel longer than the whole dream up until this point. In fact, I do not know how long this went on. It felt like many, many nights' worth of sleep. 
 
-I did as the note said, I anxiously turned the dial and thought of my sweet Bella at the moment we met at that party. The watch made a shuttering noise. Did it work? Only one way to find out.
+At some point, I was awake again. I was wrecked by this dream and I retained moderate body discomfort throughout the next couple of days. Time passed, and my memories of this dream, and blue ball, faded once more. 
 
-I clicked the button. A rush of wind screamed in my ears. I felt myself ripped apart and sewn back together.
+But today at work, I was stocking toys in the children’s aisle. I grabbed a box of squeeze toys. The kind that bubble up when you squish them. I pulled out a blue one with a goofy face and small stretchy tendrils on it. This triggered me to remember blue ball. I lie in bed now, terrified I will have another dream where blue ball will torture me for weeks. 
 
-Then— 
+My only hope is that talking about this can help me put it to rest, but I will only know tomorrow morning.
 
- 
+I haven’t had an easy life. Assuming my feelings and memories aren’t lying to me, I have survived a large amount of family trauma. 
 
-I opened my eyes and I was no longer on the hospital floor. I was in the doorway of my friend’s study. Staring right at Bella. Bella. 
+This is not what my story is about, or at least not entirely.
 
-“BELLA!” I yelped. I ran toward her and embraced her in a hug that squeezed all the air right out of her lungs. 
+Due to said trauma, I have very few actively recallable memories from before the age of 11 or so. The memories I recall are not sequential and I can only gauge a stretch of years the memory could be from. All except for the first memory I can remember in my life. This memory comes from a dream. A short and vivid dream that I believe is my first dream. 
 
-“What…LET GO OF ME” Bella yelled. She seemed scared. 
+The dream begins in my point of view, scooting down the basement stairs in my parent’s house. I was already partially down the stairs at the start of the dream. I distinctly remember the darkness of the staircase and the feeling of long carpet strands brushing against my legs as I descended. I reached the bottom of the stairs and now stood in my finished basement. I saw light coming from the bend around the staircase. My vision started to pan around the wall to the other side like I’ve become disembodied. A basement window high up in the ceiling is shining a patch of carpet in an open area of the basement my where vision was locked. My focus follows the dust particles flowing until I noticed something in the middle of the light. It was small, smaller than me, but I couldn’t make out what it was. My vision moves just inches closer to the silhouette before I could make out what it was. 
 
-“How do you know my name?!…” Bella looked at me with a scared expression I had never seen her look at me with before. It crushed my soul. 
+A dark blue hairy ball that looked like it was covered in actual long hair or fur that was dyed blue. It had two oval eyes that were sunk into their sockets, staring and unblinking. The hair made the eyes look angry. A purple flat nose in the middle of its face begins to scrunch while its pupils start shaking. I want to say that it has a mouth, but if I try to imagine what the mouth looks like on its own I can’t imagine it. In the dream however, I didn’t have enough time to understand what I was looking at. I stand frozen in fear exchanging stares with the blue ball. Suddenly, my vision is instantly and completely obscured by blue ball’s face and the most horrifically painful and terrifying feelings come over me. It’s hard to explain what this felt like, but if I were to give it a shot, my senses were overwhelmed.  
+My body became full of intense pins and needles while an incredibly loud unthinkable sound petrifies me. I had to experience this while seeing nothing but the face of blue ball. 
 
-“Bella…Bella it’s me.” I said in a way that was almost begging. 
+That’s the last thing I remember from the dream. I don’t remember what happened when I woke up. This wasn’t the last time I encountered blue ball. I would occasionally have dreams that contained blue ball. Any time blue ball was encountered, even if I was able to get away, the dreams would end the same way. The only difference being the torture I would have to endure started to feel longer each time this happened. 
 
-“I… I don’t know you” Bella said in that scared voice. She ran out.
+When I was old enough to talk, I remember shakily telling my parents about my blue ball dreams. My mother, with a slight frown on her face, looked at my father for a moment before turning back and opening her mouth to speak. 
 
-No. No no no no. I clicked the button on the stopwatch. Now I was back on the hospital floor. 
+“We threw away blue ball. When you used to misbehave we would bring out blue ball and shake it in front of your face.” She said smoothly and calmly. “We probably shouldn’t have done that. That wasn’t something parents should do. It’s okay. If we still had blue ball now a-days, you would think it was hilarious.”
 
-I looked over as a doctor: the same doctor that had told me about Bella, went up to a man I had never seen before with the same gloomy expression he had approached me with. 
+I was too young to understand how vile her words were. I would continue to have nightmares of blue ball until I reached puberty. The dreams faded and so did my memories of blue ball. That was, until one night before my eighth grade track meet. 
 
-“Bella…she’s gone,” said the doctor in the same sad voice he had used with me.
+My mother and I were watching muppets on television before bed. Something about the way the muppets looked must have triggered something in my mother, because she brought up blue ball suddenly. I don’t even remember what she said, but it amounted to just reminding me how ‘funny’ it was. She sent me to bed with melatonin that night so I could get a good enough sleep for my meet. What a fucking mistake.
 
-*What?* I watched as this new mystery man slumped into his chair and looked down at the floor. 
+I entered a dream that placed me in the centre of a wooden house. The floor and walls were made of a dark brown wood with the boards stretching all the way to each wall in the room. The dark room was cluttered with random objects that I didn’t have the ability to parse. A there were hallways to my left and right. I picked one of them randomly and crept down the hall, wood whining beneath my feet. The hallway outlet into another room, similar to the initial one, but not the same. I wandered the vacant house like this for what felt like a whole night of rest. The house was very obviously non-euclidean and sprawling over a distance far larger than a house. 
 
-I realized that by going back in time, I must have changed the outcome of our lives. In this timeline, I was no longer her husband, it was this other man.
+Eventually, I came to a room that appeared to have an endless pit in the centre with a wooden plank laid across it like a makeshift bridge. The longer I was in the room the larger the hole seemed to be. This continued until the hole reached wall to wall. The only way across was now the plank. The plank was nigh the size of my foot. I approached the plank and stared at it contemplating the trek across. I rested my left foot on the plank and looked straight into the abyss, feeling pressure in my head as I lifted my other leg. Shaking, I aimed my raised foot over the spot I wanted to stand. I took another look into the hole, and the hole starts to get bigger again, or so it seems. 
 
-No. No. No. I am her ONLY husband. She was meant to be with me. I picked up the note and read the message at the bottom I had ignored before.
+No longer feeling my body, I realise the hole isn’t actually getting bigger, my vision is panning down into the hole. I try to jump or fly or swim or open a pause menu to exit the situation. I can do nothing but watch any light there was slowly dissipate as I’m lowered into the hole. An unknowable amount of time passes where I could see nothing but darkness and visual snow. I began to make out a shape that was approaching me. As I got closer my vision panning began to speed up. Before I knew it,  I was standing on the shape I saw. More floorboards in a perfect square. 
 
-*BEWARE: Once you go back, the present will never be the same as this one. Please be cautious.*
+There were no walls here. Past the borders of the floor was pure void. I was able to see this floor like it was illuminated under normal light. There was a deafening silence in this place. I waved my hand off the edge of the floor. It was indeed more endless abyss. I retracted my hand and had my vision drawn toward two wicked eyes far down in the dark. I recognised those eyes instantly and I began to jump as hard as I could to leave this place. I began flying upward, repeating the motion of jumping. I quickly looked down and could no longer see the square floor, but I could still see the eyes. I began panicking and flailed upward as hard as I could. I could see the initial pit I jumped down as I reached out my hand. My ascent slows as I get closer and within an arms length of reach, I’m unable to rise any higher. The opening began rushing away from me as I began to fall toward the eyes as they got closer and closer and closer and then I couldn’t see or feel anything. My vision is instantly obscured by blue ball as all of my senses become electrified with horror and pain. An endless rising discomfort filled my body and I could feel myself breaking from the stimuli. I was stuck staring at blue ball unable to escape this torture. The torture started to feel longer than the whole dream up until this point. In fact, I do not know how long this went on. It felt like many, many nights worth of sleep. 
 
-No. I will not live in a world where Bella never even knew my name. I clicked the button on the watch again. I messed up again. The present still involved the doctor talking to this new man. I tried again, and again, and again. 
+At some point I was awake again. I was wrecked by this dream and I retained body moderate body discomfort throughout the next couple days. Time passed, and my memories of this dream, and blue ball, faded once more. 
 
-None of them satisfied me, for in none of them did Bella even know me. Finally, after about my 30th try I went back to the present and watched again as this man was told Bella was dead. And I watched again as he grieved not even a fraction as heavily as I had. This man had no idea what he had just lost.
+But today at work, I was stocking toys in the children’s aisle. I grabbed a box of squeeze toys. The kind that bubble up when you squish them. I pulled out a blue one with a goofy face and small stretchy tendrils on it. This triggered me to remember blue ball. I lay in bed now, terrified I will have another dream where blue ball will torture me for weeks. 
 
-I threw the watch against the wall in complete fury and desperation. It shattered. 
-
-No. No. No. No. No. I realized what I had just done. 
-
-I ruined my chances of ever even getting back to a world where I had ever stared Bella lovingly in the eyes. My Bella. My sweet Bella. She wasn’t even my Bella anymore. 
-
-Once again I fell to the floor in complete desperation and agony. I didn’t sob this time, I screamed. 
-
-In this world, I couldn’t even be haunted by her. I could only be haunted by a time where I could be haunted by her.
-
-The shadow of a tall, slim figure loomed behind me, and I heard a man chuckling softly.
+My only hope is that talking about this can help me put it to rest, but I will only know tomorrow morning.
