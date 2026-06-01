@@ -1,174 +1,104 @@
-# Trees keep falling in the forest behind my house - 2
-Hello again. I’m sorry for how I ended the [last post](https://www.reddit.com/r/nosleep/comments/1sunbmx/trees_keep_falling_in_the_forest_behind_my_house/). I got overwhelmed with everything going on, had to take a breather.
+# My friends and I found a goat in the woods, now my friends keep hearing things. Part 2
+[**Part 1**](https://www.reddit.com/r/nosleep/comments/1tc4yuq/my_friends_and_i_found_a_goat_in_the_woods_now_my/)
 
-Someone asked me why the trees were falling. Just as I responded then, I’ll say – I don’t know. I don’t even know if anything out of the ordinary happened there. I told you what I remember from way back when, but to be completely honest, I don’t know if I can trust my own memory. The last time I was in those woods I could’ve sworn something chased me.
+Hey guys, it’s a couple of days later and things have only gotten weirder. I think someone, or something, is in the woods. If you haven’t read my first post, basically I’m on a trip with my friends and we saw a goat in the woods. Ever since, everyone else has been hearing things while I have been getting a weird amount of static from my cochlear implants. For simplicity's sake, I’ll jump in where I left off.
 
-But I was 12.
+The rest of the day I uploaded my first post went well enough. We just talked, hung out, and individually doomscrolled on our phones. Well besides Avery who was asleep since I got home from my climb. However, after a while, we got bored. We went on a hike at exactly 5:05 on a trail that started around the lake. I record the time I start my hikes in my notes app to know how long I’ve been in the woods. I just recommended that we avoid the hill I climbed so the static wouldn’t mess with me again. Avery took some convincing, especially after his sleepless night. However I told him it should be fine as long as we get back before sunset because that’s when all the weird shit started. He agreed. Britt and Skyler apparently slept fine and said the noise eventually stopped, so they said yes pretty quick. They both thought they were just hearing things. I know this might seem stupid, but honestly I don’t think I had enough evidence to say that this wasn’t just us driving ourselves crazy. I thought it would be a good idea to go in the woods to just prove that it was fine. 
 
-It was the first time I ever got so drunk I could barely walk. There isn’t that much light in the forest in the first place, especially when it starts to get into late afternoon.
+Much like the walk to the house, the hike into the woods went very smoothly. It was pretty steep and some parts weren’t well maintained, but we are all very used to hiking so it wasn’t bad. Ashley, Britt and I were chatting about school, life, and shows we’re watching. From behind us we heard Avery and Skyler bickering as always. We were keeping track of time, we were laughing and having a good time. We didn’t see the goat, but we saw hoof tracks that didn’t look like deer prints that may be from a goat? None of us know trucks that well, especially pertaining hooves. We assumed it was just blindly wandering around based on how sporadic they were. I kinda felt bad for it. Avery said he heard rustling in the woods, but not the noise. No one can exactly describe the noise to me, so I can’t come up with any better descriptors. The rustling was probably just an animal, so we thought nothing of it.
 
-The point is, I could’ve been telling myself I saw something. And maybe I did. Maybe it was an animal, but shadows fell on it weird. Or there was nothing at all and my fuzzy mind just made it all up. Result of an overactive imagination of a kid who had nothing else to fall on. Who had to tell stories for people to listen. Sometimes I got so into the story that the lie seemed real even to me.
+We went further, going steadily up until we reached a relatively flat portion of the trail. I looked at my phone clock and saw that it was now 6:01 PM. Good pace. According to Avery, the part that we entered is around an hour hike until you reach the flat part of the trail. He hiked this path the day he first arrived and timed each “section” he came across. Supposedly, you just follow the level path for around 20 minutes and you find a slope downward. From there you are out of the woods in 45 minutes to an hour depending on how slippery it is. All together the hike, according to Avery’s three test hikes, is two and a half hours give or take. So we figured we could take a 10 minute break. We hydrated and got out our snacks, consisting of granola bars, nuts, and those tiny oranges, and sat down on the dirt below. I stretched, everyone else followed. Everyone seemed to benefit from the rest and we were all smiling. 
 
-Despite all my efforts to write it off as just that, my own mind tricking me, I just couldn’t shake off the feeling something was seriously off. I still can’t.
+“See Avery, this hike was a pretty good idea.” I said, smiling
 
-I walked away from that hill without touching anything. I backed away slowly and chose a longer route. The whole time I looked over my shoulder suddenly hyper aware of my surroundings.
+“You say that, but we still have time to get fucked to death by a forest demon or whatever.” 
 
-Nothing happened.
+“As if you wouldn’t like that, whore.” Skyler responded. 
 
-The whole way back home nothing happened. I didn’t see anyone, or anything, else. Didn’t hear anything else besides my own quickened breath.
+“You act like I was worried about myself. I was worried about my dear friends, I’ll have you know. I will express my concern no more.” He retorted.
 
-I also didn’t see any fallen trees. None. The whole way back there wasn’t one fallen tree. Not even at an angle, supported by another tree or just half broken but still standing.
+“God, why do you always make things about sex Avery, why can’t it just be disembowelment or something.” Britt said, I think she was annoyed. Avery seemed to think earnestly for a moment.  It looked like he was weighing two responses in his mind. 
 
-At first I thought, you know, my paranoia got the best of me, I was panicking for no reason. If nothing else happened I doubt I would make another post about it. I would just treat the first one as letting go of my trauma, putting thoughts to proverbial paper to get them out of my head.
+“I don’t know honestly. Didn’t realize that I did that so often if I’m being for real.” He said, weirdly earnestly.
 
-I woke up to the sound of tapping against glass. I didn’t even bother to open my eyes. Frequency and strength intensified. Wind hit the house along with wall of rain. Loose sheet metal banged against the firewood it was supposed to keep dry. Trees probably creaked, bent almost to the point of breaking, but the wind overcame all sound.
+“Its cool dude, I just don’t know if it was necessary t-” She began before she was interrupted by a loud but distant snap in the woods. Avery and Skyler jumped, Britt flinched, Ashley hugged me, and I sorta just stood still. 
 
-All but the raindrops hitting the glass.
+“Bitch, what the fuck was that!” Avery yelled, his eyes shifting back and forth.
 
-I rolled over, still half asleep. I dreamed of a great storm out on the sea. Wind blew into sails with such force it threaten to break the mast. Someone tried to yell orders, but sentences became just fragmented words, words broke into letters. Remnants of sounds were pushed back into captain’s throat. Clouds thick enough to cover the whole sky made it impossible to tell apart night and day. Waves crashed, sea foam splashed on my face, yet I remained dry. Mast creaked dangerously. All life ceased its movement. One heartbeat of hundreds men raised their prayer up towards heaven.
+“It was probably just an old tree being knocked over by a deer or something.” Britt said
 
-Mast snapped.
+“Yeah, she’s right. Snaps like that are pretty normal I think.” I said
 
-All hope was lost. Some sank to their knees with empty eyes, some wailed, cursed at the gods who let that happen.
+“Oh… yeah that makes sense. Sorry I’ve been really on edge recently.” Avery said. He was looking down, his eyes looking to his left. 
 
-Mast hanged by last threads and taut ropes. Rose and fell slowly, beating against the railing.
+“Bitch, stop being so mopey. Be annoying again. “ Skyler said. I think she was trying to come off as like bitchy, but her eyes seemed worried. It seemed to work though, Avery sat up straighter and smiles.
 
-I finally opened my eyes to the infinite darkness of stormy night. Heart beat wildly in my chest, like wild animal trashed to be let free, its rhythm exactly like this of a broken mast. Blankets pooled on my lap when I sat up. After a second thought I let my feet off the bed. Cold floor, another thing I had to get used to once again after such hot summer, reminded me where I was – in my room. I was safe.
+“Sorry, I was just taking a break from carrying the group's comedy on my back.” He said, though his eyes still looked almost sad. After this, he stood up and we all followed. 
 
-Still trembling hand grabbed phone from the nightstand and turned on flashlight. Dreaming of the sea made my mouth feel like a desert. I reached for the glass, my eyes fell on the small white bottle right next to it. Doctor said I should up the dose if I still woke up in the middle of the night. Little orange pill made its way into my system, chased by the cool mouthful of water. Like small ship trying to get away from the rough sea.
+When we began down the level path, it was initially very pleasant. It was 6:12 when we started down the path. After an hour or so almost entirely uphill, it was nice to give my calves a partial rest. We were actually pretty quiet, we all were just admiring nature. However, after a while I went up to Avery and said hi. Skyler and Britt were off just talking quietly, I don’t know about what. They seem to have a different dynamic than how I remember it.
 
-Heartbeat subsided. I was once again able to hear storm raging outside. Warm, soft blankets welcomed me back, hugged me tight like a long lost friend.
+“Hey Avery, how’s it actually going? I don’t think we’ve talked, like actually talked, one on one.” I said. He seemed a little startled by me speaking. 
 
-Why was mast still beating against the railing?
+“Oh, hey Wills… Yeah, I guess we haven’t. I’m sorry… I’ve just kinda felt off.” He said, looking down. He seemed his energetic self yesterday, but I did sort of feel like it was almost too much. I put my arm around his shoulder.
 
-I shot up in bed, scrambled to get to the window. Even eyes adjusted to the dark wouldn’t see anything. I tiptoed out of my room in search of a flashlight. I nearly jumped out of my skin when something shifted in the dark. I pointed my weak phone flashlight in kitchen’s direction. Two green points flashed back at me. Family dog stirred awake. She lifted her head just a little, saw it was me. Her tail wagged few times and she laid back down.
+“It’s fine Avery, don’t apologize. We all have off days.” I said.
 
-Flashlight was nowhere to be seen. Mast still flailed on the wind and deep in my heart I started to suspect what I would find. I risked being yelled at again and flipped the switch near terrace door. Halogen lamp buzzed, I know it did even if I couldn’t hear it, and lit up back of the property as if it was a literal sun. Black alder’s branches remained tangled with its sister’s, the last lifeline from crashing down to the ground. Safety net held it up, swayed back and forth, hitting the trunk with its remains.
+“It has been more of an off month, if I’m being real. I don’t know, ever since I got home. Clyde has been… I don’t know. I think living with him is a bad idea.” He said, looking away.
 
-I asked myself that question again – why are trees falling down? It glued itself to the inside of my skull, tendrils drilled between folds of my brain. I needed to know. Traumatic memories of broken child or…
+“What, has he been hurting you or something?” I said, I think there was anger in my voice. His eyes were widening.
 
-Or what?
+“Oh, nothing… nothing like that. He’s just been really weird. Like he just stares at me sometimes… From outside, from the other room. Like I get he finds me hot or something but… I don’t know. I’m starting to understand what Britt is saying, I think… I don’t know I’ve just… felt so fucking alone even though I’m living with someone.” He said, taking deep breaths between sentences. I saw his mouth scrunch and I knew what was happening. I hugged him as he began to sob. 
 
-I don’t know if I believe in supernatural things, beings and whatnot. Sometimes I wish I was able to. It would be easier to endure it all if I just believed there’s a light at the end of the tunnel. Heaven where I could finally feel happy. And free.
+“Shh, its fine Avery. Look, if you don’t feel safe here… Don’t stay. My parents would be more than happy to host you for however long you need until you can go back to New York… You’ll finish your nursing program and… and you can come to Philly and get a job while I go through med school. You never have to be alone Avery… I’m here for you.” I said. He just nodded against my shoulder, he couldn’t will himself to speak. As I finished I realized everyone else was listening and looking at us. 
 
-My grandma died the night of the storm. I want to believe she wasn’t suffering, I wouldn’t wish that on anyone. Still, I hadn’t shed a tear in her memory. I barely have those. I only remember screaming. Constant, shrill, demanding. If not that, then comments. Vile, poisonous, full of rotting hate, hidden beneath white tablecloths, silver crosses and eyes looking up towards the sky in hope of finding god.
+We all spent like five minutes comforting Avery and by the end he was able to stop crying and smile. We kept close to him as we began walking again. We all just talked about personal stuff that I obviously won’t disclose. We tried walking faster just to keep on schedule. By 7:02 we reached the next section of the trail. However, as we turned the corner we saw the weirdest thing. A hunting ladder stand that went about 20 feet up. Now this is pretty normal to see in the woods, but Avery said that it wasn’t there a week ago. Weird, but we walked by it. We had to keep pace, we could think about the implications later.  
 
-If there is one, I don’t think it would like my grandma.
+What we couldn’t ignore was about thirty minutes down the sloping section of the trail. In the middle of the path were two, large horns. The horns that were on the goat we saw the day before. They weren’t broken at any point. They were also a good distance away from any trees, so it's not like they broke off. They had a rounded bottom as if they were shedded like deer antlers. I knew this wasn’t normal, but I was still trying to rationalize. 
 
-None of this pushed me towards making another post, however this is just what made me a little preoccupied with different things. I tend to ramble aimlessly when I’m nervous, I hope you forgive me. I tried getting in contact with local forest service. Maybe what I saw, or what I didn’t see, during my fury-fueled walk was just an example of immaculate management. I searched for any number I could call or an address I would probably have to go to. Like a fool searching for north star on the cloud-covered sky, I didn’t find anything. No answers made themselves known even after three days of multiple searches, both on- and offline.
+“Can goats shed their horns?”  I asked.  
+   
+“No, horns are permanent, they don’t just fall off like that… What the fuck…” Skyler said, her eyes looked afraid, staring at the horns, scanning for some proof or normality. She bent down, trying to look closer, scanning for a sign of a break before she stood up and backed away.
 
-I hanged my head low as I typed out my question. I apologized for the inconvenience, thanked in advance. Not even hour later I got a reply. Short, barely few words. But those words were accompanied by a number.
+“What the fuck! Who the fuck did that! Is this a prank or something?” Skyler said.
 
-“Hello?” Voice on the other end sounded muffled, but I could taste surprise from where I stood.
+“No? How could any of us pull a prank, we don’t know the trail? What did you see?” I asked.
 
-“Hi. I’m professor Joanna’s former student.”
+“It was a bundle of… it was a bundle of hair, like a lot of it. It was long and black… I think its… I think its human hair… It’s too soft to be goat hair… I also saw some tracks, goat tracks I think, going towards the horns, none were going back in…” We all turned white as she said it. Avery looked the worst of all. He was shaking, visibly disturbed. It might have been because he has long black hair. 
 
-“Yes, she told me you’d call. With, how she said it, a weird question?” Suspicious eyes scanned me in my mind. Office worker of State Forests already weighed his options on how to tell me to get lost.
+“We got to leave.” Britt said, walking around the horns and going further down the trail. It was like something in her, some primal fear, was controlling her like a marionette. We all followed behind her, none of us touching the horns. We started slow, but we began running down the trail. We barely stopped for a second, our adrenaline propelling us forward until we were all panting at the exit of the forest. We ran to the lake house, locked the doors, and stood silently in shock for several minutes. We took some deep breaths.
 
-“I, uh… I don’t know how to phrase it really.”
+“What the fuck was that? Is… is someone in the woods?” Skyler said. Ashley was just staring, completely still, shell shocked. Britt was rubbing her fingers together as Skyler was hugging her like she was trying to keep her from running away. However weirdly enough, Avery seemed to be calming down as an idea was forming in his head.
 
-“As simple as you can would be preferable.”
+“That mother fucker…” Avery said quietly. 
 
-I cleared my throat. “I can’t seem to find anyone working section of the forest in my area and I would like to ask them a couple of questions.”
+“Who? Who are you talking about?” Britt said.  
+“Fucking Clyde… Dude always likes pranking me. He probably left the horns there knowing I would hike that trail. He has black hair and his friend owns the farm near here. Fuck off. He probably set it up before he left.” He said, seeming annoyed now rather than afraid. We accepted this explanation quickly. We just assumed he pranked us and the noise everyone heard was unrelated.  It worked.
 
-“Regarding?”
+“Oh my God! What a fucking dick! You have no choice now, you are staying at my parent’s house when the weekend is over.” I said, half seriously, half jokingly.
 
-“Oh, just general maintenance. How often they need to clear paths of fallen trees and such.” Heart nearly leaped out of my chest. No doubt in my mind I was being judged.
+“You might be right… I should just leave. If he tries anything I’ll call the cops.” He replied. 
 
-The silence stretched seemingly into infinity. Sounds of the office warped into mechanical hum of voices talking over clacking of cheap keyboards. On my end three chickens protested loudly as wild pigeons swooped in to get to their feed. Blackbirds hopped around stabbing the ground with their yellow beaks, making a use of those few precious seconds of chickens’ lack of attention.
+We all nodded and laughed about the whole situation. The moon rose and nothing really happened. Avery said he heard the noise, which everyone has since agreed sounded like a whistle, was just some weird bird. We were all just schizos making things up in our head and his weirdo predator boyfriend was trying to fuck with him. It all made sense.  So, celebrating the fact that we weren’t going to die, we naturally drank. A lot. Except Ashley, she doesn't drink so she just smoked some weed. 
 
-Finally he asked which forest I meant. I answered with the name of my village. Few more seconds and I had a name along with phone number. Before I could say thank you, line went dead.
+We danced, fucked around, and generally forgot about all of our problems. Ashley mostly just laughed at us while she ate chips on the couch. Britt and Skyler went to their room early, at like 11:30, they seemed pretty drunk, but not black out. Sober enough to know when to call it quits I guess? Avery, Ashley and I stayed up longer, giggling at a weird French film about Blue aliens who fuck with tiny people. I’m sure it's a deep film, at least Ashley said it was, but I don’t even really remember it.  I could barely read the subtitles. Avery passed out on the couch at like 1:30. 
 
-I despise talking through the phone. It fills me with deepest, shakiest type of anxiety. TV static filled every part of me as I contemplated how much I wanted the answers. Enough to call another person, a stranger, and risk being ridiculed?
+Ashley and I just started talking about random BS at this point. I was decently sober. I didn’t really get all that drunk to begin with, just enough to get that “I’m stupid” feeling. We lost track of time and suddenly I looked at my watch and it was 3:01 AM. I didn’t really have time to even realize how long I’ve been awake when Avery got up off the couch. 
 
-I remembered mounds of dirt, grass growing on top. Shadows darkened by time and my imagination. Back then, was there any fallen tree? Even one?
+“Hey Avery, sorry I didn’t mean to wake you.” I said. He didn’t respond. Instead he walked out of the living room and went towards the front door. I followed after him and grabbed him after he opened the front door. Ashley followed and was watching everything happen. I turned him around. His eyes were glassy and vacant. He was sleepwalking. I pulled him away and tried to have him walk towards his bed. I heard that’s what you’re supposed to do in a sleep medicine class I took as an elective. However, he seemed intent on walking out the door. So I had to wake him.
 
-Yes. I know there was. I sat on one the first time I ever went beyond the fork in the road. We sat on different one as I pulled out bottle of liquid fire out of my backpack few years later. Now, fourteen years after that, there was none. Not counting the fortress on that damned hill.
+“Avery! Avery, wake up!” I said loudly a few inches away from his face. He blinked a few times then jumped back. He was breathing heavily and looking around. That is pretty normal for a sleepwalker being woken up. I had no other option though, I couldn’t have him accidentally hurting himself. I remember he sleepwalked a couple times at sleepovers so I didn't really think much of it. He took some deep breaths and looked at me. He seemed to be still slightly drunk too. 
 
-“Hello?”
+“Wills? Fuck, was I sleepwalking? I haven’t done that since I was a little kid.” He said, his voice was slightly slurred and he looked disoriented. I led him to his bedroom and locked the door before going with Ashley to our room. We fell asleep pretty quickly. I fell asleep just after her because I was a little nervous about Avery. 
 
-Maybe there was an effort to clean out the forest. Maybe something else happened during those fourteen years that I wasn’t aware of. I just had to know.
+I ended up waking up at like 1:00 P.M. I hadn’t slept in like that since the summer before college. It was a mix of distressing and refreshing. I feel like I miss out on most of the day when I sleep in that long. Ashley was out of the room by then. I got up and went to the kitchen. 
 
-“Hello? Is anyone there?”
+I ate a sandwich that Avery made for me. He wanted to make me a sandwich as a gift for preventing him from sleepwalking outside. It was a pretty damn good sandwich. After that I just went to the living room and everyone was just on their phones except Ashley. Britt and Skyler were showing each other instagram reels, Avery was just scrolling through random articles, and Ashley was reading a book. I went over to Avery and thanked him for the sandwich and he just gave me a thumbs up. I sat by Ashley and read a book on my phone. 
 
-I nearly jumped out of my skin. I connected back to reality with a phone near my ear and someone on the line. “Hello, sorry. I was just wondering if you could answer some questions about-”
+We decided to just stay in yesterday. We didn’t really do anything until 6:00 PM when Avery started making us dinner. He apparently got a bunch of fancy fish to cook up along with like something called broccoli rabe and couscous which I haven’t really heard of before. So we were just heckling him and talking about whatever. He finished at around 7:30 and that’s around when we ate. He also, being a bartender to get through his vocational nursing program, made us our favorite cocktails. He had a LOT of different alcohol. We really only did tequila shots the night prior, but he had everything. He made us all our favorite cocktails, a negroni for me, vodka cranberries for Britt and Skyler, and a raspberry italian soda for Ashley. It was nice. We finished dinner around 8:30 and started a game of monopoly. We played it through, meaning we finished at 1:00 AM. It was a good mix of fun and rage inducing as any Monopoly game should be. None of us were that tired since we all woke up late and we started a TV show. Everything was normal until a couple hours in. 
 
-“Absolutely. Come down to the lodge and we can talk.”
+Out of nowhere we heard a loud noise just outside the house. Obviously we all jumped, even me. We were bickering back and forth of who should go check it out until we all agreed to go together. We didn’t bother closing the door because we knew it probably wouldn’t take long. When we went outside, we turned on our phone flashlights and looked around. After only like a minute Skyler said she found a tree that fell over. We all went towards it and it was really weird. It was a healthy, decently large tree. It wasn’t decaying or anything, it just fell, roots and all. The ground was wet, so it might have just been weekly rooted, but we had no idea what knocked it over. Probably a buck or something, but it's pretty unusual for them to be aggressive at this time of the year. We didn’t know what to do so we just went back inside.
 
-“You don’t even know what I want to know-” I started, but the man cut me off again.
+On the way back, we saw tracks leading to the house, some kind of hooves. Probably from whatever knocked the tree down. We didn’t look to see if any led away from the house. I again didn’t think much of it, but I’m starting to think we could be wrong about Clyde. Again, does any of this sound weird. We went to bed just fine. Well, I had some weird nightmare, but overall didn’t sleep too bad. I’m not sure if Avery sleepwalked, but he was in the house when I woke up so nothing bad happened if he did. I’m starting to think through everything and some things don't make sense. How did Clyde get goat horns that were identical to the ones on the goat he bought? I guess my brain could be playing tricks on me, but I swear they were identical.  
 
-“Doesn’t matter, young lady.” The man laughed excited. “I take all guests I can get.”
+I woke up late again today. I am kinda a nervous wreck at the moment. I just have a really bad feeling. Nothing happened yet today, but I just have a dreadful feeling that everything is going to go wrong. Let me know if this seems weird. I’ll update again if anything else happens.
 
-It took me some time to find forester’s cabin. I drove in silence for the first time in a long, long time. My car barely fit on the narrow, gravel road. Wrong move and one of many greedy trees could hook its claws in any part of my tin can.
-
-Trees slowly parted, revealing small clearing with log cabin in the center. Older man already stood out front with biggest smile hidden only behind his even bigger mustache. I parked and got out. We exchanged pleasantries and he led me inside. I made sure to mention I was supposed to attend dinner in two hours. Just in case he tried anything. His demeanor didn’t change, however, which comforted me, even if only a little.
-
-“Excuse my excitement, I don’t get to see people often. What did you want to talk about?” Forester asked as he moved around the kitchen area consisting of one counter, a stove and sink. Water took on heat, teabags laid waiting in the cups. Plate with cookies, pretzel bites and grapes already stood prepared on the table. I was welcome to stay as long as I wanted to, he said.
-
-Maybe for the first time in my life someone actually meant it.
-
-I twiddled with my thumbs. I thought about thousands of ways I could get information I was after, but each one I wrote down glared up at me. Judged me. I scribbled out each and every one of them before they had a chance to call me insane.
-
-“It’s really hard to get information about this forest.” I started slow, allowed myself a room to breathe for just a second longer. “About who cares for it-”
-
-Forester’s laughter cut me off. I suspected he did that a lot. “Oh, because I’m the only one here.”
-
-I frowned. “You’re the only one?”
-
-“Yes, ma’am.”
-
-Orange cup seemed to be full of only hot steam. I looked into milky-white fog, I watched it part to finally reveal red liquid. Berry tea. Not my favorite, but not the worst. I thought for few more seconds. New information had to fit into this puzzle somehow, but no matter which way I turned it, it just wouldn’t go in. “If you’re the only one, then why are there no fallen trees?” I looked up. Forester already sat down and munched on first cookie. Crumbs lodged themselves into white, impressive mustache. White, bushy brows seemed to have life on their own as they twitched slightly once in a while.
-
-“I don’t know.”
-
-I thought I misheard him at first. Or that he’d continue after sorting his own thoughts. No. He sat across from me, looked at my reaction curiously and waited. Dark blue eyes reminded me about the sea from my dream. About the storm. Broken mast. Feeling of dark, bottomless despair. There was something else there, at the very end, just as I started to wake up. A spark of hope.
-
-“Please, don’t make fun of me. I’m trying to get some answers to questions that bothered me for the longest time-”
-
-“I’m not making fun of you.” He cut me off. Again. “I sincerely don’t know why there’s no trees obstructing the roads. It’s been like that ever since I showed up here.” He raised yellow cup to his lips, took a sip of still hot tea and sighed. “I know how it sounds. This isn’t the only place I ever stationed at. On one hand I’m glad it’s this calm. I can enjoy my retirement years at work that I love. But sometimes I feel like I’m going mad.”
-
-Sinking feeling buried itself in my chest. I half hoped this man would laugh straight into my face, tell me my question sounded crazy. I watched his face, tried to decipher his thoughts. Maybe he was toying with me after all. He did say he didn’t have much guests. Was this his idea of having fun?
-
-If so, I understood why no one visited him.
-
-“When I was first offered this position and saw I’d be here all alone all the time, I told them I won’t be doing it.” Impressive mustache moved as the man started talking again. “I told them point-blank I understood government cut funding, but it was total bullshit to have only one guy on the job around the clock. They begged me to give it a shot. If I still wanted to be moved after a week or two, they’d oblige.” Blue eyes drifted towards the window. “I gave in. I was sure I’d be out of here by third or fourth day.” His fingers tapped against yellow cup without any real rhythm. “I performed all morning duties as fast as I could and set off on the road. I dreaded coming across fallen tree or poachers. To my surprise, there was nothing. I didn’t see a single fallen tree the whole way. Granted, I traveled only maybe a third of all roads shown on the map, but I managed to clear every path by the fourth day. Nothing. No poachers, which made me extraordinarily happy, no obstructions on any paths.” Blue eyes met mine again. “But also almost no animals. No people.”
-
-Countless of tiny electric shocks jumped right under my skin. Some primal part of my brain decided something in those blue eyes seemed off.
-
-They looked just a little too much like the churning sea.
-
-One last question slipped out no matter how much I wanted to say I needed to go. The man smiled and, as if he read my mind, started to get up from his chair. I did the same, more clumsy and erratic. Door opened under his touch and I nearly tripped on my way down the few wooden steps. Gravel crunched under soles of my fully intact boots. Maybe I did say I needed to go home and the question I thought of got lost between folds of my brain. I turned to say goodbye to the forester. His lips moved, my brain registered his answer, but my eyes jumped to the left.
-
-Something disappeared behind the cabin.
-
-My mouth fell open, vocal cords vibrated, first sounds started to form. I had to warn the forester. I had to get him away from here. Our eyes met once again. His face was void of any emotion, partially hidden by tree’s shadow. Where light met darkness, skin twisted, muscles contorted. Unnaturally wide mouth seemed to grimace. A smile from something that never smiled before.
-
-I slammed car’s door behind me. Engine roared to life. Small car turned almost in one place and I sped out through dangerously dark road.
-
-With heart in my throat and knuckles white, I tried to swallow tears. World became blurry mess. I had to let them fall to avoid wrapping my car around one of old trees. My eyes jumped from the road to rearview mirror, half expecting to see only my imagination chasing me.
-
-A mass moved right under the earth, surfaced only in shadows, but left no trace of moved ground.
-
-My foot pushed gas pedal into the ground. I’m not religious person, but in that moment I asked something, anything out there to not let this thing catch me.
-
-Tears left behind canyons on my cheeks. Joints of my fingers barely moved no matter how much I commanded them to let go of the wheel. I already parked in front of my house. I needed to get out of the car. No matter pleading or threats, my fingers refused to budge. I got away, I told myself. I got away and promised myself I would never set foot in that forest. Or any forest for that matter.
-
-I heard tapping on the glass. My eyes shot open, I almost stopped breathing.
-
-*Tap, tap, tap.*
-
-There was no rain, no broken mast or even broken black alder. Nothing could mask it, make me ignore it, roll over and go back to sleep.
-
-*Tap, tap, tap.*
-
-I closed my eyes, squeezed tight, counted to ten, to twenty, to fifty, seventy-nine.
-
-*Tap, tap, tap.*
-
-*You can’t run away forever*, I could almost hear it say, or think.
-
-I had to get answers. I know, what I did was stupid. Moronic. Idiotic. I started behaving like every horror protagonist – consciously danced down the steps to hell backwards to still see the light of day as eternal fire swallowed me.
-
-During the brightest day, with a lot of time until shadows deepened, I went back to that god-forsaken hill. I’m not crazy. I need answers, I need to know what I can do to fight that thing, whatever it may be. I need you to look at the pictures I took and tell me it is weird – hill full of fallen trees in a forest where close to none animals live, where people don’t really like walking into.
-
-[Where](https://i.postimg.cc/852V7zzV/IMG-20260426-150811.jpg) [trees](https://i.postimg.cc/bJ7jZwwX/IMG-20260426-150911.jpg) [don’t](https://i.postimg.cc/wvCd1jj8/IMG-20260426-151358.jpg) [fall](https://i.postimg.cc/sXkRMggC/IMG-20260426-151543.jpg) [unless](https://i.postimg.cc/xCwSX11c/IMG-20260426-152117.jpg) [it’s](https://i.postimg.cc/L5jFLFJ9/IMG-20260426-154219.jpg) [on](https://i.postimg.cc/Wz0cgcd1/IMG-20260426-154915.jpg) [that](https://i.postimg.cc/sDpwdgFY/IMG-20260426-151934.jpg) [fucking](https://i.postimg.cc/HsQBDkG4/IMG-20260426-152047.jpg) [hill](https://i.postimg.cc/Prm2s5Gb/IMG-20260426-153348.jpg).
