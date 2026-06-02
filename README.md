@@ -1,104 +1,490 @@
-# My friends and I found a goat in the woods, now my friends keep hearing things. Part 2
-[**Part 1**](https://www.reddit.com/r/nosleep/comments/1tc4yuq/my_friends_and_i_found_a_goat_in_the_woods_now_my/)
+# I do specialized cleanup work for apartments where people have died, but I’ve never seen anything like this before
+I’m a self-employed specialist cleaner for apartments where people have died. Usually old people. Grandparents whose families want the place emptied and cleaned so it can be sold as quickly as possible.
 
-Hey guys, it’s a couple of days later and things have only gotten weirder. I think someone, or something, is in the woods. If you haven’t read my first post, basically I’m on a trip with my friends and we saw a goat in the woods. Ever since, everyone else has been hearing things while I have been getting a weird amount of static from my cochlear implants. For simplicity's sake, I’ll jump in where I left off.
+It never bothered me. At least not until tonight.
 
-The rest of the day I uploaded my first post went well enough. We just talked, hung out, and individually doomscrolled on our phones. Well besides Avery who was asleep since I got home from my climb. However, after a while, we got bored. We went on a hike at exactly 5:05 on a trail that started around the lake. I record the time I start my hikes in my notes app to know how long I’ve been in the woods. I just recommended that we avoid the hill I climbed so the static wouldn’t mess with me again. Avery took some convincing, especially after his sleepless night. However I told him it should be fine as long as we get back before sunset because that’s when all the weird shit started. He agreed. Britt and Skyler apparently slept fine and said the noise eventually stopped, so they said yes pretty quick. They both thought they were just hearing things. I know this might seem stupid, but honestly I don’t think I had enough evidence to say that this wasn’t just us driving ourselves crazy. I thought it would be a good idea to go in the woods to just prove that it was fine. 
+I had taken on too many jobs again, blinded by the extra money, so by the time I reached the last house, it was already dark.
 
-Much like the walk to the house, the hike into the woods went very smoothly. It was pretty steep and some parts weren’t well maintained, but we are all very used to hiking so it wasn’t bad. Ashley, Britt and I were chatting about school, life, and shows we’re watching. From behind us we heard Avery and Skyler bickering as always. We were keeping track of time, we were laughing and having a good time. We didn’t see the goat, but we saw hoof tracks that didn’t look like deer prints that may be from a goat? None of us know trucks that well, especially pertaining hooves. We assumed it was just blindly wandering around based on how sporadic they were. I kinda felt bad for it. Avery said he heard rustling in the woods, but not the noise. No one can exactly describe the noise to me, so I can’t come up with any better descriptors. The rustling was probably just an animal, so we thought nothing of it.
+The place stood in the middle of nowhere.
 
-We went further, going steadily up until we reached a relatively flat portion of the trail. I looked at my phone clock and saw that it was now 6:01 PM. Good pace. According to Avery, the part that we entered is around an hour hike until you reach the flat part of the trail. He hiked this path the day he first arrived and timed each “section” he came across. Supposedly, you just follow the level path for around 20 minutes and you find a slope downward. From there you are out of the woods in 45 minutes to an hour depending on how slippery it is. All together the hike, according to Avery’s three test hikes, is two and a half hours give or take. So we figured we could take a 10 minute break. We hydrated and got out our snacks, consisting of granola bars, nuts, and those tiny oranges, and sat down on the dirt below. I stretched, everyone else followed. Everyone seemed to benefit from the rest and we were all smiling. 
+When I parked at the entrance, I had the uneasy feeling that this would not be a quick job.
 
-“See Avery, this hike was a pretty good idea.” I said, smiling
+The moment I stepped inside, I realized the house hadn’t been emptied yet. Everything the old man had owned was still there, exactly where he had left it. Normally, the family would have removed the furniture and personal belongings before calling me in, leaving me to do the final cleanup.
 
-“You say that, but we still have time to get fucked to death by a forest demon or whatever.” 
+A sheet of paper rested on the desk near the entrance:
 
-“As if you wouldn’t like that, whore.” Skyler responded. 
+*Sorry, but there were complications with the transport service. Please just clean as much as you can. The place where he died is the living room.*
 
-“You act like I was worried about myself. I was worried about my dear friends, I’ll have you know. I will express my concern no more.” He retorted.
+I frowned at the note. Why hadn’t they simply called me? Maybe they were afraid I would refuse the job if I knew beforehand.
 
-“God, why do you always make things about sex Avery, why can’t it just be disembowelment or something.” Britt said, I think she was annoyed. Avery seemed to think earnestly for a moment.  It looked like he was weighing two responses in his mind. 
+But I was already here, and I guessed I would do my best. I had been right about one thing, though. This would not be quick.
 
-“I don’t know honestly. Didn’t realize that I did that so often if I’m being for real.” He said, weirdly earnestly.
+As I moved through the house, a strange sadness slowly crept over me. Family pictures covered the walls. The old man smiling into the camera. The old man eating dinner with his family. The old man sitting in an armchair with thick glasses on, reading a book while a cat rested in his lap.
 
-“Its cool dude, I just don’t know if it was necessary t-” She began before she was interrupted by a loud but distant snap in the woods. Avery and Skyler jumped, Britt flinched, Ashley hugged me, and I sorta just stood still. 
+He had looked happy. And now he was gone.
 
-“Bitch, what the fuck was that!” Avery yelled, his eyes shifting back and forth.
+The house itself was small. A living room, a bedroom, a kitchen, and a bathroom. Nothing more.
 
-“It was probably just an old tree being knocked over by a deer or something.” Britt said
+The subtle stench of death hit me the moment I entered the living room.
 
-“Yeah, she’s right. Snaps like that are pretty normal I think.” I said
+There was a dark stain on the floor, roughly the size of a human body. This had to be where he died. The problem with elderly people living alone is that their bodies are often discovered days after death, once decomposition has already begun. Someone had clearly tried to wipe the spot clean before I arrived, but it had been pointless. Bodily fluids had soaked deep into the floorboards, and removing them properly required special chemicals.
 
-“Oh… yeah that makes sense. Sorry I’ve been really on edge recently.” Avery said. He was looking down, his eyes looking to his left. 
+I pulled on my mask and got to work on the stain first. Just like I always did.
 
-“Bitch, stop being so mopey. Be annoying again. “ Skyler said. I think she was trying to come off as like bitchy, but her eyes seemed worried. It seemed to work though, Avery sat up straighter and smiles.
+The stain was stubborn, but after roughly half an hour, I finally managed to get rid of it. It took a lot of scrubbing and even more cursing.
 
-“Sorry, I was just taking a break from carrying the group's comedy on my back.” He said, though his eyes still looked almost sad. After this, he stood up and we all followed. 
+After the long day, my back had started to ache, so I stayed sitting on the floor for a moment, letting myself rest while my eyes wandered through the living room.
 
-When we began down the level path, it was initially very pleasant. It was 6:12 when we started down the path. After an hour or so almost entirely uphill, it was nice to give my calves a partial rest. We were actually pretty quiet, we all were just admiring nature. However, after a while I went up to Avery and said hi. Skyler and Britt were off just talking quietly, I don’t know about what. They seem to have a different dynamic than how I remember it.
+A small dinnertable for two in the middle. And there, in the corner, was the armchair from the photographs.
 
-“Hey Avery, how’s it actually going? I don’t think we’ve talked, like actually talked, one on one.” I said. He seemed a little startled by me speaking. 
+To the right stood a bookshelf filled with old novels whose authors meant nothing to me. On the left side of the chair stood a large full-body mirror. I glanced at my reflection and saw a tired, miserable face staring back at me, silently asking why the hell I always had to be so greedy.
 
-“Oh, hey Wills… Yeah, I guess we haven’t. I’m sorry… I’ve just kinda felt off.” He said, looking down. He seemed his energetic self yesterday, but I did sort of feel like it was almost too much. I put my arm around his shoulder.
+I could have been home by now. In bed with Laura...
 
-“It’s fine Avery, don’t apologize. We all have off days.” I said.
+I shook the thought away, pushed myself to my feet, and opened the windows to air out the chemical smell. Then I headed back outside to grab the coffee I had bought on the drive here. It was going to be a long night, and I needed the caffeine.
 
-“It has been more of an off month, if I’m being real. I don’t know, ever since I got home. Clyde has been… I don’t know. I think living with him is a bad idea.” He said, looking away.
+When I returned to the living room, I still felt completely drained.
 
-“What, has he been hurting you or something?” I said, I think there was anger in my voice. His eyes were widening.
+There was an old television in the corner, and I figured having some background noise might make the work a little less miserable, so I turned it on.
 
-“Oh, nothing… nothing like that. He’s just been really weird. Like he just stares at me sometimes… From outside, from the other room. Like I get he finds me hot or something but… I don’t know. I’m starting to understand what Britt is saying, I think… I don’t know I’ve just… felt so fucking alone even though I’m living with someone.” He said, taking deep breaths between sentences. I saw his mouth scrunch and I knew what was happening. I hugged him as he began to sob. 
+Only static greeted me. I sighed and switched it off again.
 
-“Shh, its fine Avery. Look, if you don’t feel safe here… Don’t stay. My parents would be more than happy to host you for however long you need until you can go back to New York… You’ll finish your nursing program and… and you can come to Philly and get a job while I go through med school. You never have to be alone Avery… I’m here for you.” I said. He just nodded against my shoulder, he couldn’t will himself to speak. As I finished I realized everyone else was listening and looking at us. 
+The moment I placed the remote back onto the table and turned away, the television flickered back to life behind me, filling the room once more with loud static.
 
-We all spent like five minutes comforting Avery and by the end he was able to stop crying and smile. We kept close to him as we began walking again. We all just talked about personal stuff that I obviously won’t disclose. We tried walking faster just to keep on schedule. By 7:02 we reached the next section of the trail. However, as we turned the corner we saw the weirdest thing. A hunting ladder stand that went about 20 feet up. Now this is pretty normal to see in the woods, but Avery said that it wasn’t there a week ago. Weird, but we walked by it. We had to keep pace, we could think about the implications later.  
+I cursed under my breath.
 
-What we couldn’t ignore was about thirty minutes down the sloping section of the trail. In the middle of the path were two, large horns. The horns that were on the goat we saw the day before. They weren’t broken at any point. They were also a good distance away from any trees, so it's not like they broke off. They had a rounded bottom as if they were shedded like deer antlers. I knew this wasn’t normal, but I was still trying to rationalize. 
+The old thing was annoying, and what I didn’t want to admit to myself was that it genuinely unsettled me, even though I was a grown man.
 
-“Can goats shed their horns?”  I asked.  
-   
-“No, horns are permanent, they don’t just fall off like that… What the fuck…” Skyler said, her eyes looked afraid, staring at the horns, scanning for some proof or normality. She bent down, trying to look closer, scanning for a sign of a break before she stood up and backed away.
+I turned it off again and forced myself back to work.
 
-“What the fuck! Who the fuck did that! Is this a prank or something?” Skyler said.
+An hour later, I finished the bathroom. Two hours after that, the kitchen was done as well, and I returned to the living room.
 
-“No? How could any of us pull a prank, we don’t know the trail? What did you see?” I asked.
+The smell of chemicals had finally faded. I closed the window again, quietly humming some half-forgotten melody to myself. A loud noise suddenly echoed through the room, making me jump.
 
-“It was a bundle of… it was a bundle of hair, like a lot of it. It was long and black… I think its… I think its human hair… It’s too soft to be goat hair… I also saw some tracks, goat tracks I think, going towards the horns, none were going back in…” We all turned white as she said it. Avery looked the worst of all. He was shaking, visibly disturbed. It might have been because he has long black hair. 
+I spun around too quickly and nearly made myself dizzy. A book lay on the floor in front of the large bookshelf. It must have fallen out somehow.
 
-“We got to leave.” Britt said, walking around the horns and going further down the trail. It was like something in her, some primal fear, was controlling her like a marionette. We all followed behind her, none of us touching the horns. We started slow, but we began running down the trail. We barely stopped for a second, our adrenaline propelling us forward until we were all panting at the exit of the forest. We ran to the lake house, locked the doors, and stood silently in shock for several minutes. We took some deep breaths.
+But how?
 
-“What the fuck was that? Is… is someone in the woods?” Skyler said. Ashley was just staring, completely still, shell shocked. Britt was rubbing her fingers together as Skyler was hugging her like she was trying to keep her from running away. However weirdly enough, Avery seemed to be calming down as an idea was forming in his head.
+I stared at it for a moment.  Nothing happened. Pressing my lips together, I slowly approached it.
 
-“That mother fucker…” Avery said quietly. 
+There was no title on the cover. No author’s name. Just black leather, worn and cracked with age.
 
-“Who? Who are you talking about?” Britt said.  
-“Fucking Clyde… Dude always likes pranking me. He probably left the horns there knowing I would hike that trail. He has black hair and his friend owns the farm near here. Fuck off. He probably set it up before he left.” He said, seeming annoyed now rather than afraid. We accepted this explanation quickly. We just assumed he pranked us and the noise everyone heard was unrelated.  It worked.
+I bent down, picked it up, and instead of putting it back immediately, I opened it.
 
-“Oh my God! What a fucking dick! You have no choice now, you are staying at my parent’s house when the weekend is over.” I said, half seriously, half jokingly.
+A strange symbol filled the first page. A triangle, with smaller markings branching from each corner, almost resembling the letter T. Beneath it was a single sentence.
 
-“You might be right… I should just leave. If he tries anything I’ll call the cops.” He replied. 
+“Ecce donas, haas offeretus kanas, rementulum iv colum.”
 
-We all nodded and laughed about the whole situation. The moon rose and nothing really happened. Avery said he heard the noise, which everyone has since agreed sounded like a whistle, was just some weird bird. We were all just schizos making things up in our head and his weirdo predator boyfriend was trying to fuck with him. It all made sense.  So, celebrating the fact that we weren’t going to die, we naturally drank. A lot. Except Ashley, she doesn't drink so she just smoked some weed. 
+I read the words aloud.
 
-We danced, fucked around, and generally forgot about all of our problems. Ashley mostly just laughed at us while she ate chips on the couch. Britt and Skyler went to their room early, at like 11:30, they seemed pretty drunk, but not black out. Sober enough to know when to call it quits I guess? Avery, Ashley and I stayed up longer, giggling at a weird French film about Blue aliens who fuck with tiny people. I’m sure it's a deep film, at least Ashley said it was, but I don’t even really remember it.  I could barely read the subtitles. Avery passed out on the couch at like 1:30. 
+Latin, maybe? The rest of the pages were blank.
 
-Ashley and I just started talking about random BS at this point. I was decently sober. I didn’t really get all that drunk to begin with, just enough to get that “I’m stupid” feeling. We lost track of time and suddenly I looked at my watch and it was 3:01 AM. I didn’t really have time to even realize how long I’ve been awake when Avery got up off the couch. 
+“Meow.”
 
-“Hey Avery, sorry I didn’t mean to wake you.” I said. He didn’t respond. Instead he walked out of the living room and went towards the front door. I followed after him and grabbed him after he opened the front door. Ashley followed and was watching everything happen. I turned him around. His eyes were glassy and vacant. He was sleepwalking. I pulled him away and tried to have him walk towards his bed. I heard that’s what you’re supposed to do in a sleep medicine class I took as an elective. However, he seemed intent on walking out the door. So I had to wake him.
+I looked up from the book and froze. The black cat from the photographs sat only a few feet away, staring directly at me. So that was how the book had fallen. And I had started imagining things already. Jesus.
 
-“Avery! Avery, wake up!” I said loudly a few inches away from his face. He blinked a few times then jumped back. He was breathing heavily and looking around. That is pretty normal for a sleepwalker being woken up. I had no other option though, I couldn’t have him accidentally hurting himself. I remember he sleepwalked a couple times at sleepovers so I didn't really think much of it. He took some deep breaths and looked at me. He seemed to be still slightly drunk too. 
+I slid the strange book back into the shelf, trying not to think about what kind of man the owner must have been, and turned toward the cat.
 
-“Wills? Fuck, was I sleepwalking? I haven’t done that since I was a little kid.” He said, his voice was slightly slurred and he looked disoriented. I led him to his bedroom and locked the door before going with Ashley to our room. We fell asleep pretty quickly. I fell asleep just after her because I was a little nervous about Avery. 
+“Hey, buddy,” I muttered. “You scared the hell out of me.”
 
-I ended up waking up at like 1:00 P.M. I hadn’t slept in like that since the summer before college. It was a mix of distressing and refreshing. I feel like I miss out on most of the day when I sleep in that long. Ashley was out of the room by then. I got up and went to the kitchen. 
+I should probably take the animal back to the family who hired me. The poor thing was likely starving, maybe abandoned after the old man died. I didn’t even want to consider that possibility for too long.
 
-I ate a sandwich that Avery made for me. He wanted to make me a sandwich as a gift for preventing him from sleepwalking outside. It was a pretty damn good sandwich. After that I just went to the living room and everyone was just on their phones except Ashley. Britt and Skyler were showing each other instagram reels, Avery was just scrolling through random articles, and Ashley was reading a book. I went over to Avery and thanked him for the sandwich and he just gave me a thumbs up. I sat by Ashley and read a book on my phone. 
+“Hey.”
 
-We decided to just stay in yesterday. We didn’t really do anything until 6:00 PM when Avery started making us dinner. He apparently got a bunch of fancy fish to cook up along with like something called broccoli rabe and couscous which I haven’t really heard of before. So we were just heckling him and talking about whatever. He finished at around 7:30 and that’s around when we ate. He also, being a bartender to get through his vocational nursing program, made us our favorite cocktails. He had a LOT of different alcohol. We really only did tequila shots the night prior, but he had everything. He made us all our favorite cocktails, a negroni for me, vodka cranberries for Britt and Skyler, and a raspberry italian soda for Ashley. It was nice. We finished dinner around 8:30 and started a game of monopoly. We played it through, meaning we finished at 1:00 AM. It was a good mix of fun and rage inducing as any Monopoly game should be. None of us were that tired since we all woke up late and we started a TV show. Everything was normal until a couple hours in. 
+I slowly knelt down and held out my hand toward the cat, trying not to scare it.
 
-Out of nowhere we heard a loud noise just outside the house. Obviously we all jumped, even me. We were bickering back and forth of who should go check it out until we all agreed to go together. We didn’t bother closing the door because we knew it probably wouldn’t take long. When we went outside, we turned on our phone flashlights and looked around. After only like a minute Skyler said she found a tree that fell over. We all went towards it and it was really weird. It was a healthy, decently large tree. It wasn’t decaying or anything, it just fell, roots and all. The ground was wet, so it might have just been weekly rooted, but we had no idea what knocked it over. Probably a buck or something, but it's pretty unusual for them to be aggressive at this time of the year. We didn’t know what to do so we just went back inside.
+“Let’s be friends.”
 
-On the way back, we saw tracks leading to the house, some kind of hooves. Probably from whatever knocked the tree down. We didn’t look to see if any led away from the house. I again didn’t think much of it, but I’m starting to think we could be wrong about Clyde. Again, does any of this sound weird. We went to bed just fine. Well, I had some weird nightmare, but overall didn’t sleep too bad. I’m not sure if Avery sleepwalked, but he was in the house when I woke up so nothing bad happened if he did. I’m starting to think through everything and some things don't make sense. How did Clyde get goat horns that were identical to the ones on the goat he bought? I guess my brain could be playing tricks on me, but I swear they were identical.  
+“Meow.”
 
-I woke up late again today. I am kinda a nervous wreck at the moment. I just have a really bad feeling. Nothing happened yet today, but I just have a dreadful feeling that everything is going to go wrong. Let me know if this seems weird. I’ll update again if anything else happens.
+The cat turned around calmly, leapt forward, and disappeared straight through the mirror.
 
+I froze.
+
+On the other side of the glass, I could still see it walking away from me.
+
+“What the hell,” I whispered.
+
+Slowly, I got to my feet and approached the mirror.
+
+The apartment on the other side looked exactly the same, except for the cat, now sitting with its back turned toward me while lazily licking its paw.
+
+This couldn’t be real.
+
+I reached out carefully, expecting my hand to hit cold glass. Instead, it passed straight through.
+
+My breath caught in my throat. Before I could stop myself, I took another step forward. Then another. A second later, my entire body had crossed through the mirror.
+
+Now I was standing on the other side as well. At first glance, the apartment seemed unchanged, but something felt wrong immediately.
+
+Sounds drifted in from the kitchen. The clatter of plates. The soft scrape of metal against ceramic. And beneath it all lingered the unmistakable smell of freshly cooked food.
+
+The cat slowly turned its head toward me.
+
+My knees nearly gave out.
+
+Its eyes were gone. Two dark, rotting holes stared back at me from beneath matted black fur. Flesh around its mouth had decayed away, exposing yellow teeth and parts of its jaw. More patches of rotten skin hung loose around its neck.
+
+I instinctively stumbled backward toward the mirror.
+
+This time, my back hit solid glass.
+
+No matter how hard I pushed, it would not let me through.
+
+“Meow.”
+
+The sound was no longer soft or harmless. It came out low and wet, beneath the growl.
+
+The the noises from the kitchen stopped abruptly. Silence flooded the apartment. A second later, I heard footsteps approaching fast.
+
+An old man stepped out of the corridor, drying his hands on a kitchen towel draped loosely over his shoulder.
+
+He smiled warmly at me, then looked down at the cat.
+
+“Ah, Fluff,” he said gently. “You brought a friend with you.”
+
+Then his eyes settled on me, and his smile widened just a little too much.
+
+“I hope he didn’t bother you too much.”
+
+“N-No,” I managed to choke out.
+
+“Good. Gooood.”
+
+The old man gestured toward the small dinner table.
+
+“Come, sit down. Have dinner with me.”
+
+I swallowed hard.
+
+“I’m sorry, but I really can’t stay. I still need to finish my work.”
+
+I remained standing close to the mirror, trying to sound calm while silently praying in my head.
+
+“Nonsense!” the old man replied cheerfully. “I haven’t had guests in such a long time. I can’t let you leave hungry.” He motioned toward the table.
+
+“You’ve worked hard back there.” He nodded toward the mirror.
+
+“At least let me repay you with dinner. I just finished cooking, you know. You arrived at the *perfect* time.”
+
+Every instinct screamed at me to run, but the look in the old man’s eyes told me that refusing him would be a terrible mistake.
+
+So I nodded slowly and forced myself toward the table.
+
+The old man disappeared back into the kitchen and returned moments later carrying two plates. Rice and stir-fried vegetables steamed gently beneath the dim light. He placed the plates on the table alongside forks and knives before sitting down across from me.
+
+“Oh, this feels wonderful,” he sighed.
+
+He tilted his head sharply to the left.
+
+Crack.
+
+Then slowly to the right.
+
+Crack.
+
+The sound of bone grinding against bone echoed softly through the apartment.
+
+“I really did miss having company,” he said with a smile.
+
+“I’m sorry,” I said, clearing my throat. “I… accidentally stepped through the mirror, but it seems I can’t go back.”
+
+“Oh, no wonder you can’t.” The old man laughed softly and unfolded a napkin across his legs.
+
+“These young people nowadays, honestly.”
+
+I stared at him in silence.
+
+“You can’t go back because you left the key behind, dear.”
+
+“The key?” I asked carefully. “Sorry, I… I don’t understand.”
+
+“The key,” the old man repeated, sounding mildly irritated, as though I had asked something painfully obvious. “The book, dear. The key!”
+
+I glanced down at my hands. They had started trembling slightly, and I quickly hid them beneath the table.
+
+“So I can’t leave?” I asked. “Everything looks the same here. There has to be another book somewhere in this apartment too, right?”
+
+The old man sighed deeply.
+
+“No, no. The book is one of a kind, dear.”
+
+For a moment, my stomach dropped completely.
+
+“But of course you can leave,” he added suddenly with a smile.
+
+Relief flooded through me so fast it almost hurt.
+
+“Someone simply has to read the words aloud from the other side. Then the mirror opens again.”
+
+My heartbeat hammered painfully in my chest.
+
+“Now,” the old man said pleasantly, picking up his fork, “let’s eat.”
+
+Then he froze.
+
+Completely.
+
+His fork remained suspended in the air while his eyes stared blankly ahead, unmoving.
+
+One second passed. Then another.
+
+I didn’t dare look away from him.
+
+Almost a full minute went by before he suddenly resumed moving again as though nothing had happened.
+
+Just before taking the first bite, he paused once more.
+
+“Ohhh, forgive my terrible manners.”
+
+He smiled warmly at me.
+
+“My name is Rolan. And yours, friend?”
+
+“Lars,” I answered quietly.
+
+I had no intention of touching the food.
+
+“So… you live here?”
+
+“Yes, yes,” Rolan replied happily. “Well, I lived here once. And now I live here again.”
+
+The way he said it made my skin crawl.
+
+“You’re not eating, dear,” he observed gently. “Is something not to your liking?”
+
+Before I could answer, panic suddenly flashed across his face.
+
+“Oh! Forgive this foolish old man!”
+
+He slapped his forehead dramatically and pushed himself up from the table so quickly the chair nearly tipped over.
+
+“You see, at my age I must be careful with what I eat. My stomach isn’t what it used to be anymore.”
+
+Then his eyes locked onto mine.
+
+“But you…”
+
+A wide smile spread slowly across his face.
+
+“You’re a young man. Young men need meat.”
+
+I watched him in frozen silence as he hurried across the room, scooped the cat into his arms, and returned to the table.
+
+“Forgive me for being such a terrible host.”
+
+The cat let out a sharp cry.
+
+Crack.
+
+The sound of its neck snapping echoed through the apartment.
+
+Before I could react, Rolan placed the dead animal onto my plate.
+
+Dark, rotten blood poured slowly from the cat’s mouth, running into the rice and soaking the vegetables.
+
+The smell hit me instantly. Sweet decay so thick I nearly gagged.
+
+“There we go,” Rolan said happily. “Eat now, dear. It’s getting cold.”
+
+“I…”
+
+I forced myself not to vomit.
+
+“I’m sorry. I forgot to wash my hands after the cleaning work.”
+
+I tried to keep my voice steady.
+
+“Could I use your bathroom first?”
+
+“Oh yes, make yourself at home.”
+
+I stood up and made my way toward the bathroom, trying not to move too quickly. Trying not to run. The moment I stepped inside, I locked the door behind me. Every instinct screamed at me to get out of this place.
+
+I hurried to the window and pushed it open. My breath caught in my throat. There was nothing outside.
+
+Just endless darkness stretching in every direction.
+
+My pulse hammered painfully in my ears as I grabbed the bar of soap from the sink and threw it out into the void.
+
+I watched it fall.
+
+And fall.
+
+And fall.
+
+Far longer than it should have before the darkness swallowed it completely.
+
+There was no ground.
+
+I stumbled backward from the window in horror. I couldn’t escape through there.
+
+A loud knock against the bathroom door made me flinch violently.
+
+“Everything alright, dear?” Rolan’s voice called from the other side. “Dinner is getting cold, and you really should eat.”
+
+“I-I’m fine,” I answered quickly. “I’d just like to stay here a little longer.”
+
+My voice trembled uncontrollably. Panic clouded my thoughts as my eyes desperately searched the bathroom for something I could use as a weapon.
+
+There was nothing.
+
+“Oh, but I can’t allow that.”
+
+The warmth vanished completely from Rolan’s voice.
+
+“Surely you know that it’s rude to leave the dinner table.”
+
+Then came the last sentence and the voice speaking it could not possibly have belonged to a human being.
+
+“*So come out*.”
+
+I froze.
+
+The doorknob slowly began to turn.
+
+Metal squealed.
+
+Then the wall beside the lock started to crumble with a dry cracking sound until the entire lock tore free from the frame.
+
+The door swung open.
+
+Rolan stood there calmly, staring at the debris scattered across the floor.
+
+“Oh dear,” he sighed. “What a mess. And after you cleaned everything so nicely too. My apologies.”
+
+Then he smiled again.
+
+“Now, please return to the table.”
+
+I didn’t dare argue.
+
+As I stepped past him, terror twisted painfully in my stomach, and I instinctively quickened my pace.
+
+He was strong.
+
+Not human strong, something far beyond that.
+
+I sat back down at the table, staring once more at the dead cat lying on my plate while Rolan calmly returned to his seat across from me.
+
+“*Eat.*”
+
+The patience had vanished from his voice now.
+
+“I’m sorry,” I whispered. “I’m not hungry.”
+
+Rolan looked at me silently for a moment.
+
+“You know,” he said softly, “when I was a boy and refused to eat what my mother placed in front of me, she would take my father’s leather belt and teach me how a I was supposed to behave.” He paused.
+
+“Maybe we should begin with teaching you not to leave the dinner table,” Rolan said softly. “It seems you never learned that lesson either.”
+
+His smile widened.
+
+“It will be an easy one, dear. After all, you can’t run away from the table if you’re no longer able to stand, don’t you think?”
+
+Panic hit me so violently that my body went numb for a second before adrenaline flooded through my veins. Without thinking, I grabbed the knife from the table and drove it straight into his left eye. The blade sank in with a wet crunch and remained lodged there.
+
+Rolan didn’t even flinch.
+
+I stared at him in horror, unable to breathe.
+
+“Oh dear,” he sighed.
+
+Calmly, he wrapped his fingers around the knife handle and pulled it free together with the eyeball still attached.
+
+“And here I was, trying so hard not to eat meat.”
+
+He opened his mouth and bit the eye off the blade.
+
+Crunch.
+
+The sound was wrong.  I nearly vomited as he chewed slowly. Then instinct finally took over again.
+
+I stumbled backward from the table and sprinted toward the mirror, desperately shouting the strange words from the book.
+
+Nothing happened. The mirror remained solid.
+
+“Now,” Rolan’s voice growled behind me, no longer human in the slightest, “let us begin the lesson.”
+
+I spun around just in time to throw myself aside.
+
+The thing that had once been Rolan slammed into the wall where I had been standing only a second earlier.
+
+He barely even resembled a man anymore.
+
+His flesh had turned yellow and purple with decay. One arm hung so unnaturally long that its fingertips scraped across the floor, while the other stretched across the bookshelf like the limb of some enormous insect.
+
+I grabbed a chair and smashed it against him with all my strength.
+
+The chair broke in pieces.
+
+Rolan barely reacted.
+
+I ran.
+
+I rushed into the kitchen while heavy footsteps followed behind me at an almost casual pace. He wasn’t even hurrying. There was nowhere to hide. I bolted into the bedroom and flattened myself behind the door.
+
+A second later, Rolan charged into the room so fast the floor shook beneath him.
+
+He tripped and crashed onto the mattress with a snarl.
+
+“Ahhh,” he groaned in that distorted, corpse-like voice, “young people these days. No respect for their elders.”
+
+I sprinted back into the living room. The mirror still refused to open. Then my eyes landed on the cleaning chemicals scattered across the floor.
+
+An idea hit me instantly. As Rolan emerged from the hallway, I snatched up the bottle and hurled the contents directly into his face.
+
+The creature let out a scream, not pained, angry, clawing wildly at its remaining eye.
+
+“There is no escape,” it snarled. “I can still hear you.”
+
+But by then, the plan had already formed in my mind.
+
+Rolan lunged toward me again. This time his claws caught my shoulder, tearing through flesh in long, burning lines before I managed to roll away.
+
+The pain nearly made me black out. Still, I forced myself toward the entrance door.
+
+Behind me, I could hear him charging after me. I grabbed the doorknob at the very last second and threw the door open before pressing myself flat against the wall beside it.
+
+Rolan tried to stop, but his massive body carried him forward too fast.
+
+Just as he reached the doorway, I slammed both hands against his back with every ounce of strength I had left. The creature stumbled out into the darkness beyond the entrance.
+
+A furious roar echoed through the void as it fell.
+
+And fell.
+
+And fell.
+
+Its screams grew quieter and quieter until the darkness swallowed them completely.
+
+Then there was silence.
+
+I collapsed against the wall, sobbing for breath while tears streamed uncontrollably down my face. After a long time, I forced myself back into the living room.
+
+I don’t know how much time has passed since then. I tried everything to return home. Nothing worked.
+
+Eventually, I realized that certain things I do on this side somehow appear on the other one as well. That is how I managed to leave this message behind.
+
+And if you are reading this now… then somehow it worked.
+
+Please.
+
+I’m begging you.
+
+I’m still trapped here.
+
+Help me.
+
+After thinking about it for a long time, I believe the book was never truly important. I think any large mirror might work. The words simply need to be spoken from the opposite side.
+
+So please.
+
+Go to your mirror. Draw the symbol I described. Speak the words aloud.
+
+And call my name.
+
+Please help me come home.
+
+( [more](https://www.reddit.com/user/Kira1006/comments/1rcrsqo/authors_journal/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) )
