@@ -1,82 +1,136 @@
-# Something's wrong with my door
-My name is Téo. I live in a highly sought-after urban area in Florianópolis, and because of that, the security there is exceptionally good. I had never felt so safe anywhere before. Almost dystopian, I’d say.
+# I Found a Hidden Door Behind My Bathroom Mirror. The Notebook Inside Had My Name on It.
+I don't know how to explain what's been happening to me so I'm just going to write it exactly as it happened and you can decide what to do with it.
 
-My routine is simple. I wake up at 6:20 AM from Monday to Saturday, get ready for work, eat something light, and leave home at 8. I drive to work, which is about thirty minutes away from my house.
+Three weeks ago I found a small door behind my bathroom mirror.
 
-I work at a car company as an inside salesperson and junior consultant. Because of that, I work a lot — so much that I usually get home close to 10 PM every weekday.
+Not a cabinet. Not a shelf. A door. Maybe two feet wide, cut into the wall like someone built it there on purpose and then covered it up. I don't know how long it had been there. I don't know how I never noticed it. I've lived in this apartment for two years and I brush my teeth every morning in front of that mirror and I never once thought to push it.
 
-When I get home, I unlock the door by entering a password into the keypad, since the neighborhood required all residents to install coded locks due to strict security measures. I take a shower, eat something, and get ready for bed.
+Inside was a notebook with my name on the cover.
 
-Six times a week.
+I want you to understand something about me before I keep going. I'm not a forgetful person. I remember things. Faces, conversations, the name of a kid I sat next to in third grade. My memory has always been the thing I trusted most about myself.
 
-One particular Tuesday, while coming home from work, I noticed something on my front door. It was a black smear that seemed to have appeared out of absolutely nowhere. I didn’t remember seeing it before, especially because I had replaced the door for aesthetic reasons a little over a month earlier.
+So when I started reading and realized I had no memory of writing any of it, I felt something shift in my chest. Not fear exactly. Something worse. The feeling you get when you realize the ground under you isn't as solid as you thought.
 
-I stared at it for a while before entering the code to unlock the door.
+The first entry was fourteen months ago.
 
-The next morning, the smear was still there. The recent formation of that strange mix of black and brown was, in a way, beautiful, so I simply ignored it.
+March 3rd. The sound came back tonight. I don't want to write about the sound.
 
-And the days went by. My routine remained the same as always.
+Gone. That whole day, just gone. Not forgotten the way you forget a boring afternoon. I mean there is nothing there when I reach for it. Like a hole in the middle of my life that someone patched over so neatly I never noticed the stitching.
 
-Still, I couldn’t stop looking at the smear every time I left or returned home.
+I kept reading. I couldn't stop.
 
-My attention became constant when I started realizing that, somehow, the smear was growing. The patterns changed subtly. I think it had taken on a little more shape over the last seven days, but since I always came home exhausted from work, sometimes I barely thought about anything or paid attention to my surroundings. I would just arrive, type the code into the monitor, and walk inside.
+Every date in that notebook was a day I couldn't remember. Every single one. Weeks of my life just missing, and I had never noticed because the days around them were still there, still intact, and my brain had just quietly closed the gap.
 
-In any other situation, that would’ve made me an easy target for robbery, considering how careless I become when I’m tired.
+April 17th. I tried to call my sister today. I don't know why I couldn't finish dialing.
 
-One day, the company I worked for called me and offered me some extra work with very good additional pay: spending two days out of town assisting with the sale of cars to wealthy clients.
+I don't have a sister.
 
-I accepted immediately.
+I'm almost certain I don't have a sister.
 
-I woke up at 5 AM that day, got ready, and left home after giving the smear one last routine glance. It looked exactly the same as before.
+June 2nd. The light is wrong again. It's always the same in here. I've stopped checking what time it is because it doesn't seem to matter.
 
-The short business trip passed quickly. I arrived home earlier than usual — around 6:40 PM on a Saturday — and my instinct to type in the code and settle into the comfort of my house suddenly felt distant when I realized my strongest urge was to look at the smear.
+I put the notebook down and looked at my living room.
 
-I think I had developed a routine around the thing that had appeared so suddenly.
+The light was doing what it always does. Sitting there. Flat. Unchanging.
 
-My eyes found the door, and my mind found confusion.
+I thought about the last time I watched the sun move through my apartment and I couldn't find it. I couldn't find a single memory of standing in a different quality of light depending on the hour.
 
-The smear was no longer a shapeless amalgamation of cold colors.
+I picked the notebook back up.
 
-It now formed a skeletal figure, still somewhat difficult to fully make out. From the torso up to the head, leaning slightly forward.
+August 9th. I found the door again. I always find it and then something happens and I forget. I think I'm supposed to forget. I think that's the whole mechanism.
 
-It had no hair, and the shape of the eyes suggested they were wide open, like an unfinished sketch of a painting someone had abandoned halfway through.
+I read that four times standing barefoot on my bathroom floor.
 
-I entered the code and went inside to rest. I won’t lie — my curiosity had gotten to me.
+I always find it.
 
-I spent almost the entire night returning to the door, trying to figure out whether what I was seeing was real or just pareidolia caused by exhaustion.
+How many times had I stood here. How many times had I opened this door and read this notebook and felt exactly what I'm feeling right now and then lost it completely.
 
-But it was still there.
+I reached back into the space and felt around the edges of the wall. In the back corner, taped flat against the plaster so carefully I almost missed it, was a piece of paper.
 
-Unchanged.
+A phone number. My handwriting.
 
-And since it was Saturday, I spent the rest of the day and all of Sunday trapped in that small paranoia.
+Two words underneath it.
 
-But Monday came. I had work to do, so I followed my routine as usual, trying my best to suppress whatever bad feeling that plain, lifeless door gave me.
+Don't forget.
 
-But as I was leaving the house, I nearly jumped.
+My hands were shaking by then. Actually shaking. I hadn't noticed until I saw the paper trembling.
 
-The door now showed two eyes — faint, almost faded — complete with irises, sclera, every detail.
+I didn't call the number that night.
 
-And they were staring directly at me.
+I don't know why. Instinct maybe. Some part of me that wasn't ready for whatever was on the other end.
 
-I grabbed my things and went to the car. It took me about two minutes to drive away. Two entire minutes resisting the urge to look back at the door again.
+I kept reading instead. The entries got shorter and harder to read as they went on. The handwriting getting smaller and shakier, like whoever wrote them was exhausted or frightened or both.
 
-Then I left.
+October 14th. I think I understand what this is now. I really wish I didn't.
 
-Problems at work. Apparently, my team and I hadn’t satisfied all the demands of the wealthy clients during the last trip to the neighboring city, and we would need to return to sort everything out.
+November 1st. I tried the door at the end of the hallway. It doesn't open from this side. I can hear things through it sometimes. Voices. Machinery.
 
-I was informed about the trip near the end of the workday, and according to what they told me, we would be staying out even longer this time because of the increased workload.
+I live in an apartment. I don't have a hallway that ends in a door.
 
-I loved that job as much as I could, but those trips drained me, and I always felt strangely uneasy accepting them, even with the company’s incredible bonus pay.
+I walked out of the bathroom slowly. I looked down the hallway.
 
-I got home close to 10 PM, as always.
+There was a door at the end of it.
 
-I froze at the door.
+White. Same shade as the walls. Small silver handle. Right there. I have walked past that spot every day for two years and I am telling you I have never seen it. I cannot explain that. I cannot make it make sense.
 
-The eyes were still there, staring at something I was too exhausted to understand.
+I walked to it and put my hand on the handle.
 
-I entered the code and stepped inside.
+Cold. Colder than anything in the apartment had any reason to be.
 
-I’ve been away on business for ten days now, staying at a hotel, and I don’t know how I’m supposed to return home after the cameras and motion sensors identified a dark, bald, humanoid thing with enormous eyes entering my password and walking into my house.
+It didn't open.
 
-So far, it hasn’t come back out.
+But I could hear something on the other side.
+
+A sound like breathing. Slow and mechanical and steady. Like something working very hard to keep a rhythm going.
+
+I went back to the notebook.
+
+The last written entry was dated the same day I found it. Three weeks ago. A day I have no memory of.
+
+We keep finding this and we keep forgetting and I don't know how many loops we've been through. I stopped counting because counting made it worse.
+
+Call the number. That's all. Just call.
+
+I heard them talking through the door again last night. They're discussing stopping. I don't know what stopping means here but I know it isn't good. I know if they stop something ends.
+
+Then one final line at the very bottom of the last page. Barely visible. Pressed so lightly into the paper it was almost not there at all.
+
+If you can read this then you haven't come back yet.
+
+Please come back.
+
+I'm writing this because I'm terrified that if I don't get it out of my head and into somewhere permanent I'll wake up tomorrow and it'll be gone again.
+
+The phone is sitting next to me.
+
+I'm going to call.
+
+Update:
+
+I called.
+
+No one answered.
+
+But the moment the line connected I heard it, just for a second before it cut to silence.
+
+The same mechanical breathing sound from behind the door.
+
+I'm posting this now because I need someone to read it before I forget.
+
+And because I just looked at my bathroom mirror and it's pushed slightly open and I have no memory of closing it after I found the notebook.
+
+Which means I've already started forgetting.
+
+I know now that none of that was real.
+
+I was in a coma for two years after a car accident. What you just read was my life inside my own head while my body was lying in a hospital bed with machines keeping it breathing. I built an entire world, an apartment, a routine, a version of myself that felt completely normal, and somewhere underneath all of it some part of me knew the truth and kept trying to leave me clues. The door at the end of the hallway was the hospital room. The mechanical sound was the ventilator. The phone number was my mother's number, the one she's had for thirty years, and I couldn't remember it clearly enough to dial it.
+
+I woke up four days ago.
+
+I'm writing this because the doctors say it'll help to process it.
+
+What I can't stop thinking about is the last line I wrote to myself in that notebook.
+
+Please come back.
+
+I almost didn't.
