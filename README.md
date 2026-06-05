@@ -1,136 +1,68 @@
-# I Found a Hidden Door Behind My Bathroom Mirror. The Notebook Inside Had My Name on It.
-I don't know how to explain what's been happening to me so I'm just going to write it exactly as it happened and you can decide what to do with it.
+# The voice recorder said I wouldn't make it past midnight. I am starting to think it was right.
+I’m writing this because the recording said I wouldn’t make it past midnight. I know how that sounds. I did too, at first. But I’m out of other explanations now, and I don’t have much time left to pretend this is a misunderstanding.
 
-Three weeks ago I found a small door behind my bathroom mirror.
+The voice recorder appeared in my apartment three days ago. I didn’t buy it. I didn’t order anything. It was just… there. On my kitchen counter, like it had always been part of the clutter I’d learned to ignore. Old model. No branding I recognize. Cassette inside already. The first thing I did was rewind it.
 
-Not a cabinet. Not a shelf. A door. Maybe two feet wide, cut into the wall like someone built it there on purpose and then covered it up. I don't know how long it had been there. I don't know how I never noticed it. I've lived in this apartment for two years and I brush my teeth every morning in front of that mirror and I never once thought to push it.
+There was a recording already loaded. It was me. Sleeping. At least, it sounded like me. Same breathing pattern I’ve heard in my own headphones when I accidentally leave voice memos running. Same small pause I take before I exhale fully. But the timestamp didn’t make sense. It was dated for the next day.
 
-Inside was a notebook with my name on the cover.
+I remember laughing the first time I heard it. Actually laughed out loud. I told myself someone was messing with me—maybe the previous tenant left it behind as a joke, or the landlord had a twisted sense of humor. Then I heard the second recording. This one had no sleeping. Just silence for eight seconds. Then my voice, awake, alert—too alert: “If you’re hearing this early, don’t go to sleep in that room again.” There was a click after that. Like the recorder being set down.
 
-I want you to understand something about me before I keep going. I'm not a forgetful person. I remember things. Faces, conversations, the name of a kid I sat next to in third grade. My memory has always been the thing I trusted most about myself.
+I checked every room in my apartment after that. Nothing was different. Except I stopped sleeping in the bedroom.
 
-So when I started reading and realized I had no memory of writing any of it, I felt something shift in my chest. Not fear exactly. Something worse. The feeling you get when you realize the ground under you isn't as solid as you thought.
+Last night, I moved to the couch. That’s when the third recording appeared. I didn’t record it. But it was already waiting when I pressed play. And it only has one line: “You moved. That’s good. We adjusted.” After that, there’s breathing again. Not mine this time. Too close to the mic. Too steady. And then my voice—again, but wrong somehow, like it’s being shaped mid-sentence: “You’re writing this down now. That means you still think you can leave before midnight.”
 
-The first entry was fourteen months ago.
+I stopped the recording immediately after that. Because I wasn’t writing anything when I heard it. But now I am. And the recorder is on my desk again. Except I didn’t move it there.
 
-March 3rd. The sound came back tonight. I don't want to write about the sound.
+I sat still for almost an hour after that. The apartment made its usual sounds—pipes creaking, the refrigerator compressor cycling on and off. But underneath it, I kept thinking I could hear something else. A low, almost imperceptible hum, like a wire vibrating inside the walls. Or maybe that was just my pulse in my ears.
 
-Gone. That whole day, just gone. Not forgotten the way you forget a boring afternoon. I mean there is nothing there when I reach for it. Like a hole in the middle of my life that someone patched over so neatly I never noticed the stitching.
+Around 10 p.m., I decided to test something. I took the recorder and placed it inside the microwave. Not to destroy it—I wasn’t that brave—but to see if it could still move on its own. I shut the door, didn’t set a timer, just left it there. Then I sat on the couch with a clear line of sight to the kitchen.
 
-I kept reading. I couldn't stop.
+At 10:17, I blinked. That was all it took. One blink. The microwave door was open. The recorder was back on the counter, red light blinking softly.
 
-Every date in that notebook was a day I couldn't remember. Every single one. Weeks of my life just missing, and I had never noticed because the days around them were still there, still intact, and my brain had just quietly closed the gap.
+I didn’t play it immediately. I made tea instead. I’ve never made tea in my life. But I needed something to do with my hands that wasn’t pressing play.
 
-April 17th. I tried to call my sister today. I don't know why I couldn't finish dialing.
+At 11:03, I gave in.
 
-I don't have a sister.
+The fourth recording started with static—not the normal kind, but rhythmic, almost like syllables being erased in real time. Then my voice again, but layered. Two versions of me speaking at once, one slightly behind the other, like a bad echo.
 
-I'm almost certain I don't have a sister.
+“You think the apartment is the cage. It’s not. The cage is the time between when you fall asleep and when you wake up. We’ve been living there. You just never noticed.”
 
-June 2nd. The light is wrong again. It's always the same in here. I've stopped checking what time it is because it doesn't seem to matter.
+A pause. Then, softer:
 
-I put the notebook down and looked at my living room.
+“Don’t check your bedroom closet.”
 
-The light was doing what it always does. Sitting there. Flat. Unchanging.
+I didn’t. I swear I didn’t. But my feet took me there anyway.
 
-I thought about the last time I watched the sun move through my apartment and I couldn't find it. I couldn't find a single memory of standing in a different quality of light depending on the hour.
+The door was already open two inches. It’s never open. I keep it shut because there’s nothing in there except winter coats and a vacuum cleaner.
 
-I picked the notebook back up.
+I pushed it the rest of the way.
 
-August 9th. I found the door again. I always find it and then something happens and I forget. I think I'm supposed to forget. I think that's the whole mechanism.
+The coats were rearranged. Not thrown around—rearranged. One sleeve of my parka was tied in a loose knot around the vacuum hose. And written in the dust on the wall, in capital letters large enough that I had to step back to read them all:
 
-I read that four times standing barefoot on my bathroom floor.
+YOU SLEEP HERE. WE WATCH. TONIGHT IS DIFFERENT.
 
-I always find it.
+It’s 11:47 now. The recorder is on my desk again, even though I put it in the bathroom sink with a pot over it. I don’t know how it keeps getting out.
 
-How many times had I stood here. How many times had I opened this door and read this notebook and felt exactly what I'm feeling right now and then lost it completely.
+My phone says midnight in thirteen minutes. I’ve been writing this whole thing on a notes app, but now I’m looking at the screen and realizing—I’m not typing anymore. These last few sentences are appearing on their own. Not deleted. Not overwritten. Just… added.
 
-I reached back into the space and felt around the edges of the wall. In the back corner, taped flat against the plaster so carefully I almost missed it, was a piece of paper.
+The latest one just showed up: “You were right not to check the closet a second time. But we’re not in the closet anymore.”
 
-A phone number. My handwriting.
+I’m not going to turn around. I’m going to keep facing the screen until midnight.
 
-Two words underneath it.
+That’s the deal, isn’t it? That’s what the recording meant. “You still think you can leave before midnight.”
 
-Don't forget.
+Not leave the apartment. Leave the story. Stop writing. Look away. Pretend this is fiction.
 
-My hands were shaking by then. Actually shaking. I hadn't noticed until I saw the paper trembling.
+But I can’t, because every time I try to close the app, a new line appears. The latest one: “Seven minutes. Don’t blink again.”
 
-I didn't call the number that night.
+I don’t know who “we” are. I don’t know why they need me asleep. But I know one thing for certain now.
 
-I don't know why. Instinct maybe. Some part of me that wasn't ready for whatever was on the other end.
+When I played the fourth recording again just now—the one I didn’t make—there was something at the very end I missed before. After the breathing stops, and after the wrong version of my voice fades out, there’s a whisper. Quiet enough that you’d need headphones to hear it.
 
-I kept reading instead. The entries got shorter and harder to read as they went on. The handwriting getting smaller and shakier, like whoever wrote them was exhausted or frightened or both.
+It says: “Midnight is just when we start talking back.”
 
-October 14th. I think I understand what this is now. I really wish I didn't.
+The cursor is blinking. I’m not moving my hands.
 
-November 1st. I tried the door at the end of the hallway. It doesn't open from this side. I can hear things through it sometimes. Voices. Machinery.
+Four minutes. The closet door behind me just creaked.
 
-I live in an apartment. I don't have a hallway that ends in a door.
-
-I walked out of the bathroom slowly. I looked down the hallway.
-
-There was a door at the end of it.
-
-White. Same shade as the walls. Small silver handle. Right there. I have walked past that spot every day for two years and I am telling you I have never seen it. I cannot explain that. I cannot make it make sense.
-
-I walked to it and put my hand on the handle.
-
-Cold. Colder than anything in the apartment had any reason to be.
-
-It didn't open.
-
-But I could hear something on the other side.
-
-A sound like breathing. Slow and mechanical and steady. Like something working very hard to keep a rhythm going.
-
-I went back to the notebook.
-
-The last written entry was dated the same day I found it. Three weeks ago. A day I have no memory of.
-
-We keep finding this and we keep forgetting and I don't know how many loops we've been through. I stopped counting because counting made it worse.
-
-Call the number. That's all. Just call.
-
-I heard them talking through the door again last night. They're discussing stopping. I don't know what stopping means here but I know it isn't good. I know if they stop something ends.
-
-Then one final line at the very bottom of the last page. Barely visible. Pressed so lightly into the paper it was almost not there at all.
-
-If you can read this then you haven't come back yet.
-
-Please come back.
-
-I'm writing this because I'm terrified that if I don't get it out of my head and into somewhere permanent I'll wake up tomorrow and it'll be gone again.
-
-The phone is sitting next to me.
-
-I'm going to call.
-
-Update:
-
-I called.
-
-No one answered.
-
-But the moment the line connected I heard it, just for a second before it cut to silence.
-
-The same mechanical breathing sound from behind the door.
-
-I'm posting this now because I need someone to read it before I forget.
-
-And because I just looked at my bathroom mirror and it's pushed slightly open and I have no memory of closing it after I found the notebook.
-
-Which means I've already started forgetting.
-
-I know now that none of that was real.
-
-I was in a coma for two years after a car accident. What you just read was my life inside my own head while my body was lying in a hospital bed with machines keeping it breathing. I built an entire world, an apartment, a routine, a version of myself that felt completely normal, and somewhere underneath all of it some part of me knew the truth and kept trying to leave me clues. The door at the end of the hallway was the hospital room. The mechanical sound was the ventilator. The phone number was my mother's number, the one she's had for thirty years, and I couldn't remember it clearly enough to dial it.
-
-I woke up four days ago.
-
-I'm writing this because the doctors say it'll help to process it.
-
-What I can't stop thinking about is the last line I wrote to myself in that notebook.
-
-Please come back.
-
-I almost didn't.
+I’m not going to check. I’m not going to stop writing. That’s the only rule I have left.
