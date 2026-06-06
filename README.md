@@ -1,68 +1,84 @@
-# The voice recorder said I wouldn't make it past midnight. I am starting to think it was right.
-I’m writing this because the recording said I wouldn’t make it past midnight. I know how that sounds. I did too, at first. But I’m out of other explanations now, and I don’t have much time left to pretend this is a misunderstanding.
+# It’s Still Him
+You can call me sick. You can call me twisted. You can call me fucked for what I let stay in this house with me. I wouldn’t argue with any of it.
 
-The voice recorder appeared in my apartment three days ago. I didn’t buy it. I didn’t order anything. It was just… there. On my kitchen counter, like it had always been part of the clutter I’d learned to ignore. Old model. No branding I recognize. Cassette inside already. The first thing I did was rewind it.
+It started with the sound of bones snapping.
 
-There was a recording already loaded. It was me. Sleeping. At least, it sounded like me. Same breathing pattern I’ve heard in my own headphones when I accidentally leave voice memos running. Same small pause I take before I exhale fully. But the timestamp didn’t make sense. It was dated for the next day.
+I woke up around 3:15 a.m. to the loud, wet crack of something breaking. It wasn’t glass or wood, but *organic*. Thick and deep. Like a giant breaking its knuckles just outside my bedroom door. I jolted upright, my heart instantly in my throat. My dog, Jasper, usually slept at the foot of the bed. I reached down, but my hand met empty blankets. 
 
-I remember laughing the first time I heard it. Actually laughed out loud. I told myself someone was messing with me—maybe the previous tenant left it behind as a joke, or the landlord had a twisted sense of humor. Then I heard the second recording. This one had no sleeping. Just silence for eight seconds. Then my voice, awake, alert—too alert: “If you’re hearing this early, don’t go to sleep in that room again.” There was a click after that. Like the recorder being set down.
+Another sound came from the hallway. A dragging noise, then a low, guttural *chuff*. Not quite a growl but something heavier. Hungrier.
 
-I checked every room in my apartment after that. Nothing was different. Except I stopped sleeping in the bedroom.
+“Jasper?” I whispered.
 
-Last night, I moved to the couch. That’s when the third recording appeared. I didn’t record it. But it was already waiting when I pressed play. And it only has one line: “You moved. That’s good. We adjusted.” After that, there’s breathing again. Not mine this time. Too close to the mic. Too steady. And then my voice—again, but wrong somehow, like it’s being shaped mid-sentence: “You’re writing this down now. That means you still think you can leave before midnight.”
+No answer. Of course not.
 
-I stopped the recording immediately after that. Because I wasn’t writing anything when I heard it. But now I am. And the recorder is on my desk again. Except I didn’t move it there.
+I didn’t want to open the door, but the idea of my sweet lab-shepard mix hurt or scared out there flipped something inside me. I grabbed the baseball bat by the nightstand and crept toward the door. The smell hit me first. It was *hot*, almost meaty, with a copper- sour undertone that made my stomach turn. The door creaked when I opened it, and I immediately wished it hadn’t.
 
-I sat still for almost an hour after that. The apartment made its usual sounds—pipes creaking, the refrigerator compressor cycling on and off. But underneath it, I kept thinking I could hear something else. A low, almost imperceptible hum, like a wire vibrating inside the walls. Or maybe that was just my pulse in my ears.
+Jasper was in the hallway.
 
-Around 10 p.m., I decided to test something. I took the recorder and placed it inside the microwave. Not to destroy it—I wasn’t that brave—but to see if it could still move on its own. I shut the door, didn’t set a timer, just left it there. Then I sat on the couch with a clear line of sight to the kitchen.
+Or… something that had *been* Jasper.
 
-At 10:17, I blinked. That was all it took. One blink. The microwave door was open. The recorder was back on the counter, red light blinking softly.
+He was bigger. That was the first thing I noticed. Too big. His body stretched like it had been inflated unevenly. His ribs jutted in strange angles under taut, almost translucent skin. Patches of fur had fallen out in clumps, and his eyes - those warm, honey-brown eyes - were now a milky, pupil-less white. Foamy strings of drool hung from his jaws, which looked like they’d split at the corners.
 
-I didn’t play it immediately. I made tea instead. I’ve never made tea in my life. But I needed something to do with my hands that wasn’t pressing play.
+He looked at me, and for a second, I swear I saw recognition. He gave a soft whimper - a broken, pitiful sound. It still sounded like him. Just like my good boy who was scared of the vacuum and the neighbor's cat and always loved playing in the piles of raked leaves and could eat an entire rotisserie chicken from Costco if given the chance.
 
-At 11:03, I gave in.
+Then he lunged.
 
-The fourth recording started with static—not the normal kind, but rhythmic, almost like syllables being erased in real time. Then my voice again, but layered. Two versions of me speaking at once, one slightly behind the other, like a bad echo.
+I barely got the door shut before he collided with it, shaking the frame so hard a picture fell off the wall. I stumbled backward, clutching the bat like it would save me, my breath ragged. What the hell had happened to my dog? That wasn’t Jasper. Hell, that wasn’t a dog at all. 
 
-“You think the apartment is the cage. It’s not. The cage is the time between when you fall asleep and when you wake up. We’ve been living there. You just never noticed.”
+I didn’t sleep again that night. I sat against the far wall of my room with the bat across my lap, staring at the door, waiting. Listening. Jasper - or the *thing* \- didn’t make another sound all night. When the sun finally rose and light was coming through my blinds, I opened the door again but he wasn’t in the hallway anymore. The bathroom door down the hall was ajar however so I pushed it open slowly, bat at the ready. 
 
-A pause. Then, softer:
+Jasper was in the bathtub. He lay curled up, impossibly large, his limbs twisted under him like a broken puppet. His breathing was wet and shallow. His eyes fluttered open when I stepped closer. Still milky. Still wrong. But they focused on me as I raised the bat.
 
-“Don’t check your bedroom closet.”
+He didn’t move. Just watched.
 
-I didn’t. I swear I didn’t. But my feet took me there anyway.
+“Jasper,” I whispered, the word catching in my throat.
 
-The door was already open two inches. It’s never open. I keep it shut because there’s nothing in there except winter coats and a vacuum cleaner.
+He whined. Soft. Almost apologetic.
 
-I pushed it the rest of the way.
+I should have called animal control. A vet. A priest. Fuck I don’t know. *Someone*. But I didn’t. I went down to my kitchen, splashed cold water on my face, half-convinced this was all some fucked-up dream. I could hear Jasper in the tub upstairs and knew it wasn’t. I filled Jasper’s bowl with kibble and went back to the bathroom. I didn’t spare a second look at what was in my tub, I left the bowl on the floor and closed the door behind me.
 
-The coats were rearranged. Not thrown around—rearranged. One sleeve of my parka was tied in a loose knot around the vacuum hose. And written in the dust on the wall, in capital letters large enough that I had to step back to read them all:
+I didn’t know what to do. The changes kept coming. Each day, he looked… less like a dog. His back legs elongated. His shoulders hunched forward. His neck grew thicker. He started walking more like a person on all fours than a dog - slow and deliberate. 
 
-YOU SLEEP HERE. WE WATCH. TONIGHT IS DIFFERENT.
+He’d look at me with those awful, blind eyes and wag his thick, scaly tail when I came in. His breathing was always labored. He couldn’t bark anymore - it came out as this gurgling wheeze, like he was choking on something deep inside. I moved him to the basement where I made a bed out of worn blankets and old pillows and watched as he settled down, bones popping and twisting as he did so.
 
-It’s 11:47 now. The recorder is on my desk again, even though I put it in the bathroom sink with a pot over it. I don’t know how it keeps getting out.
+And I started having nightmares. I dreamt of a dark forest. Of something ancient, crouched behind trees, watching. Its breath steamed in the cold, and when it stepped forward, I saw Jasper’s eyes in its face. I’d wake drenched in sweat, half- expecting him to be standing at the foot of the bed. 
 
-My phone says midnight in thirteen minutes. I’ve been writing this whole thing on a notes app, but now I’m looking at the screen and realizing—I’m not typing anymore. These last few sentences are appearing on their own. Not deleted. Not overwritten. Just… added.
+He never was but the dreams kept coming so eventually I bought chains. Bolted them to the wall down there. I cried while I did it. I cried harder when I clipped the manacle around his swollen ankle. Jasper made a strangled sound that sounded half between a whimper and a human sob. 
 
-The latest one just showed up: “You were right not to check the closet a second time. But we’re not in the closet anymore.”
+Two weeks passed. I stayed home and told my job I had a family emergency and would work from home. I told my friends Jasper ran away. I stopped sleeping. I’d lay in bed, eyes on my ceiling and listen to the sound of nails scratching concrete. I tried calling a vet anonymously. They hung up when I described the symptoms.
 
-I’m not going to turn around. I’m going to keep facing the screen until midnight.
+One night, I caught my reflection in the bathroom mirror. My skin was pale. My eyes ringed with black. I looked like I’d aged five years in half a month. Something inside me snapped. I went down to the basement with the bat and told myself it was time.
 
-That’s the deal, isn’t it? That’s what the recording meant. “You still think you can leave before midnight.”
+He was curled in the corner, chained, breathing heavily. When he saw me, he lifted his head and made that soft whine again.
 
-Not leave the apartment. Leave the story. Stop writing. Look away. Pretend this is fiction.
+“Jasper,” I said.
 
-But I can’t, because every time I try to close the app, a new line appears. The latest one: “Seven minutes. Don’t blink again.”
+He lifted one grotesque paw - hand? - and dragged himself upright. Something popped in his spine as he stumbled forward.
 
-I don’t know who “we” are. I don’t know why they need me asleep. But I know one thing for certain now.
+I raised the bat.
 
-When I played the fourth recording again just now—the one I didn’t make—there was something at the very end I missed before. After the breathing stops, and after the wrong version of my voice fades out, there’s a whisper. Quiet enough that you’d need headphones to hear it.
+He stopped. Sat. And lifted one limb.
 
-It says: “Midnight is just when we start talking back.”
+*Shake.*
 
-The cursor is blinking. I’m not moving my hands.
+It was the trick I taught him when he was a puppy. It looked wrong now, the motion jerky, his limb ending in clawed digits. But it was there. The gesture.
 
-Four minutes. The closet door behind me just creaked.
+“Jesus Christ,” I whispered. I fell to my knees and sobbed until I couldn’t breathe.
 
-I’m not going to check. I’m not going to stop writing. That’s the only rule I have left.
+He shuffled forward and laid his huge, misshapen head in my lap.
+
+That was three months ago.
+
+The chains are gone. I leave the backdoor cracked at night sometimes so he can go into the yard. He always comes back before sunrise.
+
+His eyes started turning brown again. Not human and not dog but something in between. Sometimes, when I feed him, he sits like he used to and I swear I saw his tail wag last week. I read every forum, every occult site, every bizarre medical case. Nothing explains this. Nothing helps.
+
+But… he’s still Jasper. I *know* it’s still him. It’s my Jasper.
+
+The other night, I woke up to find him at the foot of my bed.
+
+Not standing. Not looming. Just *sitting* and watching me. I should’ve screamed and maybe even reached for the bat. But instead, I said, “Hey, buddy.”
+
+And he made that same broken whimper. Then he lowered his huge head to the floor and I fell back asleep. His dog bed, the big fluffy grey one he always loved, is back in its place at the foot of my bed.  
+
+Listen, I know how this all sounds and I know none of it makes sense but I just don’t care anymore. What Jasper has turned in, whatever he is, he’s still my dog.
