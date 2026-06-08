@@ -1,122 +1,370 @@
-# I am a Vampire Who Works Night Shift (Part 5)
-I arrived at Our Savior Lutheran Church at seven twenty-five at night, having cut it close to avoid the wrath of the sun as much as possible. I walked up to the large wooden structure, remembering happier times when I went with my parents as a small child.
+# The Man on the Bed Has My Face
+I woke up on the side of a highway. I don't know how I got here, but in my pocket, a message says help me.
 
-I saw that silver Honda in the parking lot. I hoped it belonged to someone else, but almost by instinct I knew that Peter was here. Walking through the unlocked doors of the entrance, the familiar scenery looked vastly alien in the darkness of night. Every light was off, save for one. Down the hall just left of the entrance to the sanctuary, on the very end office, light shone through a square window.
+Cars are whisking by. One after another.
 
-I walked down the hallway, taking in the sights long since forgotten, until I spotted a photograph of my father and Peter, shaking hands with the pastor between them. I don’t know why I didn’t have any strong memories of Peter. I’m sure I saw him as a kid. The congregation was so small that I would have had to. If my dad had been around him so often, why had I not seen them together?
+The third one. It wakes me. I get up. Gasp for air.
 
-I approached the door to Pastor Jung’s office. He was sitting there at his wooden desk, Bible opened, staring at the window, at me. “Come in, Alex.”
+I cough.
 
-I opened the door. The squeak of the hinges shrieked softly down the empty hallway. I shut it. The clicking of the latch seemed impossibly loud against the silence of the room. The Pastor gestured with his hand to a chair in front of his desk. Next to it sat an antique mirror. I sat down.
+Something sticky in the back of my throat.
 
-“So, why did you want to talk to me?” Jung said with a smile. He looked at me, but for the smallest fraction of a second, I saw his eyes wander to the mirror.
+I ponder.
 
-“It’s really a long story. I don’t even know how I’d begin.” My eyes moved from him to the strange shadeless lamp that sat on his desk. Something about it made me terribly uncomfortable, almost as much as the cross he wore around his neck.
+What the fuck am I doing here? I look at my surroundings. Black, dark. The only light illuminating from the cars whisking by. I check my phone. In my pocket.
 
-“I have plenty of time, truly. I think I may be far more believing than you would expect.” He smiled, but there was something not right about it. I had known this man for a decent portion of my life and seen him smile, genuinely smile. It seemed like he was putting on a show.
+I search.
 
-“I… I think I’m a vampire.”
+No phone, but a note. I open it up. Red stains all over it. I look at it. It says: *Motel room 19. 3 am. Go there. Follow the road up and you'll see.*
 
-“I know, and I’m sorry.” The Pastor pulled the cord on the lamp, illuminating the room in blue light. It burned. I fell out of the chair, clutching to my blistering exposed flesh. “That mirror is genuine silver. You bared no reflection.”
+What the fuck?
 
-“Why?” I cried through gritted teeth.
+I peek over to the middle of the road. Far off in the distance, I see a small light illuminating. "Okay," I whisper.
 
-“Because it’s the job of the church to deal with those things that run opposed to the natural order of God.” My eyes were tight shut, but I could hear the voice. It wasn’t the Pastor. It was Peter. “That is precisely what I did with your dad. I’m sorry it came to this. If we killed Renaud you never would have turned.”
+I start to walk. Walk toward the light.
 
-“But I didn’t do anything. I haven’t killed anyone!” I threw my hands up in a desperate attempt to defend myself. I felt a hand against my chest, shoving me to the ground.
+My head is foggy.
 
-“Not yet, praise Christ, but you will. That’s why we need to do this.” Peter’s voice was filled with sadness, but he didn’t stop. I felt something sharp and wooden over my chest. I braced myself for the end, then the pain stopped.
+A headache pounding following the rhythm of my heartbeat. Did I get drunk? I can't remember. I just keep following the road. I check my phone. It's cracked. No battery.
 
-“What’s happening?” I heard Jung say.
+The fucking red sign you get when your phone is dead. Fuck. I keep walking.
 
-“Looks like Renaud’s getting bold,” Peter replied.
+Walking.
 
-I opened my eyes to a dark room. I could see. They couldn’t. Now was my chance. I rushed towards the door. I slammed the door, turned around, and felt a sharp pain in my shoulder. Standing in front my, holding a tri-edged dagger that was firmly planted inside my body, was the old man.
+Walking some more.
 
-Terror filled my eyes as he looked at me in abject hatred. The glass of the window attached to the door shattered as a crossbow bolt flew through it. It struck the old man in the ear, and he released his grip on the dagger. I limped down the hallway to the sound of chaos behind me. I heard Peter screaming for the Pastor to get down. I heard the old man scream something in what I thought might have been French. I didn’t stop to see what was happening. I just ran.
+Silence. The kind you can only hear on a cold desert night.
 
-I drove home in my car, not sure what else to do. It was in the parking lot that I realized the dagger was still in my shoulder. I removed it. It was very simple in design. It had three edges and discs on either end of the handle. It looked like it belonged in a museum.
+My phone buzzes. It makes me jump. What the fuck? Is the phone supposed to be dead?
 
-I should have called in, but I went to work anyway. My wounds healed rapidly, but I began feeling hungry again. Carrie was at the door, waiting for me. “You alright, man? You look like crap.”
+Bing. Bing. Bing. Bing. Bing.
 
-“Y—yeah, just had a rough day.” I knew that to be an understatement but didn’t want to let on just how rough a day I had been having. “Have you seen Greg?”
+I frantically pick up the phone. I wipe left. The messages pop up.
 
-“Your friend with the acne? No, I haven’t.” I felt a twist in my gut. Bill walked up, the bald spot of his head shining bright.
+They are images. Images of the highway that I am walking on. I scroll through the images. The light looks the same.
 
-“You know where that greasy like twig you hang around with is? He’s been missing for three shifts in a row.” Bill sounded less worried for his wellbeing and more annoyed.
+Then. A message. *Keep walking dear, almost there.*
 
-“No, I don’t,” I said, sharing three more words with Bill than I ever would care to in any circumstance. I could kill him, I thought. His fat pompous ass would satisfy me for a month, drained white and sucked so dry of blood he’d mummify.
+I frantically turn around. Check my surroundings. Empty. Dark.
 
-“Well let me know when you do,” Bill said before storming off back to the registers. My eyes followed him. I imagined hanging him upside down and bathing in the crimson from his veins, of slicing his heart open and scooping out the fluid with a cup, of…
+Emptiness.
 
-“Alex, you okay?” Carrie said. I turned to look at her, not processing fully the words but noticing the profound look of concern on her face.
+I feel my heart. It's pounding.
 
-“Yeah… I’m fine,” I lied.
+I take a breath.
 
-“Did you know they found a rat today?”
+Another.
 
-“Really,” I said, having had my fill of small rodents. Maybe this one spoke too. I most certainly hoped not.
+Exhale.
 
-“Maybe he’s keeping that bat company,” Carrie said, giggling a little. Seeing her laugh made me feel less nervous about everything. I could delude myself into thinking everything would be alright for just a while longer.
+I continue on my journey. The light illuminates further as I walk toward the motel. I try to call out to cars, but they are silent, journeying to their destination without pause.
 
-“Hey, before I forget. Mom wanted to know if you could join us for dinner.”
+Why am I drawn to it?
 
-“Sure. She nervous about her baby boy moving out of the house?” Carrie teased.
+There is something pulling me towards it. I could just ask someone to take me home. But I don't.
 
-“Probably,” I chuckled. “She’s super religious though, so heads up.”
+My body physically can't. It just wants to walk to the light.
 
-“Oh.” She looked a little nervous when I brought that up. “My dad is too. I know how to navigate it. It’ll be fine.”
+Why? I can't explain it.
 
-Given what she had told me last night about her dad, I imagined she had far less to worry about with my mom but didn’t know how to explain it to her. I was really missing Greg’s bluntness right now. Where was he?
+I'm here. Finally. The motel is dark. The world is asleep except for me. But a light. One light. Second floor.
 
-We started our shift. David warned us about the rat. I was alone, stocking pet food. I smelled something sweet from somewhere above me. My stomach pleaded with me for something to fill it. I dropped the bag of dog food I was holding. It split open, spilling kibble onto the floor. I climbed the shelf and followed the scent to a vent on the wall. The cover was open. On the end, sat a rat. And just beyond it was a severed head, face twisted in agony, acne marking its cheeks. It was Gregg.
+Is that where I am supposed to go?
 
-Instinct took over. I grabbed hold of his head, and drank until there was nothing left to drink. The rat looked up at me, and as I returned to my former self, staring in horror into the tormented eyes of my dead friend, whose blood dripped down from my chin, I heard the rat speak. “Bring me Rachel, or Carrie is next.” It was the old man’s voice.
+I open the gate. The motel. Typical, two floors with a pool in the middle. Like every SoCal apartment complex. Middle class. Nothing spectacular.
 
-I fell from the shelf, dropping on my back to the floor. Greg’s head rolled down the aisle before being stopped by the ripped bag of kibble. The rat dropped down, turning into the old man as he landed on his feet. He picked up the head, Greg’s head, and smiled at me. He vanished into mist, along with the remains of my friend.
+I walk toward the middle of the complex. I see a pool, it's dark. A floating flamingo bouncing around in the middle.
 
-I was distant with Carrie for most of the day. She must have noticed, because as we clocked out she confronted me. “Hey, what’s going on?”
+I hear the ripples and sounds of the water, other than that, complete silence.
 
-“Nothing, it’s just…” I couldn’t tell her. I couldn’t let her die. I couldn’t let Rachel get taken by that creep. “Do you think I could move in tomorrow. I know it’s sudden, it’s just…”
+Not silence. The silence you feel in a city. Cars whisking by. Ambulances wailing. That type of silence. The silence that any city dweller recognizes as silence.
 
-She laughed. I shrunk a little. She saw my demeanor and was quick to correct herself. “I wouldn’t mind the company. Besides, I’d feel a little safer with you there.” I was so flattered by the remark that I didn’t think to ask what it was she’d feel safer from.
+I start walking up the stairs. My heart starts to beat.
 
-“I’m glad. I bet mom’s going to want to meet you sometime today then. She won’t be bothered, I’m sure.” Though I was certain that I would be. I could already picture my mom doing all the things that made me cringe. “I’ll see you around six or seven tonight. I’ll text you the time after I talk to her.”
+Faster. Faster.
 
-I walked out alone into the lot, still thinking of Greg. Poor Greg. He died because of me, because he was close to me. I was determined that no one else would die. I had to kill that old man.
+A gut feeling. I am reaching somewhere I will regret.
 
-The bat sat at the driver’s side mirror of my car once more. Furious, I stormed towards it. “You tried to get me killed.”
+Why do I still keep going? I can't fucking stop.
 
-“You’re already dead, Alex. I was just trying to lay you to rest, like I did for so long all those nights I went out.”
+The light is bright. Too bright. Do lamps illuminate that much? I think as I creep closer to the door.
 
-“Who are you?”
+I keep inching toward the door. The light is too bright. The light is warm. As I inch closer to the light, it feels like I am being bathed in sunlight. It feels.
 
-The bat transformed. I stepped back as the figure appeared before me. I recognized the greying hairs, the familiar stubble, those eyes which mirrored my own. It was my father.
+I don't know.
 
-“Dad?”
+Familiar.
 
-“Hey, son. It’s been a while.”
+I reach the door. I knock. "Hello?"
 
-I don’t know what emotions I should have felt, and I’m not entirely sure that I knew what emotions I was feeling. Anger, sorrow, joy, frustration, just a mess of everything assaulting me all at once cascading together until I found one singular word to search for a reason to justify every single feeling. “Why?”
+The door unlocks. I hear it, and it opens.
 
-“I am a church trained vampire hunter. I turned when fighting Renaud, that old man you keep seeing. I was too much a coward to have Peter put me down but couldn’t stand the thought of putting you and your mother in danger. So, here I am.”
+I pause. The light is so bright.
 
-All those years gone. He had lied to us. “Did mom know what you were doing all those nights?”
+"Okay," I say to myself.
 
-“No. She never needs to.”
+I walk in. The light engulfs me.
 
-In the swirl of emotions I found one feeling and clutched on to it. It was anger. “I lost my faith because of you. Did you know that? Did you know how long I waited, how long I prayed for you to come home? I gave up on you. I gave up on God. Do you know how much that hurt mom, to see me like that? Do you know how much it hurt me?”
+The light disappears. I see myself on the bed.
 
-“I’m sorry.” It was all he could say. It wasn’t enough.
+I inch towards myself. I know that sounds weird. But it's not me. I notice its hands. There are four fingers. I notice its face. The eyes are too far apart.
 
-I pushed past him, entered my car, and drove away. Tears fell against the steering wheel as I raced home. I dried my eyes and entered the apartment. Mom was sitting there, sipping coffee and reading her Bible.
+I fucking know my eyes. But at first glance, it looks like me.
 
-“Hey kiddo, how was work?”
+I notice it. It's sitting on the bed, consuming a beer, its belly protruding. Something I would never do.
 
-“Messed up,” was the only response I could give.
+It's smiling and enjoying itself on the bed, so comfortable, so free.
 
-“You want to talk about it?”
+I ask it, "Who are you?"
 
-“Not really.”
+It doesn't pay attention. It just enjoys itself and the TV in front of it.
 
-Carrie is going to be over for dinner at six thirty today. Mom is ecstatic. I could never tell her about dad. I hope he stays away. I wish he had stayed missing.
+"Who the fuck are you?" I yell.
+
+It turns and looks directly at me. Piercing my soul and making my stomach drop to the point I feel like puking.
+
+"I am just here. Waiting for you." It smiles and exposes its dark, voided mouth with rotten teeth.
+
+"Why are you waiting for me? Did you write this note?" I pull it out.
+
+"Maybe, maybe not."
+
+"Why do you look like me?"
+
+"I am you."
+
+"What do you mean?"
+
+"Exactly what I said."
+
+It drinks a beer, looking at me.
+
+"Man, I don't get it."
+
+"You do."
+
+It gestures toward the bed and pats it.
+
+"Come sit."
+
+My body gives out. It walks. It walks toward the bed, even though I don't want to.
+
+It pats the bed and gives its dark smile.
+
+"Come on, sit."
+
+"I am going to show you something that will thrill you."
+
+My heart jumps up to my throat. My body is convulsing. I can't form a sentence.
+
+"What, erm, what do you mean?"
+
+"Let me show you. Come sit." It pats the bed and motions me to sit down. I do.
+
+Why, I don't know. But I do.
+
+I sit. He looks at me. He smiles. The dark death of breath spilling through his teeth to my face. I try to stay calm. Stay normal. Even though my stomach is saying something else.
+
+He hands me a beer. Fuck. I don't drink, but right now I'll take it.
+
+"Drink, drink."
+
+I open the beer. The crisp air pops as I pull the tab.
+
+I drink.
+
+"Yummy, right?"
+
+"Cheers."
+
+He pulls my hand towards his. The beers smash together. Clink. Some beer spills out of the can.
+
+As I pull back, I notice something. I only have four fingers. What?
+
+Like him. The ring finger. Gone. A scar that is clumped where it used to be.
+
+What is going on?
+
+"Let's go slowly. First, watch."
+
+"Watch fucking what!" I say.
+
+He takes out the remote and presses a button on the screen. I see it. A birthday party. People smiling. Then I see something. Myself. It's a birthday party I forgot. My 19th birthday. The day I got accepted to law school, which made the day all the more festive. The day before everything started to turn to shit.
+
+"I remember that day. How do you have this video?"
+
+It looks at me. It taps its head. It smiles.
+
+"Want to see more?"
+
+"I don't know if I do."
+
+"You do."
+
+My stomach starts hurting. I know what's coming. My mouth fills with saliva, building and building. I cannot hold it in. I run to the bathroom and vomit in the toilet bowl. I see blood.
+
+I stare at it. The bright red but dark color.
+
+I touch my stomach.
+
+The saliva ramps up again. I puke. All a rich red.
+
+I wipe my mouth. And gargle under the sink water.
+
+I go back and see it looking at me. It has blood running from its mouth.
+
+"Sit, sit."
+
+I feel uncomfortable.
+
+"Watch, watch."
+
+Another scene. Another video. I see myself. I look at the grotesque creature in front of me. It starts to play the video. It's me moving to a new house, all happy, full of new memories. I watch it with tears welling up in my eyes. I forgot the feeling I had to restart, to start anew. I keep watching.
+
+Watching.
+
+The video then cuts to me and Sam fighting. We are screaming. The end of a relationship. I just wanted him to be honest with his feelings. But he gave me attitude. I was mad. I wanted revenge. I wanted his blood. But I loved him too much to hurt him, so I wanted to take him down.
+
+I did.
+
+I called the cops on him that night. Made sure they knew he was drunk. It was a felony, right?
+
+Did I do him dirty? Yes. But he deserved it. He crushed my soul. Made me feel like nothing. As if I didn't feel anything anymore.
+
+The creature looks at me, smiling, his belly leaking pus and fluids. He laughs.
+
+"More."
+
+Another home video, from a time that has already passed. But this time it's something different.
+
+He shows the speedometer. Going fast. Faster. A first-person view of someone who is driving fast. The person in the video grabs a bottle next to him and swigs it.
+
+The steering wheel starts to oscillate back and forth. He can't control it. He slams the brakes.
+
+SCREECH!
+
+The car rotates and falls to the ground. The person breaks out of the window. Falls toward the pavement.
+
+CRACK. Bones break.
+
+As it does, my back cracks. I fall on the floor. The creature laughs. A wet growling laugh that makes my skin crawl.
+
+"Keep watching," the creature says.
+
+I look down, but the creature's hands reach me. He pulls my face to the screen. Slams it on the monitor.
+
+"Watch."
+
+I watch. I see the car turn on the middle of the highway. A car slams into it.
+
+A woman falls to the pavement. Bone snap. Her head hits the floor.
+
+I recoil. I want to puke again. The camera inches closer to the woman. Somewhere in the mess of blood and bones, a labored breath. Choking. Almost crying. She tries to gulp a breath of air.
+
+Her hand. The wedding ring catches the light.
+
+I notice the bated breaths and see her convulse trying to reach her car, brains spilling out of her head, then she just drops. All humanity is gone. We notice it. We all do. When the soul is gone we can see it. Just a shell is left.
+
+I reach in my pocket. I don't know why.
+
+The ring. Her ring. I have been carrying it the whole walk.
+
+My stomach hurts. Like it wants to explode. The pressure builds and rises to my head. My eyes start to water. Tears streaming down.
+
+"What the fuck are you showing me?"
+
+"You."
+
+The memories start piling up. The car crash. The bar. The shots. The instant gratification. The beautiful man sitting in the corner who would not talk to me.
+
+The shot.
+
+More and more merry conversations I won't remember.
+
+Another shot.
+
+I finally get the courage to talk to the handsome man with bulging biceps.
+
+A shot.
+
+Me flirting with the man. All is foggy.
+
+A shot.
+
+Me putting my mouth to his face and him rejecting me.
+
+Two shots.
+
+Tears are falling from my eyes as I tell the bartender my sob story.
+
+A shot.
+
+Saying goodbye to all of the people at the bar. Hugging, kissing, the smell of smoke and dirty sweat.
+
+The car. I see the car. Foggy. A man comes up to me. Tells me I can stay over at his place next door. He's hot. I should say yes. But my body doesn't want to.
+
+I tell him no. No worries. I'm good. I'm not drunk. The words every drunk says.
+
+The car. I walk toward it. I get in. Sit.
+
+I take a breath. I'm not drunk. I am only ten minutes away. All is good. I look at the rideshare app on my phone. I see.
+
+33 dollars.
+
+No fucking way I'm paying that. I close the phone. I start the engine.
+
+Back at the hotel. I puke. I fall to the floor.
+
+"Why so sad?"
+
+"You consume. I consume."
+
+"Where am I?"
+
+"You with me. Again and again and again and again and again."
+
+He smiles. His rotten teeth protruding.
+
+"You me again and again."
+
+"You'll always be me."
+
+"Forever."
+
+He hands me a beer. "Drink!"
+
+I acquiesce and drink it. I don't know what else to say. My stomach is starting to burn. I need to puke again. I find my way to the bathroom quickly. I vomit. More rich, velvety red coming out. I look up to the mirror. I see myself.
+
+My brain is protruding. I'm missing a finger. My eyes are white. The iris without color. A balding head. My stomach protruding.
+
+I clean up my mouth. And go back to the main room. It is gone.
+
+A note on the bed. It says *Drive*.
+
+I look in the mirror. I now look like that monster. The creature I despised. It's me now.
+
+The clock on the wall. 3:00 AM.
+
+I reach in my pocket. The wedding ring is still there. And a phone. Not mine. A new one. One drafted message, ready to send.
+
+*Help me.*
+
+I leave the motel room. I walk down the stairs.
+
+The pool is empty. The flamingo is gone.
+
+Time to find another lost soul. Someone in purgatory. Not good, not bad, just human. But not anymore.
+
+I sit. I sit in the car so someone else could know.
+
+I didn't mean to drink. I didn't mean to drive.
+
+I have been punished to oblivion.
+
+I am sorry. I regret my poor decisions.
+
+If you happen to find this post. Just know I was human once.
+
+Time to go.
+
+I drive. I drive into oblivion.
