@@ -1,208 +1,388 @@
-# My Workplace Started a Compliment Jar. Now, No One Has Any Privacy.
-I don’t think I have had any privacy for a few weeks.
+# Something in the Appalachians wants to know what I'm afraid of.
+I had no idea just how much blood was in the human body. Not until I found a dead one.
 
-I work for a third-party call center that operates out of a long-shut-down department store in a walled-off section of a half-shuttered mall. The windows are all boarded up, and we have to use the metal doors in the back.
+Like I knew it was a lot but damn…
 
-We handle customer service for multiple businesses, so one minute I could be helping a woman reboot her Wi-Fi, and the second that call ends (I mean that literally), I will be helping a man reschedule his refrigerator delivery.
+You don’t realize just how much it is until you see it for yourself. 
 
-If there is one saving grace to this job, it’s the variety. For many, though, that isn’t enough to make up for the fact that we only get a 15-minute lunch and a cumulative 10-minute break time, including bathroom breaks. You want to make sure you use it because it can’t be carried over to the next shift, but you get written up for going over the allotted break time. Turnover was so bad that experienced reps were spending more time training new reps than taking calls. Management started calling it a measurable loss of productivity.
+Sorry, sorry, I’m getting ahead of myself. I’m a little on edge coming back to these memories after so long, but my therapist said talking about trauma is healthier than pretending it didn’t happen, so we made a compromise for me to post what happened on here, since I don’t really have friends, lol.  
 
-One coworker of mine, Sharon, sort of acts as our de facto HR. The branch can't even hold a legitimate HR employee, which should tell you a lot. Sharon’s a middle-aged woman who used to work in social work, but this unfortunately paid better. A few weeks ago, she took it upon herself to fix the turnover problem.
+Well I did but… anyways
 
-Her solution? A compliment jar where we write nice things about one another, and once a week, Sharon opens and reads them to everyone during the shift. She hoped that it would boost morale and get employees talking to one another outside the confines of work.
+Some really screwed up horror story level shit happened to me (and others in my town) a few months ago.
 
-Everyone groaned at the idea of another task to complete for the week, but she assured us that participation was encouraged but not at all mandatory. She just wanted “everyone’s hard work to be seen.”
+Which I guess is my fault when I decided to live in the Appalachians. I’ve heard so many stories of things living in the mountains. Stories of people going missing, unexplained noises in the woods, and things going bump in the night. I never thought any of it would happen to me.
 
-At the end of the first week of her new experiment, Sharon gathered us all around and stood behind her desk. She reached her hand into the jar and pulled out the first folded-up strip of paper and read it aloud.
+But obviously I was wrong. So very wrong.
 
->“Tim is always patient with the assholes.”
+Now I barely sleep. Every unexplained sound and static tone puts me on edge. Some nights I wake up, unsure if I can really trust what I’m seeing.
 
-I wasn’t really sure who Tim was, and by the squeaking chairs and silence, I don’t think many of us did. Someone finally broke the silence with a little clap. No one knew how to act after each compliment was read aloud. But in the end, we resorted to half-assed clapping between compliments like:
+For some background, I had recently moved to a house just outside the small city of Bristol, Tennessee (or Virginia depending on who you ask but my house is on the Tennessee side). I’ve always lived in the south, and never much liked the city. I was always outside taking pictures of bugs, catching lizards, riding my bike down dirt roads, or sitting in a hammock in the middle of the woods on my parent’s property.
 
->“Alice makes the best coffee in the breakroom.”
+Even after growing up and going through high school and becoming an adult, I still loved being outside in nature, and especially loved the mountains. Some of my favorite memories as a kid are of camping and hiking trips with my family. We’d go to places like Dahlonega or Helen and visit various state parks throughout the Appalachians. It’s been my dream to hike the whole Appalachian trail one day. So, I decided I wanted to live there.
 
->“Thank you, Emma, for fixing my headset.”
+I will say, finding a good career in the middle of nowhere at the top of a mountain range is not the easiest thing for a person to do, but I had been been getting by with my job at this trampoline park at the edge of the town. Pay isn’t amazing, but it gets me by until I find a real job.
 
->“If you need to troubleshoot a TV, you can always count on Blake.”
+I picked a bad time to move though. First thing I remember about when things started getting weird was watching a news coverage with my friend Hornet.
 
-People didn’t really know how to act when their names were called either. Some stayed in their seats; others stood and gave an awkward wave to the crowd of colleagues. The whole thing seemed performative to me at the time, and I thought this would die out quickly.
+We were sitting together in my house before work one morning, watching the local news, when they covered a story that I didn’t believe was real at first. Someone had leaked information about some bodies the police had been finding around town. Well, “bodies” isn’t quite the right word… the news called them bodies but pretty quickly everyone began referring to them as “husks”. The police supposedly did their best to hide their findings to avoid panic but nothing stays hidden forever, I guess. If they wanted to hide it so bad, I don’t know how it got leaked that quickly. But one of the officers’ husks was found, so maybe it was his dying act or whoever did that to him forced him to share it or something.
 
-Sharon always took the jar home with her in the evening. A few days after the first reading, Sharon walked past my desk with the jar tucked under her arm.
+If only I had known how little those husks mattered compared to what was coming…
 
-“Bill, how do you think this is going?”
+And when I say “husks” it’s exactly what it sounds like. They began finding the skin of people and animals just laying around in random spots. But it wasn’t like they were skinned to eat or to reach what’s underneath. There was only one incision in every husk, from the base of the neck down to the lower back, and they were cleaned out completely, almost like they shed their skin like a praying mantis. Strangely, there was never any other sign of foul play. No blood, no foreign DNA, no sign of where the rest of their body was. And stranger still, there was a layer of... something on the inside allowing it to hold its shape as if it wasn’t hollow.
 
-I looked around at the busy office, and then back to Sharon. “Well, no one is crying.”
+“Wow they’ve invented starched skin”, Hornet said.
 
-She laughed.
+“Seriously, dude?? People and animals are getting killed and perfectly skinned and taxidermized or something without a known cause and that’s your first thought?” I replied.
 
-“I know all of this is corny,” she said, “people are miserable here. We get screamed at for eight hours, then we go home and worry about the next day, wondering if anyone would notice if we didn’t come back.”
+“Well if you don’t recall, we have our training thing planned later in a clearing next to the woods. The woods that are not near any civilization. I don’t know about you, but I’d rather not freak myself out about a potential killer roaming the mountain just yet.”
 
-“Management would notice.”
+“But… they, or it, or whatever is already out there.” I gave him an overdramatic confused look. “Pretending it doesn’t exist is stupid. Plus, we’ll have guns.”
 
-“Only if the call queue backs up.”
+We would train together once a week to learn a new self defense skill, usually from a YouTube video or something. Today we wanted to teach ourselves how to disarm an attacker with a firearm, assuming we’d be in a situation where said attacker would be that close to us.
 
-“You think this will fix that?” I asked, as I pointed to the jar. There was no way in hell this office could keep that going.
+“Even more reason not to be afraid of it,” he replied, waving me off.
 
-She shrugged, “Maybe it will get people to at least look at each other.”
+“Whatever, Hornet. Just know when you get raped and skinned by the starch monster, all you’re getting from me is an ‘I told you so’”.
 
-By the next reading, I thought I was right when the first few were basically just praise for always being on time for work. It looked like the compliments were getting lazier. We had already run out of nice things to say to one another, and we were just grasping at straws to find something to add. Then there was,
+He rolled his eyes. “Why do you still call me that?”
 
->"If you think you’re on a tough call, just look over at Josh.”
+“Call you what? Hornet?”
 
-That one got a laugh out of me because Josh always seems stressed out of his mind. After that, more ended up being funny:
+“Yah.”
 
->“Madison, I love how your chair squeaks in rhythm with the hold music when you need a little break on the line.”
+I shrugged. “Cause its still funny.”
 
-Sharon seemed so proud because it seemed this initiative was actually going to take off. To her credit, it really did seem like the office was a brighter place. There were more conversations between people on their breaks, and just a lighter general mood in the office.
+His real name is Hudson, but one day shortly after we met, he got distracted gawking at this girl down the street while we were riding our bikes and he slammed right into a 1951 Hudson Hornet parked in the street. I thought the coincidence was funny and I’ve called him Hornet ever since.
 
-Over the next week, I found some of the conversations at work to be extremely awkward, but it was better than before. Anything was better than nothing. On Wednesday, David came up to me while I was getting a cup of coffee that Alice had brewed for everyone.
+My cat, Jack, jumped on the back of the couch we were sitting on, his claws ripping at the velvet, and meowed right in Hornet’s ear, before jumping on his lap.
 
-“Are you having to leave home earlier to get here on time?”
+Hornet jerked his head back and sneered at the cat while handing him to me like he was holding a biohazardous material. 
 
-I finished my sip, cleared my throat, and asked, “I’m sorry?”
+“I think your thing is hungry,” he said.
 
-“I mean, with all that roadwork on Laurel Street. Do you have to leave for work earlier?”
+I just laughed and praised Jack jokingly while Hornet brushed the fur off himself with his hands.
 
-Now, I know I didn’t tell him where I lived; I only knew his name was David because he had a tag with his name on his cubicle. But the road work two streets down did delay me, and it was extremely annoying. “Yeah, do you live around there too?”
+I started petting Jack, when he suddenly tensed up and flattened his ears, growling at the kitchen. I turned toward the kitchen, but nothing was there. The only thing out of place I noticed was the fridge making a high pitch tone, barely loud enough to hear.
 
-“No, just read about it in the paper.”
+“That’s obnoxious.” Hornet said, scrunching his face. “Has it always done that?”
 
-David was a strange guy. Maybe I had mentioned my street before.
+“No” I replied. “That’s new. I’ll have someone check it out later”
 
-The third week, Sharon confidently announced the reading of the compliments. As she unfolded the first sliver of paper, she paused, furrowed her brow, and then chuckled before reading,
+I wasn’t sure why Jack was so spooked because the TV made similar tones, but after a second the noise stopped and he calmed down.
 
->“I’m happy that Alice got her oil changed over the weekend; that sound was really starting to bother me.”
+I got up and gave Jack his food, which was also my alarm to leave for work. If you train your cat to eat at specific times, you won’t have to set alarms. They will make sure you remember.
 
-The regular clapping commenced as Sharon looked up at the crowd. “Is that an inside joke or something?”
+As I left, I told Hornet to make sure he locks up the house when he leaves. He still lives with his parents, so he crashes with me a lot.
 
-No one responded, so she continued,
+On my way to work for my shift at 10:30, I ended up driving behind my new coworker, Addie. She recently moved here from Colorado. I didn’t know her too well but we had fun driving to work. When I first saw her, she had been following me all the way to work. She had also been crossing paths with me at the store earlier that day, so I thought she was a stalker or something. But I ended up figuring we just have the same schedule and happened to be at the store at the same time. As such, we follow each other to work pretty much every day. It’s usually her following me. Our schedules are always the same. We’ve made a sort of game out of it, copying movements of whoever’s in front, sort of playing chicken with reckless driving.
 
->“Tim, your son really seemed to enjoy the clown at the birthday party last week.”
+I’ve talked to her a few times, and her life is pretty boring. Outside of work, she just watches hallmark movies and reads. She doesn’t have any pets either. Heck, she doesn’t even have any wildlife on her property at all. At least not that I’ve noticed from the road. I thought that was odd but figured she just didn’t like animals or something. Still, it takes a lot of commitment to keep all wildlife off her property.
 
->“Elizabeth! Your stylist was so right to suggest that color. I am so happy you changed your mind in the chair.”
+Recently she had been off; following slower, confused when I tried to get her to swerve with me, and conversations with her seemed a little strange. But I know moving is difficult so I assumed it was just her getting used to everything.
 
->“Blue curtains were the way to go Alex. Much better than the green, especially with that rug. We gotta talk about the new bedspread, though.”
+It was the beginning of the week so work at my local trampoline park was pretty slow and boring. However that did mean there weren’t as many children making high pitched screaming and crying sounds and shouts of “that’s not fair!” when they get pelted with a dodgeball so, I had that going for me.
 
-Each one Sharon tried to laugh off, “I am so happy that this has led to some after hours friendships.”
+I worked as a sort of safety guard, keeping kids from getting hurt by being their stupid selves, and Addie worked the cash register and gave people their wristbands.
 
-Sharon pulled the next slip and hesitated as she skimmed it. She frowned as she stared at the slip, looked up at the crowd in disbelief, and then back at the paper in her hand. “Th-This one is just for me,” she said. Annoyed sighs filled the room as she searched for the next compliment.
+We had a big lull in business so she came to talk to me, which struck me as odd cause she usually doesn’t abandon her post for anything but bathroom and lunch. But there was a whole lot of nothing happening, so it made sense I guess.
 
-When my name was called, I was jolted to attention,
+She had asked me how it was going and how I’ve been. We talked for a minute about the book she’s currently reading, before she asked about that morning.
 
->“Bill, I love how you are so careful when you water the tomatoes in your vegetable garden. I think spraying some cayenne pepper in water on it all will work better than the chicken wire.”
+“Did you see the news this morning?” she had asked, crossing her arms over her stomach.
 
-My fingers became numb, and my chest felt hollow. I have never spoken to anyone here about my garden, and I have never posted about it anywhere.
+“About those skins the police had been finding?” I responded
 
-At the end of the reading, as everyone was rolling or shuffling back to their cubicles, Sharon tried to raise her voice above the noise: “From now on, let’s try to keep these workplace appropriate.”
+“Yah… that,” she said, glancing nervously at the park’s entrance.
 
-On my way home, I checked my mirrors for anyone following me. I checked my fence for cameras or loose boards. Nothing. I monitored the jar this whole week, and I saw no one put in a compliment. But every morning there are a few more in the jar. 
+“Yah I saw that. Crazy how specific the crime is. And I wonder what they do with the rest of the bodies? It’s so weird.”
 
-I wasn’t the only one shaken by an intrusive message. The office has been quieter. People are hiding their phones and closing laptops as others walk by. There’s less bathroom traffic, and people are taking fewer breaks than ever before. I even noticed a few people driving different cars to work than I had remembered.
+“I don’t know… I’ve felt a little unsafe ever since I moved here but this makes me wish I took self defense classes or something when I was younger.”
 
-It can’t be just one person. I have my suspicions about a few. Of course, there was David; he knew where I lived somehow. Then there was Sharon. She always took the jar home with her. The only other weird conversation was with Ted, who told me that he thought peppers would grow better in my garden. When I asked if he was the one who left me the compliment, he laughed it off: “No, I just heard about the tomatoes, and I thought we were in more of a pepper climate; that’s all.”
+“Yah, its scary. I’m glad I have something to de-“
 
-I tried to talk to Alice when I saw her at the vending machine, staring at the rows of snacks, deciding what was going to get her through the rest of the afternoon. 
+“You feel scared?” she interjected. “What makes you feel scared?”
 
-“You know this isn’t normal, right?” I said. She tapped her card on the machine and began to punch in her numbers. “The compliments,” I continued, “You’ve heard it, the curtains, your oil change, my garden. People are following each other.”
+I was a little taken aback by the intensity in which she asked the question.
 
-Her snack fell. As she bent down to retrieve it, she whispered, “Don’t.”
+“Uh, you mean other than the person skinning random things?” I responded, raising my eyebrows. She no longer seemed nervous and was very invested all of a sudden.
 
-“Don’t what?”
+She opened her mouth to respond but we heard the loud tone indicating someone had just walked in.
 
-She stood up and looked at me, her eyes darting to mine and then past me and back.
+“We can continue later, you should go deal with them” I told her, pointing at the lady that just walked in with a service dog and two small children. “But hey, if you wanna learn some self-defense, my friend and I are gonna teach each other a new defense tactic later this afternoon. You can join if you want.”
 
-“Don’t make people think I’m talking to you about this.”
+She rolled her eyes at the people walking in and responded, “Sure, I’d love to. Send me the address.”
 
-“Alice.”
+“You got it.” I responded as she walked away.
 
-“Please,” she said, “Don’t make it worse for me.”
+When she got over to the register I noticed the dog put its hackles up and began growling at Addie. The lady who brought it in tried to calm the dog but it started barking furiously at Addie, which seemed to freak her out. The lady dragged the dog around the corner over to the lockers we had available for peoples shoes, apologizing profusely. She handed its leash to one of her children and went back to pay, but the dog kept staring in the direction of the registers.
 
-That afternoon, I caught Blake following me. I pulled into my driveway, parked, and got out of my car. He pulled in and then began to back up like he was just using it to turn around. I motioned for him to roll down his window and yelled, “Blake, what the hell?”
+I walked over to them.  
+“What was that about?” I asked
 
-He rolled down his window an inch as he pulled off and yelled, “I was just trying to find something nice to say.”
+“I have no idea” the lady said as the register beeped, telling her to remove her card. “He’s usually very friendly to everyone”
 
-I was dumbfounded. Did he really think that was appropriate?
+“Maybe he was bothered by my perfume or something,” Addie said. She seemed more annoyed than anything about what happened.
 
-The day before the next reading, I decided to write my first real compliment. I wanted to prove a point. I folded it and dropped it into the jar.
+The lady apologized again before bringing the wristbands to her kids.
 
-“Blake,” I wrote, “I love how determined you are to find compliments, even if you will follow people home to do it.”
+We went on with our day, and to my dismay, it stayed slow as ever. But eventually Addie’s shift was over, and she said she’d see me later. I said bye and continued with my shift.
 
-I thought it would be read, and everyone would understand how out of hand this had gotten.
+Once my shift was over, I went home to pack my stuff for training later.  
 
-That night I got a call from Sharon.
+When I got home things were... not quite as I left them.
 
-“Hello?”
+When I got out of my car I noticed a small splash of something a bit dark red-ish on the concrete. At the time, I thought it was a bit of motor oil or a spilled drink or something but now as I’m writing this, I’m pretty sure it was blood. And I know where it came from. But I’ll get to that later.
 
-“Hey Bill,” she was keeping her voice low, “I know you’re upset, but you can’t start writing stuff like that.”
+When I got to the front door, the doorknob had a slight dent in it, as if it was squished or slammed against something. That didn’t bother me much, cause I knew Hornet isn’t very careful so he probably let the door slam the wall when he left. What did bother me was that the door was unlocked. I made a mental note to talk to Hornet about locking my door; he’s bad at remembering that.
 
-“Sharon, Blake followed me home. He said he just wanted to find something to put in the compliment jar. This has gotten out of hand. I’m trying to stop this.”
+Inside, it was eerily quiet. I usually had the radio on but it had gotten turned off. The only other thing that was wrong was the family picture I had next to the TV. It was taken about two years ago. It had my mom, my dad, and my sister, all holding me as I laid flat across their extended arms facing the camera to show the Halo 3 shirt I was wearing. The image sat in its wooden frame on the left side of the TV, and I always had it facing slightly to the right so I could see it when sitting on the couch. I always preferred to sit on the right side of the couch.
 
-“That’s what everyone says.”
+But it was turned way to the left, to the point I couldn’t see the picture at all from my spot on the couch. I assumed Hornet got nosey and looked at it, then just set it back how he wanted. There was a very slight smudge over me. Hornet and his greasy fingers.
 
-“YOU need to stop this!”
+I wiped it off, set it back correctly, and went to pack the stuff I would need for training. Hudson doesn’t own any firearms, so I packed my SIG MCX-Spear, a glock, and a 2011 handgun. I remember wishing I also had an AK cause those are designed completely differently and would be good extra practice but whatever.
 
-After a few seconds of silence, Sharon said, “I want to, Bill, but the regional office won’t let me. They want to implement jars in other locations. Productivity has spiked at our branch, and turnover is almost nonexistent.”
+I brought my stuff out to the car and went back in to say bye to Jack and grab my wallet. At some point I had texted Addie to meet us at 6:30, but I don’t remember when. When I went back inside, Jack was holding his favorite toy: a small foam ball. He got it from Hornet. Hornet enjoys Nerf stuff, and he came over one day to show me his new Nerf Rival gun, which shot those little foam balls instead of foam darts. Jack got a hold of one and it’s been his favorite ever since. The weird little thing likes to play fetch with it.
 
-“But—”
+Jack walked up to me and dropped the ball at my feet. I checked the time and decided I had some time for a little play. As I picked up the ball, Jacks eyes got wide and he tensed up, ready to bolt after the ball. I threw it down the hallway and he shot off after it, slamming into the wall at the end.
 
-“Bill, listen, I have the jar at my house. And I am screening all the slips. You got one.”
+We played that for a little bit, then I grabbed my wallet, said bye to Jack, and left, making sure the door was locked this time.
 
-“And?”
+The place we chose is a public shooting range set up in a large clearing right off the road, surrounded by forest on all other sides. We don’t really need a shooting range but we chose it just to be safe.
 
-“It says, ‘Bill, I love how you inspected your fence the other day; it’s important to take pride in what we have.’”
+When I got there, Addie and Hornet were already there.
 
-I can’t remember the rest of the conversation. I just stopped listening to what I was hearing and prepared for the next day. I actually drafted this last night, talking about how I wasn’t going to go to readings anymore just to avoid the whole thing, but I decided not to send it. I didn’t want to give them anything for today’s reading.
+“About time you showed up!” Hornet shouted as I got out of my car.
 
-This morning, I walked into work, and everyone was already sitting, chairs pushed together in anticipation like they were pigs at a trough. Smiles on their faces.
+“Sorry, Jack wanted to play fetch.” I answered as I walked toward him.
 
-Sharon began with, “I asked us to keep things workplace appropriate. I went through all of these last night. Other than a few complimenting others on their new cars, I can’t read any of these.”
+It had been pretty nice out that day. It was nice and quiet, the only sounds being the rustling trees and occasional car.
 
-Some booed, and a few stood and shouted that she was censoring our positivity. Sharon argued for a bit with the crowd and began to step away from the desk. As she did, Madison pulled the jar from her and took Sharon’s place. Sharon kept walking out the door.
+“Your cat plays fetch?” Addie asked, snickering slightly.
 
-Madison began:
+“Yup” answered Hornet. “I’m not even sure that thing is a cat. He looks the part but that’s about it!” He began laughing at his own joke.
 
->“You were so brave deleting their number, Emma. Even if you did end up putting it back in your phone later on.”
+“Whatever. He’s perfect” I said, walking back to my car to grab the guns.
 
->“Josh practiced the best apology in his car before he went inside the apartment.”
+We all looked at the video we chose to learn from. It taught us how to disarm someone who’s pointing a handgun at you by distracting the attacker with words so you can inch closer, then grab and deflect the gun sideways so it points over your shoulder. If you can, it says to twist the gun towards the attacker in hopes that they lose their grip. We also watched one that taught a wrist lock technique that can be applied to someone holding a rifle. Hornet wanted to throw in his own variation and learn to drop the magazine from the gun too. He said it was in case you couldn’t safely disarm the attacker, but I think he just wanted to be like those guys in shooter movies. Regardless we improvised some stuff and learned that as well.
 
->“Madison, I think it is so sweet that you still sleep on your husband’s side of the bed.”
+Addie had never shot a gun before, so we said we could teach her while we were there. We taught her gun safety, how to hold it, how to aim, how to operate each part, proper stance, and how to control recoil. When it came time to shoot though, she was extremely reluctant. She kept saying it might hurt or be too loud or what if she dropped it, and after arguing for a good few minutes, she reluctantly agreed to shoot one shot from the 2011. We put on our ear protection, made sure she was holding the gun right, and standing correctly, then we told her to pull the trigger.
 
-“Aww, guys, that is so sweet. Thank you for thinking of me.”
+I vividly remember this part.
 
-She continued, and I was happy to see we were almost finished. Madison went to put the lid back on the jar, “Oops, found a couple of stragglers.”
+I heard the earsplitting crack of the gun going off, causing a flock of birds just inside the line of trees to fly off. I saw the gun fly up and back, controlled surprisingly well by Addie, and I saw the spent casing fly out to the right of the gun and land in the grass, still smoking slightly. But something was weird about it. For a fraction of a second, so short I don’t know how I even noticed, her face looked very wrong. I was standing off to the side so I couldn’t see her face super well, but I could see well enough. For the split second during the loud bang, her face looked dead and expressionless, as if there was no muscle behind the skin. Her eye sockets looked sunk in, and it looked like she had no eyes. Her skin was very pale, looking utterly lifeless. But just as fast as the ghostly look overtook her, it disappeared again.
 
->“Sharon, you were so brave to leave before we were finished. I love how much faith you have in your brakes.”
+I thought it weird even then but I had immediately shook it off and went to tell her that she did great.
 
-Silence.
+We then emptied the gun and started practicing what the videos told us to practice. The whole time I was there I was feeling a strong sense of paranoia, and I kept jumping at every little sound or movement at the edge of the woods, but couldn’t place why. I decided I was just unsettled by what the news had said that morning.
 
-I noticed some people glancing toward the metal doors. Others looked around, taking note of who seemed most uncomfortable.
+After a little while, the sun began going down, and the hum of crickets slowly rose around us. As the air started to cool it began to get foggy. By this time, we had all gotten a pretty decent grasp on the defense moves, and Addie said she should be heading home.
 
-“Okay, everyone, last one for the week!” Madison said,
+“Why do you need to go?” I asked her. “We don’t have work tomorrow so we can stay up and go to the bar or something if you want.”
 
->“Bill, I love how you still think strangers can help even when Sharon can’t.”
+Hornet shot me a look and smirked, but I ignored him.
 
-Some laughed and cheered while others simply watched me. I’m not sure if all this time their cheers are for the recipient or for the writer.
+Addie hesitated before saying, “It’s my homichlophobia.”
 
-I’m back home from my shift.  I saw a strip of paper caught in my chicken wire. I bent down and grabbed it.
+“What’d ya call me?” Hornet said
 
->"Bill, I love how careful you are about locking your door. Most people forget the kitchen window.“
+“Homichlophobia. The fear of fog.”
 
-I looked up at my window and saw the blinds move. I ran inside to find Blake in my kitchen.
+“Ohhhh,” Hornet and I said in unison.
 
-He looked embarrassed, like I had caught him stealing copy paper again.
+“Before moving here I was interested in psychology.” She told us. “While I never took classes, I did do a bunch of research in my free time and I know all about it, including many phobias.” She suddenly fixed her gaze on me. “What are your phobias? Do you have any?” she asked.
 
-“Get out of my house!”
+I was hesitant to answer that.
 
-He smiled and said, “Your voice carries so well.”
+I began saying “Uhh...” but Hornet jumped in first and said he was afraid of heights and the open ocean.
 
-I stepped towards him, and he stepped towards the door.
+“And responsibility” I muttered under my breath.
 
-“Excellent posture,” he said, “very protective of your property.”
+“That would be acrophobia and thalassophobia respectively.” She said, her eyes still fixed on me, waiting for my answer.
 
-He slipped out the door.
+I had wondered why she wanted to know mine, even though she just said she needed to leave. I felt I didn’t know her well enough to want to freely give that information, so I lied.
 
-As he walked off, he looked over his shoulder and said, “See plenty of nice things to say.”
+“I’ve got a fear of spiders, birds, and alcohol. My dad used to be quite the drunk and the house was very unkempt so I had to deal with a lot of unwanted creatures. I guess it created some trauma for me.”
 
-I can't decide what to do. I can’t get ahold of Sharon. Her phone is going straight to voicemail now. And if anyone from work is here reading this, I guess I should add a compliment.
+Not my best lie but it seemed to work.
 
->“Sharon, thank you for the compliment jar. I know you just wanted to help. Morale has never been higher.”
+“That’s arachnophobia, ornithophobia, and methyphobia. Or possibly dipsophobia if drinking it is what you’re afraid of,” she said, looking deep in thought.
+
+“Gotcha...” I said, glancing awkwardly to the side. “Well the fog is creeping closer and it’s getting dark so we should all probably go, yah?”
+
+They both agreed and we packed up and started walking to our cars, but made a plan to have a movie night tomorrow at my place since Addie likes movies so much. We wanted to watch one she hasn’t seen yet.
+
+After Addie left, Hornet raised his eyebrow at me and began teasing me about liking her.
+
+I denied it but I’m not sure if I was just telling myself that or not.
+
+He insisted that she definitely likes me, as she hardly looked away from me that whole time. I don’t remember it that way, in fact I don’t remember her looking at me much at all. But I wasn’t paying much attention either and I can’t pick up hints to save my life so, maybe she did.
+
+On my way home, I quickly stopped being so paranoid and dismissed Addie’s questions as just plain curiosity. She was a psychology nerd after all.
+
+The song “No One Like You” by Scorpions began playing on the radio, so I jammed out to that while I drove.
+
+When I got home, I brought my stuff inside and started heading to my bedroom, but was stopped by a bad smell. I barely noticed it at first, but it was bad so I wanted to find its source. Maybe some food had gone bad or something.
+
+My guess was close; when I eventually opened the trash can I saw it was full and smelled awful. I made a mental note to change that in the morning, then headed to bed.
+
+I usually have pretty vivid dreams. A lot of the time, I’m able to lucid dream at least a little bit, and remembering my dreams wasn’t uncommon. That night I dreamt that I was in a field in the mountains. It reminded me of the opening scene from “The Sound of Music.” It seemed a little strange cause everything was a little fuzzy, but I didn’t think much of it. All around me I heard the sound of chirps and caws and flapping of wings. When I looked down, there were all kinds of birds. Mostly crows and ravens, but there were flocks of other birds too. Directly in front of me were some blue jays, to my right were several finches, and vultures flew over my head. Some other birds I didn’t recognize were off to the side, and there were even birds that didn’t belong there, such as flamingos. I knew at this point I was dreaming. I tried to walk to the flamingos, but found my feet wouldn’t move. This didn’t bother me, and I just decided to wait and see what would happen. For a while, I just sat admiring the birds as they flew around me and listened to the chorus of different songs each species was creating.
+
+Eventually they started flying really close. They began brushing me with their wings and feet. More and more joined in until I was basically being swarmed by more birds than I can count. They began diving at me, scratching at me, pecking at me with their beaks. It wasn’t pleasant but I wasn’t freaked out because I knew I could control the dream, so I just decided to make them go away.
+
+But they didn’t. No matter what I did they didn’t leave me alone. I was confused, because I can always control my dream when I know I’m dreaming. For whatever reason though, this time was different.
+
+When I woke up, the sun was shining through the windows. I rolled over to check the time, but noticed something weird on my arm. It looked almost like my skin was… moving. I quickly realized it wasn’t my skin that was moving, but what was crawling on my skin.
+
+Spiders.
+
+Spiders were everywhere.
+
+They were crawling on me, in my bed, on the walls, on the floor. Webs had been spun in some of the corners and between some of the furniture. There were so many I could hear the faint skittering of them moving. I immediately jumped up and started brushing them off of me and taking my clothes off in a panic to get the spiders away.
+
+I ran out of my room, still spinning around and brushing myself off, and when I felt clean, I noticed there were only a few spiders here and there in the rest of the house. Most of them were in my room. I figured there must have been a group of eggs that hatched overnight or something, so I called the exterminator to come deal with it. I’m not really afraid of spiders but I still don’t want them all over the place.
+
+Looking back in my room, there weren’t as many as I thought there were, maybe a hundred or so spread out around the room. While on the phone with the exterminator, I kept getting distracted by the fridge making that annoying sound again. I wasn’t sure when it started but thought it sounded different than before. Not that it mattered much to me, I just wanted it to go away.
+
+The exterminator said he’d be there soon, so I waited for him outside. When he got here, I told him what room the spiders were in, and he went inside. However, he came back out a few minutes later, saying he saw no spiders.
+
+I assured him they were everywhere, but he said there was nothing in there, not even the webs. He began looking at me weird. “You sure you got enough sleep last night, kid?”
+
+“Honestly, not really.” I responded. “But what I saw felt too real to be just sleep deprivation.”
+
+“Hmm.” he said, giving me a suspicious look. “If you say so. I went ahead and sprayed anyways, but there’s no way that many spiders would disappear that fast”.
+
+Skeptical, I thanked him and went to check the room. He was right; there were no spiders anywhere. No webs either.
+
+I had absolutely no idea where they could have possibly gone, but I had absolutely no doubt in my mind that there were spiders in there. That made me a little paranoid, but luckily the fridge stopped making the annoying sound, so there was that at least. I then remembered that awful smell from last night and went to change the trash.
+
+The rest of the day was pretty boring. I just spent a lot of it doing various hobbies like biking, drawing, and watching movies (if you wanna call that a hobby). Me, Hornet, and Addie planned to watch our movie around 7:30, so around then is when Hornet showed up. I told him about what happened, but he said I was probably just being paranoid, even though I assured him of what I saw. We bantered for a little bit, then began discussing what movie to watch. Addie already decided she wanted to watch a horror movie, but left it up to us which one.
+
+“We have to pick something good. Her first intro can’t be lame or stupid like ‘Day of the Dead’ or ‘Velocipastor’.” Hornet said.
+
+“Hey! Don’t hate on my man Romero. His movies were good.” I retorted
+
+“I’m not hating on him, I’m just saying ‘Day of the Dead’ sucked. ‘Dawn of the Dead’ was way better”
+
+“Fair...”
+
+I thought for a minute about what we could watch but there are so many good options I couldn’t pick.
+
+Hornet’s face suddenly lit up and he said, “What about ‘Skinamarink?’ That movie was incredible.”
+
+“Ohhh that’s a good option.. however, remember she’s never seen horror and that movie is tailored for a very… specific taste. Plus, that’s one you really have to pay attention to, and we’re not here to analyze a movie. It’s just for fun.”
+
+“But analyzing is fun! That’s why we like those YouTube horror videos so much”
+
+“It might not be for her. Let’s just pick something that requires less thinking.” I thought for a minute longer before saying, “How about ‘Alien’? Thats a pretty good classic to get her started.”
+
+Hornet enthusiastically agreed with that suggestion. Right around then, I heard a knock at the door. Hornet got up to answer it. When he opened the door, he said Addie was here and welcomed her inside, telling her we were gonna watch 'Alien'.
+
+I noticed she walked in with a case of beer. That surprised me because she didn’t seem like the drinking type, but I welcomed it anyways. I didn’t much like beer, but we were here to have fun so I’ll take what I can get.
+
+We all took a can and started the movie. I eventually had another can. And then a third. I was feeling kind of tipsy but not super drunk. Still, I had wished there was more. Addie looked rather annoyed when I asked for the third can, but she handed it to me anyways, and I just wrote it off as her hoping she could take some back home or something.
+
+In the middle of the movie, the fridge started making noise again. I turned around to curse at it, and when that didn’t work, I turned back around and pouted. Then I noticed a bottle of tequila on the table. It looked a little fuzzy but I was drunk so everything looked a little fuzzy.
+
+“Ooooo more alcohol, yes please” I said, reaching for the bottle. But the second I was about to make contact with it, it just disappeared.
+
+“What..-?” I muttered.
+
+Hornet looked at me, confused. “What are you on about dude?”
+
+“There was a bottle of tequila here, where’d it go?” I asked him.
+
+“Uhh, no there wasn’t.” he said, his confusion turning to amusement.
+
+“Yah there was! It was right on the table! It just disappeared when I tried to grab it!”
+
+He just laughed at me. “You are so drunk dude,” he said. “Let me get you some water.”
+
+I was confused. I know I was drunk, but I wasn’t that drunk. Nowhere near. I watched him walk to the kitchen and noticed Addie glaring at me.  
+“What?” I asked her.
+
+“Nothing.” She scowled.
+
+“Ook….” I said as I slowly turned my gaze back to the movie.
+
+Hornet came back a minute later, handing me the water. He had also grabbed a slim Jim for himself. 
+
+ “Dude,” he said. “You need to take the trash out or something. Your kitchen smells awful.”
+
+“I just did that this morning.” I said with an annoyed tone.
+
+“Well it smells like something crawled in a skunk’s ass and died, and then the skunk died, so do it again.”
+
+We went back to watching the movie. After a few minutes, I heard frustrated noises coming from his direction. He was trying to open the slim Jim, but seemed to be struggling. 
+
+“You good over there, bud?” I asked, snickering.
+
+“No. I can’t get this thing open.”
+
+He began ripping at it with his teeth. 
+
+“It says ‘just grip ‘n rip’ but I’ve been gripping and ripping like an autistic kid holding the class hamster and it just will not open!” 
+
+I just laughed at him. 
+
+Once the movie was over, Addie and Hornet left, and I went to bed. I had a hard time getting to sleep though, for two reasons. For one, the fridge was making noise again. At least I think it was the fridge. Might have been the plumbing or a light or something cause the noise sounded a little different. It was sort of faint and slowly pulsing. On top of that, I was feeling super paranoid again. It’s like I knew someone was watching me or waiting for me to close my eyes or something. I couldn’t shake the feeling for the life of me.
+
+Needless to say, I didn’t get much sleep. I eventually did get some sleep though. And I had another experience where I knew I was dreaming.
+
+The dream started with me in my old house, where my parents still live. I was a kid again, maybe around 10 years old. It seemed to be nighttime, and my parents were sitting in my bed with me, soothing me. I told them I had a bad dream and was scared.
+
+“It was just a dream, honey. There's nothing to be afraid of” my mom said.
+
+“But how do I know the monster in my dream won’t come for me??” I said desperately.
+
+“Monsters aren’t real.” My dad told me. “Like your mother said, it was just a dream.”
+
+I just looked down, hugging my stuffed animal tighter.
+
+My mothers gaze softened more and she asked, “What is there to be afraid of? We’re here, you’re safe in our house, in your own room, and you’ve got your stuffed animals to hug. Nothing can hurt you here. What are you scared of?”
+
+When I answered I didn’t answer as 10 year old me. I’m not sure why, but I answered as present day me.  
+“I guess... I’m afraid of a few things. Mostly just worried that someone is watching me or stalking me, even worse now with this new husk threat. Part of me is even worried that I will be accused of those murders, even though I have no connection to them.”
+
+My mom leaned in a little closer. “But there’s something else you’re not telling me. Where’s the base of all this fear coming from?” she asked.
+
+I thought for a second before admitting, “I think I’m just afraid of the unknown. Like when you’re in the dark and don’t know if that’s a creature or just clothes in the corner. I don’t know what’s going on around town, I don’t know what will come next, I just.. something about only having part of the information is really upsetting to me. Especially if it pertains to me, either in a dangerous way or in a lifestyle way, or however. Even the internet scares me, having no idea who I’m really talking to behind the screen or if I can trust a word they say.”
+
+In that moment everything stopped. All sound ceased. Both my parents sat straight up and all expression on their face dropped and they just stared at me, emotionless, unmoving.  
+“Uh.. mom? Dad? What’s wrong?”
+
+They didn’t move. Didn’t even blink.
+
+I looked around and saw that my stuffed animals seemed to come to life too and were staring in the same way.
+
+“W-what’s going on??”
+
+My mother dropped her jaw, opening her mouth further than it should be able to, revealing a pitch black cavern I couldn’t even see teeth inside of. Her eyes went completely dark. She spoke, but not in her voice, and her mouth didn’t move. It just sort of emanated the sound of someone speaking.
+
+“So.” I heard the voice say. “That’s what you’re really afraid of. Thank you”
+
+It spoke slowly, and with a slightly croaky sort of tone.
+
+My father’s jaw dropped in the same way, revealing the same dark pit of a mouth. He tilted his head slowly to the left then paused.
+
+Looking me directly in the eyes he said, “What if someone is watching you right now as you sleep? Maybe just inches from your face”
+
+I felt my blood run cold. I quickly sat up to look around. Now everyone watching me had their jaw slack, all emanating a rumbling static tone that felt like sandpaper against my bones. I suddenly felt something grab me from behind, gripping both of my arms and on either side of my hips, pinning me in place. I tried to turn my head and see what grabbed me but I couldn’t. Something was keeping me facing forward.
+
+I felt something sharp penetrate deep into the base of my neck. It began tearing down my back right on top of my spine. It ripped my body open all the way down to my lower back. I then felt what seemed like a bunch of long claws reach inside the freshly made seam, and grip around my spine. The last thing I felt was my spine being torn from my body before I woke with a start, looking around wildly and breathing heavy. It felt so real, but it was just a dream. I looked at the clock. 7:30. But it was still completely dark outside, which didn’t make sense. I looked out the window to see if something was blocking it. That’s when I noticed the face in the corner of my room.
+
+It was almost completely dark in my room, but I saw a pair of eyes and a wide mouth showing many large teeth. There was no silhouette around them, it was like they were floating on their own. I thought I was still dreaming, I had to be.  
+
+The eyes were wide and irregular, and the mouth revealed teeth that looked like human teeth but bigger, and there were a lot more of them than humans had.
+
+“What the hell are you?!” I shouted in terror, backing away in my bed. It didn’t move, didn’t blink, didn’t even make a sound. The only sound was of the same low tone I heard when I fell asleep. Suddenly I heard a knock on the window. I jumped, terrified of what else could be watching me from outside, but there was no way I was about to take my eyes off of the thing in the corner.
+
+Suddenly, it was all gone. The darkness, the face, replaced with sunlight and empty space. I looked around but everything was back to normal, and the low tone eventually faded away as well.
+
+I don’t think I had been dreaming that.
+
+Whatever that thing was, it was real. I didn’t know how any of it could be explained. All I know is it happened, and I was terrified.
+
+End Part 1
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1tw0eww/something_in_the_appalachians_wants_to_know_what/)
