@@ -1,52 +1,74 @@
-# I doom scrolled. Literally [UPDATE]
-In case you missed it, here’s a [link](https://www.reddit.com/r/nosleep/comments/1tpt5it/i_doomed_scroll_literally/) to my initial post.
+# Cynthia Exigua
+I was aware of my tongue. It felt like a foreign object in my mouth, the way it pressed against my teeth. No matter where I moved it, I could feel it.
 
-It’s been a little more than a week since I read a news article describing my own death, and I think I’m still not dead. I say I think, because who really knows? Maybe I’m trapped in Heaven. Or, Hell. I don’t really know any more. Things seem to have changed.
+I always hated the sensation. It happened sometimes when I was running. I’d forget to drink enough water and end up with a dry mouth halfway through. This time, at least, it was on the final stretch before I got home, so I just tried to ignore the sensation and keep going.
 
-I tried contacting KSDR, but couldn't actually find a listing for them anywhere. No website, socials. Nothing. I tried calling the police, but they hung up. And I don't really want to talk about this with the few friends and family I have. They already think I'm weird enough as it is.
+I had been running a bit faster than I was comfortable with because I had a date in the evening, and I wanted to give myself time to shower and get ready beforehand. She was way out of my league. Not like I was complaining.
 
-Regardless, after not going outside at all during the week, eating everything in my cupboards, and calling out sick to work each day, it seems I may have finally caught a break.
+In most of her photos, she had a knowing smile that showed off her dimples. I wondered what it was hiding, that smile. I tried to keep myself from looking at her pictures too much. We’d matched a few days ago and the chemistry had been instant.
 
-As one does when trapped inside for 9 days I’ve been scrolling headlines. Primary elections, wars, and a Florida man who wrestled his dog out of an anaconda’s mouth. One headline in particular, however, caught my eye this morning. *UPDATE: Southdale Man's Body Found Miles From Reported Death Scene.*
+And so, here I was today, the afternoon before our first date, puffing up the last hill in a vain attempt to make myself seem somehow more athletic. Trying to get home quickly to take a rushed shower and search frantically through my dresser to make sure one of my good shirts was clean. If nothing else, maybe the run would loosen up my muscles enough to make me seem less tense in front of her.
 
-While this doesn’t seem like much, for me it was a slap back to reality, or… well again, not sure where. Anyway, here’s what the story said:
+We met outside the restaurant. In person, she was even more stunning than her photos. In pictures, she'd always pose with a few friends, all grinning in similar ways for the camera, but alone, in front of me, she was even more attractive.
 
-“KSDR previously reported that a 44-year-old Southdale man had died outside his home in the Darlington Heights neighborhood.
+“You hungry?” I asked.
 
-However, authorities now say the man's body was discovered early this morning in a roadside ditch approximately eight miles outside of town along Highway 9.
+“Are girls allowed to be hungry?” she said in an odd accent, looking at me shyly.
 
-Police have not commented on the discrepancy between the initial report and the updated information. Investigators have also declined to release details regarding the cause of death. Officials say the case remains under investigation, though foul play is suspected.
+Caught off guard, I laughed a little. She had a very lean build and didn't seem like the type to eat a lot.
 
-According to authorities, the man was believed to be returning home from his evening shift at a nearby warehouse when the incident occurred. His guitar was recovered near the scene.
+“Yeah, get whatever,” I replied. “It’s on me.”
 
-Co-workers described the man as reliable and hard-working.
+Our plates arrived fast and were eaten faster. I was surprised by how quickly she was able to eat while we talked. I still couldn’t place her accent - she spoke slightly thickly, but not in a way I’d ever heard other non-native speakers talk. Maybe it was just the food in her mouth. The curiosity was eating me a bit, but I couldn’t quite bring myself to ask where she was from.
 
-"He mostly kept to himself, but everybody liked him," one co-worker said.
+“What's got your tongue?” she asked, noticing me fall silent in thought.
 
-Investigators also confirmed that the man had continued posting updates to the Reddit forum r/NoSleep after news reports initially stated that he had died outside his home.
+“Nothing, nothing,” I said, smiling.
 
-In his most recent post, the man expressed concern that details surrounding his death appeared to have changed.
+Not that I ever needed to ask such an awkward question, as there was rarely a gap in the conversation. It felt like a natural extension of the texts we’d been exchanging with each other over the last few days. She laughed loudly but politely, always covering her mouth while she was eating. I caught a flash of something behind her fingers, behind her teeth.
 
-Authorities have not commented on the claims.
+We ended up staying at the restaurant for a little longer and sharing a glass of wine after dinner. Her small fingers landed on mine when we both reached for it, and I held my breath for a moment and then pushed the glass towards her.
 
-Police have not announced any suspects or made any arrests.
+“All yours.”
 
-KSDR will continue to provide updates as more information becomes available.”
+“Such a gentleman,” she said, and smiled. Her lips were stained red from the wine. I stared at them, wondering what they’d feel like.
 
-The news article seems to know what I was going to write before I wrote it. Unless someone from KSDR was in my living room this whole time, that would be impossible.
+“I’m drinking for two tonight,” she added. We laughed.
 
-So, if the first story was right, then staying inside worked. I cheated death, for now. Or maybe death just moved to a new location. Maybe what is happening isn’t predicting my future, but something else entirely. Either way, staying here forever isn’t the answer.
+The half-glass of wine had left me pleasantly warm as I walked her back to her car. It was a chilly evening and she’d put one of her arms through mine.
 
-I can go another week without work, I have plenty of sick time saved up. But I need to get out of the house. I’m out of food. And frankly, I'm going a bit crazy.
+“This is me,” she said.
 
-Here's my plan. I'll walk a few blocks to a little market nearby and get enough supplies to last me a week. I also want to soak up some sun and breathe some fresh air, so I’ll grab a sandwich at the deli next door and eat it out on their patio. After that I’ll come straight home. 
+Her car was pale white at the mouth of the parking lot.
 
-The article said they found my guitar near the scene, so I’ll leave that here. 
+“I had a really good time tonight.”
 
-The article also said there may be foul play, so I’ll bring a knife. I don’t have much, and it may not change anything, but better safe than sorry. 
+“Me too,” I said. She had turned to face me, looking up at me, and her arms were in mine. “Want to get together again next weekend?”
 
-Like I said, things have changed, and I don’t like it.
+“Maybe sooner,” she replied, moving closer.
 
-Wish me luck.
+“Maybe,” I said. She pressed herself against me.
 
-  
+Her lips were warm. A few people walked past as we made out, but it didn’t seem to stop either of us. Her mouth was soft, and her tongue - mine must have met her teeth, I thought, it wasn’t soft at all - but then there was a sensation of something cold and hard, and multiple small prickles grabbing my tongue to keep it from reflexively pulling back, and a *sting*\-
+
+“Ow! What the fuck?” I said, backing away and grabbing my mouth. I tasted blood, and something strange. Something dark and briny. “Did you bite me?”
+
+“I didn’t,” she said thickly, under the streetlight. It sounded like there was still something in her mouth.
+
+“What the fuck was that?”
+
+She smiled sadly.
+
+“Just a special kiss.”
+
+“Don’t do that,” I said, trying not to show how rattled I was. “I’ll talk to you later.”
+
+She still really was very attractive, I thought, as nervously walked back to my car. I should give her another chance. Maybe she had been as nervous as I was. 
+
+My tongue still itched when I got home, but I had stopped tasting blood. I checked it out in the bathroom mirror, but it didn't look like it was injured.
+
+I fell into a deep, uneasy sleep filled with nightmares. In the middle of the night, I started gagging with a full mouth. I couldn't feel my tongue. I tasted blood and spat into the trash can by the bed, thinking I must have bit myself in my sleep, but I never woke up fully enough to check.
+
+Today, I've been in bed since I woke up this morning. I can't get up. That means I would have to brush my teeth. And that means I’d have to touch the thing that now lives in my mouth, the thing with antennae that tickle the roof of my mouth and little legs that scrape at my gums. I can’t move it like I used to be able to move my tongue. It moves on its own. It’s attached to me, but not me.
+
+I can’t feel my tongue, but I’m aware of it.
