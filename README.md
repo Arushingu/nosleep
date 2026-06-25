@@ -1,56 +1,113 @@
-# The Box
-An odd man gave me a strange gift. It is a box that I can’t open. 
+# Glass in my spaghetti.
+The process of “eating” had become automated as I watched the news. The repetition of "Twirl fork, lift fork, insert food, chew, and swallow" failed to register. The long noodles covered in the cheapest sauce I could find were stripped of texture and taste. Only fuel remained.  
 
-I was walking to the subway station. It was raining, which hadn’t been foretold on the weather channel, so I plastered a stolen newspaper over my head. I looked down towards the wet pavement and away from the onslaught so that my glasses would stay dry. This didn’t work – the water was sliding down my forehead and dripping off of my cheeks. There was a jingling sound. *Rattle-rattle*. Several coins bounced around a paper cup. I didn’t look up, I just patted my pants pocket as if to say “nothing here”, and kept moving. 
 
-“You’ve got eight dollars and seventy-five cents!” the man shouted. His voice boomed above the sound of the downpour. Yes, I had exactly that. That’s twice the subway fare, I thought: four loonies and a quarter multiplied by two trips. It was a smart trick. I wondered, though, how he knew I was carrying an extra quarter – I’d brought it for the shopping cart at the supermarket, where I’d stop after work. 
+Reporters babbled on as every so often I wiped away a collection of red that gathered by my lips. With Spaghetti, I can never tell if I’m making too much or not enough. So I end up winging it and eating whatever’s there. I’m the type of person who will put leftovers in the fridge and just leave them there. Rotting away.
 
-“You have something for me,” he cooed. His gimmick had stopped me and now, while I was stood still, he stepped in front of me. His grin showed his horse’s teeth, yellowed and jutting outward. He had a nose like an eagle’s beak; curved, sloped into a drooping point. His ears stuck out and sagged like a cow’s and his long neck arched like a swan’s. He had flaming orange hair that, where it had become damp from the rain, faded into a murky copper colour. He was a very ugly man.  
+Even as my teeth crunched down on that first intruder, my process tried to struggle on. It wasn’t until the third gnashing of my teeth that I noticed something was off. Concentration was shattered, and the assembly line had halted. Cautiously, my tongue prodded around the inside of my mouth, digging through the mushy, pale past.
 
-“I’m sorry, I need it,” I said. I peered at him from above the frames of my glasses. My eyes were cautious; I tried not to portray my frustration. The newspaper flapped angrily as the wind picked up speed. I moved to continue my path – *splash*, the sole of my rubber boot slapping against a cloudy puddle. 
+The faded taste of tomatoes parted until I discovered the small splint of gloss resting in my fuel. Having located it, I quickly retrieved the object and dumped a small mess of food into my palm. The chewed-up bit of spaghetti that rested in my hand looked like crumbled gore. In the mound of food was a small glint, a flat shard of glass.
 
-“I’ve got something for you.” 
+Translucent and pointed. I further searched my mouth to make sure there weren’t more. Turning away from the TV, I looked over to my dimly lit kitchen. Slowly chewing again, I eyed the kitchen like it was a murder scene, trying to remember the dishes and cups I had touched.
 
-I paused again. His smile was wider, toothier, and the golden caps that decorated his molars peeked around the corners of his upturned mouth. He spun and stooped down to his sleeping place. His bed was a rain-soaked and sun-bleached blanket. On it there was a scattering of items: sodden strips of cardboard, a dirty yellow bucket full up with water, an assortment of pens, pencils, and markers. A folded grey jumper served as a pillow. There was one more thing – a large box made of wood. He scooped it up and thrust the heavy trunk into my chest and, wanting not for it to crash down onto my flimsy shoes should he let go, I gripped it firmly with both hands. I watched as the newspaper was ripped away by the tempest, thrashing about in the air, flashing the words Toronto Star at me before disappearing behind the fog. 
+Were any of them chipped? No. Just a freak accident, wasn’t your fault. The gore was removed from my palm with the wipe of a paper towel, and I chose to soldier on. My fork excavated the remaining pasta, though I began splitting my attention. 
 
-“Don’t look inside. Keep the lid shut.” 
+Before any food entered my mouth, I’d glare down, twist the fork, and watch the sheen on the noodles glisten. Satisfied that there were no pointy bits, I’d send it down the line. Three more times I did this before an overly ambitious bite sent another shard right into my gum line.
 
-“I don’t want this, I can’t take it on the train,” I stammered, and I looked up towards him – but he wasn’t there. My head swiveled left and right. I couldn’t spot him, but I could feel that the ugly man’s gaze was on me, his figure obscured by the sheet of falling water. My glasses were of no use streaked with rain. *Crack!* A thunderclap sounded, and a bolt of lightning illuminated the street, so I broke out in a run for the metro without another word. 
+A pain rang out that had me rising to my feet. A feeling sudden and harsh, that my body needed to do ‘something’ to accompany it. The contents of my mouth were expelled back into the bowl, the sauce noticeably darker. 
 
-I was at the turnstile. I tried to fetch the fare that was tucked in my pocket. I couldn’t reach it, I realized, because my hands were full with the box. A curt “hello” attracted the attention of the ticket inspector, and I passed the chest to him as I slotted the change into the machine. *Clink-clink*. The gate opened. For a moment, a few seconds at least, I thought I might leave the box with the attendant. The wet trunk had begun to soak his crisp white shirtsleeves. He gazed at it intently, his face revealing a mixture of confusion and interest. He was inspecting it in more depth than I had, and I became curious of it myself, so I snatched it back from him. I stepped onto the platform and didn’t meet his eye as he watched me depart. 
+The piece of glass was sitting right there, a thin layer of red coating, like it was meant to adorn cathedral windows. Much bigger than the last piece had been, how could I have missed it.
 
-While I was sat on the train I tried not to stare at the obtuse, cumbersome thing; I thought that, the less attention it received from me, the less it would receive from other nosy commuters. I glanced around at the weary expressions worn by the train car’s passengers, explained by a quick check of my digital watch: 7:34 AM. Some of their tired eyes twitched towards my box. My head had begun to ache. I was clenching my jaw. 
+After pausing the recording, hurried steps brought me to the kitchen, where I hovered the bowl over a garbage can. The taste of copper slowly took over my senses as again, I eyed my treacherous meal. Fingers prodded away, I wasn't concerned about getting cut. I was too confused to care; even the stinging in my mouth wasn’t enough.
 
-I watched the dreary cityscape slide by as the train surfaced. The wet window concealed the finer details, but I was familiar with the view; this was my usual route, of course. Slick concrete littered with colourful graffiti filled the foreground. Mirrored high-rises spiraled towards plump, rain-filled clouds and echoed the harsh gray of the overcast sky. Lake Ontario could be glimpsed where a crumbling brick wall had been hastily replaced by a chain-link fence. Without the sun to illuminate its rippling waters, the Great Lake resembled a slab of smooth stone. The window was consumed by darkness as the subway dipped back beneath the street – reflected in the black glass was me, my box, and the man who had silently taken his place next to me. 
+Nothing but mush, the noodles were split and squished as I tried to find more glass. There was nothing in there, just spaghetti, but the betrayal was done. I couldn’t trust it, so the fuel was dumped into the bin. The bowl and fork were haphazardly tossed into the sink; they clattered like dishes as I made my way to the bathroom.
 
-“I’ll take that from you,” he said to me. His voice was a low grumble. He was a large man. His hulking figure occupied one-and-a-half seats, and though one sat vacant to his right, his bulk encroached upon my space. He dwarfed me in height; where I was a measly five feet and four inches, his sturdy frame surely exceeded six feet. I tore my eyes from his reflection and did not look at him. I shook my head “no”. 
+My mouth opened, and inspection of the wound began. It wasn’t as bad as it felt. Thin trails of my blood, diluted with saliva, dripped into the white sink as I gently padded the afflicted area. It was near the front of my mouth, and every time my lips quivered, it felt like sandpaper. 
 
-“Please?” He stretched a thick, meaty hand towards the box, caressing the damp wood. I slapped it away – *mine*. As he recoiled, I rose from the bench. The metal doors creaked open shortly after I stood. I scurried off the train, several stops before my own, to thwart the would-be thief. I walked the rest of the way to work. One half of a mile, pelted by the steady downpour. 
+The bleed slowed, and the paper towels became less saturated. I hadn’t realized how haggard my breathing became until it started to settle down. Slowing my breathing, I closed my mouth and felt glass. It was poking the inside of my lip. 
 
-My rubber boots squelched on the elevator’s carpeted floor. *Drip, drip*. Water slid off of my drenched suit jacket and trickled onto the rug. I pressed nine with my elbow. I had a meeting, some hubbub about an upcoming project, but I wanted to visit my office first. Numbers flashed on a red seven-segment display as the elevator rose slowly. One, two, three – and then the elevator stopped. The door slid open. There was a scoff. 
+Another inspection.
 
-“Gee, look at you,” Deuce said. He lifted his arm to his face, covering his mouth, and disguised his mocking laughter as a cough. I couldn’t stand Deuce. I did not offer any pleasantries in response. He gripped his suitcase firmly and entered the elevator without another word, though I could see the edge of his lips tightening into a smirk. His boss, Helen, stood behind him; her gaze was fixated on him, a scowl forming on her face. She nodded to me in greeting. I nodded back. 
+Mouth agape, my heart began racing. My chest started to sore as frantic breathing returned. I cursed, letting the shard etch my lips. The light reflected off a small shard, poking out of the wound. My hands were shaking so much that I could barely get the tweezers to pinch it.
 
-The elevator began up, six floors until mine, but just two floors had passed when I began to feel uneasy – Deuce and Helen’s eyes were on me, I could feel it. On my box. I squeezed the chest so tightly that a wooden splinter lodged in my pointer finger. It burned red, painful. *Ouch*. To protect me, and to protect my box, I turned around. I tucked my head and huddled around the trunk. I stared at the blank metal panels that decorated the elevator walls and the thin black seam between them where they met in the corner. The two shifted; they shuffled their feet, and their heads turned to me, but I shielded the box with my shivering body. Six, seven, eight, and then nine. I sprinted into my office. 
+Metal smacked against the bit and caused it to jostle; my whole body would tingle with each adjustment. When the tweezers found their mark, I began pulling the piece out of my gums. I couldn’t understand how the bit of glass was so long. Almost the length of my clipped pinky nail. 
 
-I locked the door, pulled the blinds shut, and turned the lights off. I closed the curtains on the window that overlooked the city. I sat at the desk, the old chair groaning beneath our weight, and really looked at the box for the first time. 
+Red hot tears collected in the corner of my eyes as pain started to catch up with me. The whole right side of my face was pulsing, and it would continue to do so as I tended to the wound. Bleed would halt once again, and rushing water rinsed the proof of the event from my fingers. 
 
-It was wood, yes, but what kind I couldn’t know, as the rain had changed the colour and texture of the grain. There were two leather straps with brass buckles that secured the lid. The edges were worn and faded, the uncured hide visible through the cracks. There were two zip-ties, too, made of ribbed white plastic. There were many elastic bands wrapped around the box. A hundred or more thin strips of tan rubber. There was an very, very small lock on the box’s golden clasp – it was no bigger than the tip of my pinkie finger. 
+The TV sat static in the living room, its light guided me back to it as two painkillers popped down my throat. Appetite having vanished, I found myself staring at the screen. I hesitated, licking my lips, a faint taste of my own blood. Thumb pressed down, and the static image turned to darkness. My ordeal had left me drained, and so I headed for bed.
 
-This strange gift is a box that I *shouldn’t* open. He told me: do not open it. But what was inside? When I rattled the chest, there was no sound, it sounded empty. Was nothing inside? Why had the man given it away so eagerly – why had everyone wanted it so badly? I wanted to know, I had to know: in this box, what was there? 
+An ice pack resting on my cheek soothed the ache as I lay in bed, eyes shut, trying to sleep. I knew the clock was ticking; I could feel one hour given to the next. Though a struggle, slumber did take me. 
 
-I undid the metal fasteners and removed the strips of leather. I turned them over in my hands, and on the soft back, they had been branded with one word each. The first read *greed*. The second read *envy*. I tossed them in the plastic waste basket – then I plucked them back out and stuffed them in the locked desk drawer so nobody else would find them. 
+And I slept.
 
-I took a pair of scissors to the cable ties. They had text, too. Black permanent marker had inscribed on them *hunger* and *yearning*. They went into the drawer, too. 
+For a little over an hour, I slept. My dreams were torn apart by sudden and sharp agony. I jostle around when I sleep, my arms occasionally shake, and my legs kick. It was this thrashing of mine that allowed the glass in my bed to carve sections of me. 
 
-I used the scissors again on the rubber bands. I could have stretched them around the box, one by one, but I needed to know what was inside of it. I needed to know now. As they shrunk back into tiny fragments of stretchy cord, they made a noise which, if I were crazy, I might say sounded like the word *curiosity*. But I’m not crazy, so it sounded like elastic bands breaking. Their remnants went into the drawer. 
+My own screaming startled me, as if it woke me up, not the pain. Lifting my torso and throwing a blanket aside, I quickly scanned the bed. God, I had turned my white sheets into a canvas. Thin lines of red paint were orchestrated by the torn flesh on my limbs. Some were faint and short; a select few were bright and long. 
 
-I stuffed a bent paperclip into the tiny lock. I wiggled it around, jammed it in there, stabbed at the mechanism wildly; it didn’t work. I turned the box onto its side and picked up my metal stapler. I slammed it down, and down, and down again onto the little lock. I held it in place with my left hand, pinching it between my splintered finger and my sweaty thumb. I brought the stapler down again – I brought it down on my thumb. 
+A particularly strong burning came from my left calf and right forearms. Each still had a shard of glass embedded in it. My scream turned to soft cries. My tears were not so subtle. A soreness grew in my chest, and breathing became tight and laborious.
 
-“Foolishness,” I cursed beneath my breath. But the lock had sprung open. I threw it into the drawer so quickly that it nearly bounced out. I righted the box and wrenched the lid apart. *Creak*. The hinges squealed. I was vibrating with excitement, my teeth chattering, when I peered inside. 
+The first aid kit was retrieved, and I pulled the shards and tried my best to dress the wounds. Every movement seemed to agitate one ache or another, and there was a faintness in my head. I struggle to sleep well on a normal day, and I've had too few of those lately. 
 
-There was emptiness. There was certainly nothing at all. 
+As I paced in the living room, each step would remind me of the wound on my leg. Another bad habit of mine is biting my nails when I'm nervous. Teeth ripping away layers until I was threatening to eat my own fingertips.
 
-I reached into the box, thrashing my hand about, and grasped at the lack of anything. But there was something. There was a word engraved in the bottom of the box. I traced it carefully with my finger, felt each letter, searched for more on the four walls and on the top; but there was just one. 
+For a moment, I stopped at the front door; it was so intimidating in the dark. Just a black rectangle and the bronze glint from the handle. Though maybe the world beyond it was what truly intimidated me. I felt sick as I focused on the handle, sick enough to turn away. 
 
-*Hope*, it said. 
+Returning to the living room, I lifted my hand to indulge in bad habits, and as I brought my teeth together, I felt it shatter. A great deep sea of pressure enraptured my heart. Sticking out, from underneath by fingernail, a jagged piece of glass.  
+
+
+No blood surrounded it. Like it had always been there. Even as I pulled it loose, it was a fresh wound I was opening. Heavy, I hunched over trying to catch my breath. Writing this, I can't even remember what I was telling myself. It didn’t feel like me. It was just words, the very same you’re seeing now.
+
+Even then, I realized I was still crying. Not from the pain, not from sorrow,
+
+From grit. 
+
+My eyes were trying to clean themselves, and every time I blinked, I could feel the soft grating. Soft at first, anyway. Days at the beach, that’s what it felt like. When a little sand gets in your eyes just right. For a moment, it’s under your eyelid, and it scrapes when you blink. 
+
+More than a scrape with glass, though. I tried to stop blinking, but my body wanted to flush the glass out so bad I couldn't help myself. Grating and grating with each bit. I could hardly see the TV. I think at some point I turned it on, hoping the noise would block out some of the pain.  
+I just wanted to kill it a little bit. The video was still running. What used to be live coverage played on as I struggled. Wiping away tears, I could feel the glass that had gathered, biting sand. With enough effort, my vision cleared. 
+
+My eyes and skin were clear of the glass again, but my heart was still strung tight. Same coverage I had been watching all week. The newscasters were talking to each other about a car that was found at the side of a road. It had hit some guard rails and flipped over after making impact with another vehicle. 
+
+Footage of the aftermath played. The front of it was totaled and useless; the front fender looked like tin foil. They talked about the man inside, who was found in critical condition before passing on the way to the hospital. If he had been found just a few hours earlier-
+
+The other vehicle wasn't found. The driver and the car, able to flee the scene, did so. It was their fault after all. Too tired to drive but too foolish to stop.  
+I have a bad habit of running from my problems. And so I turned the TV off and turned away.
+
+My body ached as I made my way back to the painting in my bedroom. Too tired to walk but too foolish to stop. My body ached, and then it creaked, and it threatened to crack.   
+Each and every one of them, I could feel shards of glass poking at my skin. And as I looked down, there were dozens of spots where my skin was protruding ever so slightly. Any motion I made away from the front door would split my skull with pain. 
+
+The shards of glass under my skin promising to pierce through and gouge me from the inside out. Even the tremble of my fingers would crackle and cause my nerves to fire like I was being plucked from the inside. Pin-pricks conducting my movement, demanding my surrender.
+
+  
+I wheezed and begged, the reports continued; it was like a conversation between us. And no matter how scared I was, how much I hurt. I was not allowed to walk away.
+
+Not again. 
+
+It stirred my heart how the cool air pressing against the blood and sweat felt just like it did when I stood on that road. Washed in the bright glow of his remaining headlight. His body awkwardly crumbled over, seatbelt coiled around him. He barely resembled a human.
+
+Just some weird ball of meat. I couldn’t conceptualize his life. His friends and family. His duties, his gifts, or regrets. A whole lifetime, just from some folded limbs. But I stood, a little shaken, sure, but the car and I weren't damaged at all. 
+
+Tire marks led from his lane of the road, a sharp angle, tracing his desperate attempt to avoid someone who had drifted into his lane. If he was conscious, his heart must have sunk deep when he heard a car door close, and a vehicle getting quieter, and quieter.
+
+I wonder if his night became as quiet as mine was while I waited for the police. Must have looked a sight, hunched over on my porch, still crying into the phone. Body covered in cuts, satin sleepwear stained black and red.
+
+They asked me so many questions, so many times. It all sounded the same, though. 
+
+“Coward
+
+Coward
+
+Coward.”
+
+Even the medical examiner looked like he wanted to kill me. Though his stern expression became more curious as he examined my wounds. I watched him prodding around. Of course they thought the wounds were self-inflicted. 
+
+A manic episode brought on by guilt. But I saw doubt on his face when he pulled a shard of glass three times from the same wound. He would hold them up and twist them around like he was looking for clues.
+
+I feel them still. Sometimes it's agony, like my bones themselves are about to shatter. Sometimes it's faint, a false relief, like glass in my spaghetti.
+
+No matter how hard I try. When I remember that night, I try to picture the man’s truck. The windows that shattered had left cuts all over his exposed skin. When I tried to picture that glass collected on the overturned roof and compared it to the news footage of the truck.
+
+I wonder if any glass is missing.  
+	
+
+,
