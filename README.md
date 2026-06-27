@@ -1,66 +1,122 @@
-# The Thirteenth Child
-The village agreed never to speak of the thirteenth child, though every mother counted to fourteen in secret.
+# Me and my friends went to Disneyland last month — now my boyfriend isn’t acting like himself
+So, we went to Disneyland Paris last month - just me, my boyfriend Leo, and our friends Mark and Chloe. It was the trip of a lifetime. For a few days it felt surreal, in the best possible way - endless giggling, ridiculous photos, way too much sugar, and that strange sensation that real life had just been temporarily switched off.
 
-My mother was a hard woman made of acid, fire and twisted wire. She counted in the mornings when the light was thin and brittle, and made everything appear unfinished. “One,” she says, sometimes, and then again, “one,” as if the first attempt had not taken. I do not always hear the rest. I do not want to.
+It all started at Phantom Manor.
 
-She never seemed troubled by this.
+We queued for nearly 40 minutes. Inside, it felt both cold and stuffy at the same time, smelling vaguely of dust, air conditioning and something sweet that I couldn't quite place.
 
-We stood where we were meant to stand. It was easy to know where that was. Father had marked the places with a willow switch dragged through black charcoal. Even now, I think I could place each of us exactly, though I could not say how many there were without first deciding what I mean.
+We were about to be directed into our doombuggy when Leo suddenly stopped dead.
 
-At the table there were twelve bowls. This was correct. It had always been correct. At least, I think so. It would be a simple matter to count them, but I find I prefer not to. The idea of twelve is a steady one. It holds. I did not think about it until I noticed that I was sometimes still hungry after.
+Completely dead.
 
-It is a small thing, to be hungry. A quiet thing that gnaws at you. 
+He grabbed the me tightly with both hands, his knuckles turning white.
 
-Sometimes I would pause in the doorway, not quite knowing if I was coming or going. I would hover there, one foot raised as if in dance. My second brother hated it when I danced.
+'I can't do this,' he whispered.
 
-“Don’t stand there,” he said.  
-“I’m not,” I told him, even though I was.  
-He considered this and nodded, as if I had agreed with him.
+I laughed, thinking he was joking. 'You're kidding? Phantom Manor scares you?'
 
-There is a portrait in the sitting room that I do not like to look at directly. It contains all of us, or nearly. It is us as we were. There is a place near the centre that I avoid, because it feels slippery and coarse at the same time. 
+But he didn't laugh, he just kept his gaze fixed above us, as if he were trying to hear, or perhaps recall, something. 'I have a really bad feeling,' he murmured. 'A really bad one.'
 
-If I look too quickly, I think I see a hand.  
-Since then, I have avoided looking at it directly. They seem to prefer it.
+Mark chuckled. 'Mate, it's practically a kiddies ride.'
 
-My seventh sister used to keep a diary, its leather stained dark along the edges with perspiration and longing. I remember finding it, though I could not say when because she made me promise. The writing was repeated, or perhaps I only recall it that way because repetition makes things easier to hold.
+Leo shook his head. 'I'll wait outside.'
 
-We are as we are as we are as we are.
+I tried to talk him round, but it was no use. Eventually he just nodded and said, 'I'll be just outside. Promise.'
 
-Or something like that.
+I watched him go,
 
-Later, I tried to find it again and could not. The book was still there. The space where the writing had been was not.
+black hoodie on,
 
-“You shouldn’t read things that aren’t yours,” my sister said.  
-“I wasn’t,” I said.
+hands jammed into his pockets,
 
-There are marks on the inside of the pantry door. I have always liked them. They are irregular but not careless. Sometimes I press my lips against the grooves and feel their warmth, as if someone has just breathed into the wood. 
+without looking back.
 
-I have tried to count them. I do not recommend it. The numbers refuse to settle.
+We went on without him.
 
-It is difficult to explain. I was midway through a number I did not remember starting. When I stopped, the sense of interruption was so strong that I felt I ought to apologise, though to whom I’m not sure. Maybe to my mother’s eleventh son.
+The ride was just a few minutes long, but from the beginning it felt... Wrong. I knew Phantom Manor – it was always supposed to be theatrical, not scary. This was somehow different. The sounds were muffled and slow; the animatronics seemed to twitch rather than glide.
 
-We gather sometimes in the village square. It’s nice. We stand close enough to feel each other’s warmth and far enough that we are not obliged to acknowledge it. There is a place I am usually not, which is how I know it is mine.
+And when I looked in one of the mirrors, seeing the doombuggy behind ours appear in the reflection, I could have sworn that, for a split second, Leo was sitting in it. Empty space. I blinked, and then he was gone. Just shadows and glass. I told myself it was the mirrors and the lighting.
 
-This morning, when the sky was new and grey and heavy with the promise of rain, I helped lay the table. Twelve bowls. This is correct. I know where each goes. My hands remember even when I am not thinking. This scares me. 
+When we got out, Leo wasn't waiting outside. Nobody worried, not at first. Disneyland is enormous and you can easily lose people; maybe he'd gone for a drink or a wee.
 
-I laid down the final bowl and did not feel finished.
+But fifteen minutes later, I had this horrible heaviness in my stomach and I asked Mark and Chloe to check Frontierland while I went back toward the ride exit one last time.
 
-I counted them again, more slowly. One. Two. Three.
+And then I found him.
 
-It seemed to come out differently.
+Standing outside the exit by a popcorn cart, staring straight at the castle.
 
-I cannot say how.
+Not moving.
 
-“Are you done?” my mother asked.
+Not on his phone.
 
-“Yes,” I said. Or I think I said.
+Not even looking like he was waiting for anybody.
 
-She looked near me, her eyes unfocussing on a spot just over my left shoulder, and nodded. 
+'Leo!' I nearly shouted. 'What are you doing?'
 
-“That will do,” she said.
+I touched his shoulder and he jumped, as if I'd pulled him out of a deep sleep. Then he turned, and he looked… calm. He smiled that normal smile again, almost too normal, and said, 'Hey. Where were you guys?'
 
-I dried my hands and went to stand with the others. It took me a moment to find my place, which is unusual. I am generally quite good at it. It used to be easy to know where I belonged.
+'Where were we? We've been looking for you everywhere!'
 
-Still, I paused before stepping into it, just long enough to be certain. No one spoke.
+He frowned a little. 'I've been right here. By the exit.' He sounded so natural that for a moment, I almost felt silly.
 
-It would be worse, I think, to stand where I belong and discover that [I do not](https://www.instagram.com/nightmargin.stories).
+When Mark and Chloe rejoined me, he said the exact same thing to them. 'I've been right here.'
+
+But that's not what frightened me. It was the fact that he sounded so perfectly rehearsed, as if he were repeating lines from a play he'd learned an hour ago.
+
+Still, the rest of the trip was fairly normal, or so I thought at the time. The strangeness really only started when we got home. First it was small things. Leo had been drinking black coffee since he was nineteen. The other morning I saw him spoon three teaspoons of sugar into his cup and when he noticed me staring he shrugged, 'Guess I've developed a sweet tooth.' Then he started forgetting things, our things. On our first date, a pigeon had swooped down and snatched a whole hotdog out of his hand and we'd laughed so hard we'd both cried and passers-by stared at us as if we were clinically insane. The last time I brought it up, he just stared at me with a blank expression. 'Oh... Right.' He didn't recall anything – not the ketchup stain on his shirt, not that I'd called the pigeon 'the bandit.' Nothing. Then it got worse. He started humming melodies I'd never heard. I'd find him staring at himself in mirrors for prolonged periods, as if checking that all his features were still in place. And his laugh... God, it still sounded like Leo, but it was delayed, like an echo. It was like he'd memorized how to laugh but not the timing.
+
+I tried convincing myself I was overreacting. Until last night.
+
+We were on the sofa watching a movie when I made a joke about the 'cheese drawer'. It was our own private little phrase for the emergency chocolate stash in the back of the cupboard. Leo looked at me blankly. 'What cheese drawer?'
+
+My body went cold. 'You know... The cheese drawer.'
+
+'I don't know what you're talking about.' He really didn't know, there was no faking it.
+
+I fled to the bathroom and called Chloe. My hands were shaking so badly I nearly dropped the phone. 'Chloe... There's something wrong with Leo.'
+
+'What happened?'
+
+'He's been so different since Disneyland. He's been forgetting things, acting completely unlike himself. I feel like he never came back.'
+
+There was a long silence on the line, too long. 'Chloe?'
+
+When she finally spoke, her voice was barely a whisper. 'Sarah... Leo rang me last week.'
+
+I froze. 'What?'
+
+'He said he was worried about you.'
+
+My chest tightened. 'Worried about me?'
+
+'He said that since Phantom Manor you've been different. Forgetful. And he's seen you staring at him like you were trying to imitate him.'
+
+I couldn't breathe. 'That's crazy!'
+
+And then Chloe said the words that made my stomach lurch: 'Sarah... All of us remember it the same way.'
+
+My throat seized up. 'What do you mean?'
+
+'You were the one who was worried and saying you had a bad feeling.'
+
+Cold flooded my body. 'No.'
+
+'You stayed outside,' Chloe whispered. 'Mark and I went on the ride with Leo.'
+
+'That's not possible.'
+
+'We spent nearly an hour looking for you afterwards.'
+
+My mind went completely blank. Because that wasn't the most terrifying thing. The most terrifying thing was that Chloe had always agreed with me. Every time we'd talked about the trip, she remembered Leo staying outside. Now suddenly... She didn't.
+
+'Then we found you stood by the popcorn stand,' Chloe said, her voice very quiet. 'Just repeating that you'd been there the whole time.'
+
+The phone nearly slipped out of my hand.
+
+I'm sitting in the living room trying not to panic. I can hear him in the kitchen. Still humming the same new tune. Cabinets opening and closing with excruciating slowness. Just a minute ago, he called my name but for a split second his voice sounded... Doubled. Like two people talking at once. He thinks I'm in the shower.
+
+And I can't stop thinking about one thing. If Leo remembers that I stayed outside... And I remember that about him...
+
+Then who actually went on the ride?
+
+And which of us is home?
