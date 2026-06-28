@@ -1,122 +1,28 @@
-# Me and my friends went to Disneyland last month — now my boyfriend isn’t acting like himself
-So, we went to Disneyland Paris last month - just me, my boyfriend Leo, and our friends Mark and Chloe. It was the trip of a lifetime. For a few days it felt surreal, in the best possible way - endless giggling, ridiculous photos, way too much sugar, and that strange sensation that real life had just been temporarily switched off.
+# My dad and I share a sleep paralysis demon
+Growing up I always had the strangest dreams, dreams that would haunt me and I’d remember for the rest of my life. I had recurring story line dreams like I was dreaming a tv show all about horrible things happening to myself and my family, I had lucid dreams where I try to escape an invisible evil trying to hurt me, worst of them all were the sleep paralysis nightmares I had a few times a month. 
 
-It all started at Phantom Manor.
+I would go to my room, shout goodnight to my parents, shut the door, and get in bed. I would drift off to sleep and suddenly I would be awake again. I would look around and be in my room and it was the same as usual, lights off, stars glowing on the ceiling, and completely silent. But then I’d realize my body was stuck to my bed. My limbs would be useless and my neck would be frozen in place forcing me to look into the vanity mirror facing me. 
 
-We queued for nearly 40 minutes. Inside, it felt both cold and stuffy at the same time, smelling vaguely of dust, air conditioning and something sweet that I couldn't quite place.
+Then I’d see her.
 
-We were about to be directed into our doombuggy when Leo suddenly stopped dead.
+She was always standing next to my headboard and staring at me through the mirror. Panic would sweep over me and despite my efforts I couldn’t get out of bed and I couldn’t scream for help. She’d stare at me for a few seconds before slowly turning her head to look directly at my frozen body. She’d take a slow and calculated step forward, turn her whole body to face me and reach her long lanky arms to touch my chest first. She’d push on my chest and swing a skeletal looking leg over my waist. Bringing the second leg onto the bed she’d then straddle me with her arms locked straight and holding her head up to look me dead in the eye. Her face was so pale and thin and her eyes were bottomless black voids that held no emotion but endless amounts of evil. 
 
-Completely dead.
+She’d stare at me like this with zero expression on her face for maybe a minute. During that time I’d try to get her off of me but no part of my body could find the strength or the ability to fight her off. Despite being so frail her weight on my chest felt crushing and suffocating. I’d start choking and trying to beg her to stop crushing me or at the very least stop looking at me like I’m a fly caught in a web. After what always felt like ages she’d slowly and methodically climb off of me and stand over me. She’d look into the mirror, then slowly turn to face my bedroom door. She’d drag her bare feet towards the door and my eyes would follow her, she’d slowly make her way to the door, bring her hand to the doorknob, and wrap her long bony fingers around it. I’d hear her long nails scrape the wood around the knob as it turned slowly, followed by the dull creak of the hinges as the door opened. I’d watch her creep out of my room and make her way down the hall. And then it ended.
 
-He grabbed the me tightly with both hands, his knuckles turning white.
+I would wake up in a cold sweat, tears burning my eyes, and my chest felt bruised. But I always noticed my open bedroom door and soon after I’d hear the muffled and strained groans of my dad down the hall. They always stopped within 2-3 minutes and then my dad would come rushing down the hallway full of adrenaline and fear. He’d barrel into my room, ask if I was alright and if she visited me too, then lay next to me in bed until I fell asleep. 
 
-'I can't do this,' he whispered.
+These dreams plagued us until last summer when I finally moved out of my childhood home. My job brought me from the suburbs to a bustling city near the ocean. It’s loud, it’s busy, and it’s far away from the bed that felt shared between me and the woman. Since moving I haven’t seen her, my dreams reset and now contain mundane work scenarios or the storyline of the movie I fell asleep watching that night. 
 
-I laughed, thinking he was joking. 'You're kidding? Phantom Manor scares you?'
+Well, that was until last night. 
 
-But he didn't laugh, he just kept his gaze fixed above us, as if he were trying to hear, or perhaps recall, something. 'I have a really bad feeling,' he murmured. 'A really bad one.'
+I turned off all the lights in my apartment and made my way to my room. I texted my parents goodnight, closed my door, and crawled into bed. I fell asleep watching some documentary about some horrible crime that happened years ago, but then suddenly I was awake again. Except now, my tv was off and the typically busy city outside was silent and still. 
 
-Mark chuckled. 'Mate, it's practically a kiddies ride.'
+Then my doorknob slowly turned. I watched as the door slowly creaked open, and there she was. She was a shadow in my doorway and her lanky body and expressionless face was even more unsettling than usual. I watched as she took slow steps towards me, the sound of her feet dragging hitting my ears like nails on a chalkboard. She stopped at the foot of my bed and stared straight at me, but this time she tilted her head and slowly grinned at me. Her teeth were sharp as knives and unnaturally white. She leaned forward slightly, and whispered in an unsettlingly gentle tone,
 
-Leo shook his head. 'I'll wait outside.'
+“There’s my girl.”
 
-I tried to talk him round, but it was no use. Eventually he just nodded and said, 'I'll be just outside. Promise.'
+I woke up screaming, sweating, crying, and trembling. The woman was gone, my room was dark, the city was loud again, but my door was open. I checked the time on my phone and my eyes immediately shot to the text I received four minutes prior. 
 
-I watched him go,
+“I saw her too.”
 
-black hoodie on,
-
-hands jammed into his pockets,
-
-without looking back.
-
-We went on without him.
-
-The ride was just a few minutes long, but from the beginning it felt... Wrong. I knew Phantom Manor – it was always supposed to be theatrical, not scary. This was somehow different. The sounds were muffled and slow; the animatronics seemed to twitch rather than glide.
-
-And when I looked in one of the mirrors, seeing the doombuggy behind ours appear in the reflection, I could have sworn that, for a split second, Leo was sitting in it. Empty space. I blinked, and then he was gone. Just shadows and glass. I told myself it was the mirrors and the lighting.
-
-When we got out, Leo wasn't waiting outside. Nobody worried, not at first. Disneyland is enormous and you can easily lose people; maybe he'd gone for a drink or a wee.
-
-But fifteen minutes later, I had this horrible heaviness in my stomach and I asked Mark and Chloe to check Frontierland while I went back toward the ride exit one last time.
-
-And then I found him.
-
-Standing outside the exit by a popcorn cart, staring straight at the castle.
-
-Not moving.
-
-Not on his phone.
-
-Not even looking like he was waiting for anybody.
-
-'Leo!' I nearly shouted. 'What are you doing?'
-
-I touched his shoulder and he jumped, as if I'd pulled him out of a deep sleep. Then he turned, and he looked… calm. He smiled that normal smile again, almost too normal, and said, 'Hey. Where were you guys?'
-
-'Where were we? We've been looking for you everywhere!'
-
-He frowned a little. 'I've been right here. By the exit.' He sounded so natural that for a moment, I almost felt silly.
-
-When Mark and Chloe rejoined me, he said the exact same thing to them. 'I've been right here.'
-
-But that's not what frightened me. It was the fact that he sounded so perfectly rehearsed, as if he were repeating lines from a play he'd learned an hour ago.
-
-Still, the rest of the trip was fairly normal, or so I thought at the time. The strangeness really only started when we got home. First it was small things. Leo had been drinking black coffee since he was nineteen. The other morning I saw him spoon three teaspoons of sugar into his cup and when he noticed me staring he shrugged, 'Guess I've developed a sweet tooth.' Then he started forgetting things, our things. On our first date, a pigeon had swooped down and snatched a whole hotdog out of his hand and we'd laughed so hard we'd both cried and passers-by stared at us as if we were clinically insane. The last time I brought it up, he just stared at me with a blank expression. 'Oh... Right.' He didn't recall anything – not the ketchup stain on his shirt, not that I'd called the pigeon 'the bandit.' Nothing. Then it got worse. He started humming melodies I'd never heard. I'd find him staring at himself in mirrors for prolonged periods, as if checking that all his features were still in place. And his laugh... God, it still sounded like Leo, but it was delayed, like an echo. It was like he'd memorized how to laugh but not the timing.
-
-I tried convincing myself I was overreacting. Until last night.
-
-We were on the sofa watching a movie when I made a joke about the 'cheese drawer'. It was our own private little phrase for the emergency chocolate stash in the back of the cupboard. Leo looked at me blankly. 'What cheese drawer?'
-
-My body went cold. 'You know... The cheese drawer.'
-
-'I don't know what you're talking about.' He really didn't know, there was no faking it.
-
-I fled to the bathroom and called Chloe. My hands were shaking so badly I nearly dropped the phone. 'Chloe... There's something wrong with Leo.'
-
-'What happened?'
-
-'He's been so different since Disneyland. He's been forgetting things, acting completely unlike himself. I feel like he never came back.'
-
-There was a long silence on the line, too long. 'Chloe?'
-
-When she finally spoke, her voice was barely a whisper. 'Sarah... Leo rang me last week.'
-
-I froze. 'What?'
-
-'He said he was worried about you.'
-
-My chest tightened. 'Worried about me?'
-
-'He said that since Phantom Manor you've been different. Forgetful. And he's seen you staring at him like you were trying to imitate him.'
-
-I couldn't breathe. 'That's crazy!'
-
-And then Chloe said the words that made my stomach lurch: 'Sarah... All of us remember it the same way.'
-
-My throat seized up. 'What do you mean?'
-
-'You were the one who was worried and saying you had a bad feeling.'
-
-Cold flooded my body. 'No.'
-
-'You stayed outside,' Chloe whispered. 'Mark and I went on the ride with Leo.'
-
-'That's not possible.'
-
-'We spent nearly an hour looking for you afterwards.'
-
-My mind went completely blank. Because that wasn't the most terrifying thing. The most terrifying thing was that Chloe had always agreed with me. Every time we'd talked about the trip, she remembered Leo staying outside. Now suddenly... She didn't.
-
-'Then we found you stood by the popcorn stand,' Chloe said, her voice very quiet. 'Just repeating that you'd been there the whole time.'
-
-The phone nearly slipped out of my hand.
-
-I'm sitting in the living room trying not to panic. I can hear him in the kitchen. Still humming the same new tune. Cabinets opening and closing with excruciating slowness. Just a minute ago, he called my name but for a split second his voice sounded... Doubled. Like two people talking at once. He thinks I'm in the shower.
-
-And I can't stop thinking about one thing. If Leo remembers that I stayed outside... And I remember that about him...
-
-Then who actually went on the ride?
-
-And which of us is home?
+ 
