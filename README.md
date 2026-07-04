@@ -1,262 +1,74 @@
-# I Brought My Son Home After He Died
-I know what I did was wrong, but I couldn’t bring myself to lose him and live without him.
+# Deadlights in the Tree Line [Part One]
+I guess the trouble started with the crazy moose. I had been working the graveyard shift at the MacTier rest stop gas station for about a year and a half at that point, and I liked it fine. Most customers would be making the five-hour trip from Greater Sudbury to Toronto—or vice versa, I suppose—and they wouldn’t be in the mood to talk. That suited me fine; most of the time I was baked out of my mind and not in a state to make conversation with strangers. I was by no means an exemplary employee, but I never complained or showed up late, so I was tasked with training Polina about the intricacies of the overnight shift. We were going to be working together for a week, Monday to Friday, and it was on Monday that the crazy moose appeared.
 
-I still remember his laugh. His smile. The way he’d ask questions no parent ever really knows how to answer without crossing some parent-child boundary. I remember his 11^(th) birthday – the first birthday when he didn’t want a party or any friends over. He wanted me to stay inside with him, watching cartoons and playing games all day. It was quiet. Peaceful. I never even thought about it ending so fast.
+It was probably around 2:30am, towards the end of our shift, and I distinctly remember that we were waiting for the espresso machine to rinse itself out. You cleaned it by dropping a tab in a hole at the top of the machine and pressing the button labelled “rinse.” It always made an irritating “ps, ps, ps” noise, almost like water spitting out of a faulty shower head. The noise was so loud it echoed off the walls. I remember telling Polina to watch the machine and heading back to the area behind the register when I saw the moose through the glass door.
 
-And then the accident… the deafening ambulance, the flashing lights painting everything red and blue. I don’t think I’ll ever forget that night.
+It wasn’t the first time I caught a glimpse of fauna during the night shift. The gas station was in the middle of the Ontario wilderness, at least twenty miles from civilization in either direction, so it wasn’t uncommon to see a family of bears crossing the road or anything like that. This was, however, the first time I had seen a moose on the job, and the first time I had ever seen an animal so close to the building. Its nose was literally pressed against the glass, and its eyes followed me as I moved.
 
-I stayed with him in the hospital for his last few days. Every day and night. I barely slept. The days felt endless, and I felt like I was just waiting for something that was bound to happen.
+“Polina,” I called.
 
-All I could think about during that time was what I could have done differently.
+“Did you find the wire brush?”
 
-Why wasn’t I with him? Why did I let him go to school on his own that morning? Why didn’t I just drive him myself?
+“What?”
 
-On his “final” day, I told myself I was ready to say my goodbyes. But that was an obvious lie. I just stood in the doorframe of the hospital room, my eyes filled with tears, trying to think of something – anything, damn it – a father is supposed to say in a moment like that. But my mind was blank.
+“The wire brush. Y’know, for the espresso machine.”
 
-All I could think about was what my life would look like without him.
+I had forgotten that I originally left the employee area so that I could get the wire brush.
 
-And it wasn’t life. It was me, now an empty shell, waking up, going to work, doing overtime, coming home tired, and sleeping. No reason to smile. No smile waiting for me when I get home.
+“Yeah, no, sure, can you just come out here for a second please?”
 
-A “life” I couldn’t accept. So, I didn’t – I changed it by accident. An accident that was even worse than the initial one that took my son away from me.
+She stood next to me, and it was nice to have the company, but I had no idea what I thought she could help me do. Neither of us were moose experts; if anything, I should have known better than her because I had been working for longer.
 
-I had gotten used to the sounds of the hospital room. The steady rhythm of the monitor, the occasional soft hiss of air being pushed through tubes. It was all familiar and, for some reason, gave me hope.
+“What do we do?” Polina eventually asked.
 
-That night, he looked smaller in that bed than before. I sat beside him, holding his hand as I always did, and smiled down at him – although he was unresponsive, it made me a bit happier.
+“I don’t know. Nothing, I guess.”
 
-Before going inside, the doctors told me it wouldn’t be long. I know they tried everything they could, and I don’t blame them for not being able to save him.
+“Nothing?”
 
-I had brought the teddy with me tonight. I gave it to him when he was 5, and he had been obsessed with it ever since. Without him in the house, it had been sitting on the bed for hours, probably missing its owner.
+“I mean, yeah. It’ll go away eventually. It’s more afraid of us than we are of it.”
 
-“Hey buddy…”
+“Should we call somebody?”
 
-My voice came out weaker than I expected. I realized that the only moments I ever talk these days are when I’m with him in the hospital.
+“Like who?”
 
-I glanced at him, hoping for a reaction. Maybe a twitch or something. But nothing happened.
+“Animal control, maybe?”
 
-“You remember this?” I asked gently, holding the plush closer to him, hoping he’d reach out and hug it. “You used to take it everywhere with you. Threw tantrums when I told you to leave it at home.”
+“We’re not in the city. If anything, *we’re* the ones encroaching on *its* territory.”
 
-I let out a small laugh, remembering all the memories that flooded my mind.
+“Why is he looking at us like that? Look at his eyes.”
 
-“I’m sorry,” I whispered after a few seconds of silence.
+The moose’s eyes were observing Polina and I independently of one another. The pupils were contracting and dilating at different times, depending on the eye, and I recall all of the wrong muscles on the moose’s face trembling violently. I got the urge to put as much distance between myself and the glass door as possible, but I wanted to put on a brave face for my trainee.
 
-“I should’ve been there more, I know that. Spent more time with you. But I thought I had time. I thought--” I covered my eyes, trying to keep him from seeing his father cry. It didn’t make sense, as he wasn’t awake.
+“Oh, poor thing,” she cooed.
 
-“I can fix it… somehow,” my grip tightened around the plush. “I just--”
+“What?”
 
-My voice broke. “I just needed you to stay.”
+“I read about this in school; he probably has a prion disease.”
 
-“Please, don’t leave me here alone.”
+“A what?”
 
-The monitors continued their steady rhythm, now muffled by the occasional sniffle.
+“It’s like a parasite in his brain. This happens to deer and cows all the time. The parasite basically makes the animal act weird because it eats part of its brain. That’s why you see those videos online of deer standing still or freaking out for no reason; the deer has a prion.”
 
-I’m not sure how long I stayed like that. To me it felt like hours, but when I looked at the clock only a few minutes had passed.
+Later, I looked up what a prion disease actually is, and Polina was almost entirely incorrect. However, she was right in her assertion that prions make animals act strangely. At the time, I stuck to this pseudo-explanation as if she was the world’s leading authority on moose biology. She was in university for zoology or anthropology or something, and this made the logical leap much more comfortable for me.
 
-But something changed.
+“Okay,” I said, “so how do we deal with a moose that has a prion?”
 
-It wasn’t anything physical in the room, but something was wrong. He looked calmer.
+“We would have to do open-brain surgery. Obviously, that’s not possible right now, but he’ll probably—”
 
-I remember feeling the teddy grow heavier in my hands. I tried telling myself it was nothing, but then I heard him.
+Polina was interrupted by the hollow *thunk* of antlers against glass. It was just loud enough to snap us both out of our conversation and draw our attention to the moose, whose tongue was now dangling out of its mouth. It had reared its head back and tapped its antlers against the door.
 
-“Dad?”
+“Is this a prion thing?” I asked Polina.
 
-He was quiet. I thought it was my mind playing evil tricks on me.
+“I don’t know.”
 
-Still, I looked up, my eyes bulging with anticipation. He hadn’t moved.
+The moose tapped the glass with its antlers again, harder this time. Even though I knew it was coming, the noise paired with the wrongness of the movement made me feel almost frostbitten and stirred up a deep wrongness in my belly. The moose moved spasmodically, as if it were not in complete control of its own body. It looked like it was fighting against some malevolent possessive force with all of its might, and losing the battle.
 
-“Dad?” He said, a bit louder now. This time, I heard it clearly.
+“Okay, here’s what we’re going to do,” I told Polina. “We’re going to go back into the employee area and hang out there for a minute.”
 
-I looked down at my hands. At the plush.
+Polina nodded, and I was reminded of a child wordlessly fessing up to something they knew they weren’t supposed to do. The moose hit the glass again, at an oblique angle this time, and tiny spiderweb cracks formed where the antlers made contact with the door.
 
-Part of me instantly understood that something wasn’t right. But I neglected it. The only thing I cared about was that I had heard his voice again.
+“Go, go, now!” I shouted.
 
-And I wasn’t going to lose it a second time.
+Polina and I ducked into the employee-only area, closing and locking the door behind us. We could hear the moose bang-bang-banging on the glass door, each impact more aggressive than the last, until finally we heard the dreaded crash and the clinking of glass shards skittering across the gas station’s linoleum floor. Polina and I stood in front of the espresso machine, completely frozen, for what felt like hours as the moose stalked around. We could hear its breathing through the door. It almost sounded like congested snoring, and I was trying to think of what to do next when the moose bellowed what could only be described as a mournful wail. I detected some amount of anguish in its cry, and I could tell from Polina’s expression that she heard it too.
 
-The drive home felt quieter than I expected.
-
-I kept one hand on the steering wheel, and my other gripping the teddy a little too tight.
-
-Was I going crazy? Is this the result of sleep deprivation?
-
-“Are we going home?” He said, his voice soft like always.
-
-No, I’m not crazy. He’s been talking, asking. It’s him, there’s no doubt about it. For some reason, I was given a second chance to be with him. Maybe this isn’t forever. I just want to be with him a bit longer.
-
-“Yeah… yeah, we are. You’re all better now.”
-
-“…okay.”
-
-A few minutes passed before he spoke again.
-
-“Are you going to work tomorrow?”
-
-My grip tightened around the steering wheel, embarrassed. “No. No, I’m staying home. With you. We can--”
-
-“Good.” He cut me off. It sounded a bit strange – something that should’ve caught my attention then, but I didn’t care. I smiled, knowing I could be with him.
-
-I didn’t put him back on the bed. Instead, I placed the teddy on the kitchen chair, exactly where we used to sit.
-
-“Do you feel okay?” I quietly asked.
-
-“I think so.” He replied. I was too afraid to address the elephant in the room – the fact that he was talking through a teddy bear.
-
-“Do you remember me?” Stupid question, he called you ‘dad’ back in the hospital, but I still wanted to know.
-
-“Yeah.”
-
-He paused for a moment. “You’re my dad.”
-
-Relief washed over me as I let out a shaky breath, then smiled at him. “Yeah, son,” I said. “Yeah, I am. And I--”
-
-“Why weren’t you there?”
-
-My heart sank, and I could feel my face freeze in shock. “W-was where?”
-
-“At school.”
-
-“I… I was at work, I’m--”
-
-“You’re always at work.” He said, but it didn’t sound angry. It sounded disappointed, which, in all honesty, is probably worse than him being angry.
-
-The funeral was organized by his mother three days later. I didn’t go, telling them that it was “too much too soon” for me. Technically, it wasn’t a lie. I stayed home and spent time with my son.
-
-“There’s a lot of people there,” I said at one point, not sure why I was bringing the funeral up.
-
-“They’re all there for you.” The teddy sat in my lap, still unable to move and only speak.
-
-“I don’t like them,” he said. “They talk about me like I’m gone.”
-
-“But you’re not, buddy,” I followed up quickly, placing my hand on the back of the bear, hoping he would feel it and be comforted. “You’re right here with me.”
-
-He stayed silent for a moment.
-
-“Then why did you let them put me in the ground?”
-
-I don’t remember what I answered. I may not have answered at all.
-
-Things did not stay normal for long afterwards. He talked less during the day, usually only saying something during the night. Sometimes I’d wake up with the teddy already against my chest, although I didn’t remember holding it before falling asleep. I stopped questioning small things like that after the first week. I was happy I could spend more time with my son.
-
-But then he started with his requests, which were innocent at first: “Stay a little longer. Don’t turn the lights off yet. Can we watch cartoons again?” Simple, childish things that I couldn’t refuse. But then he brought up work again.
-
-“Do you have to go tomorrow?”
-
-“Yeah,” I answered quietly, quickly following up that it would only be for a few hours and I’d be home before he knew it. Still, silence followed.
-
-“But you said you missed me, dad.”
-
-Ouch. That stung.
-
-“I do, but--”
-
-“Then stay. Please?”
-
-I called in sick the next morning, unable to refuse his requests.
-
-The real weird requests started a Tuesday morning. My sister came by unexpectedly, delivering groceries to me. “You look awful,” she told me as she stepped inside.
-
-“Thanks,” I laughed weakly, not adding anything more to the conversation.
-
-Her eyes kept drifting toward his room at the end of the hall. “Are you sleeping in there? And don’t lie to me.”
-
-“Sometimes. It feels good.”
-
-She nodded slowly, her eyes filled with pity. “You know, I could get you in contact with a--”
-
-“No, Ellie, I told you I don’t need a shrink. Please, let me grieve my own way.”
-
-Before leaving, she stopped near the door. “You know this isn’t healthy, right?”
-
-That question echoed in my head the rest of the day, and I think he also noticed.
-
-“I don’t like her.”
-
-I rubbed my eyes, “Aunt Ellie? Don’t you remember when we went to the aquarium and--”
-
-“She wants to take me away. You won’t let her, right?”
-
-I stared at the teddy in my lap, its stitched smile looking a bit wider in the dark. “Right?” it asked again.
-
-“No, of course not. I won’t.”
-
-The requests started to sound more like demands afterwards. “Don’t answer the phone. Lock the door.” And eventually, “Don’t go to work again.”
-
-I laughed nervously, replying, “I have to eventually. People are already worried about me.”
-
-“You were always there more than you were here. Are you repeating the same mistake?”
-
-Again. That was like a knife under my ribs. “Come on, that’s not fair.”
-
-“But it’s true, isn’t it? Don’t you love me more?”
-
-I stayed silent, mostly out of embarrassment – he was right. But whenever I stayed silent too long, he followed up with questions. “Why aren’t you looking at me? Why won’t you talk to me again? Are you scared of me?”
-
-As the days passed, I stopped sleeping or eating or doing anything really. Because he asked me to. The first time I truly woke up to everything that was happening was around a month after the funeral.
-
-I woke up around 2 in the morning, and heard the sound of wet coughing coming from down the hall. I heard my son crying. “Dad…” He sounded weak and frail.
-
-My instincts took over and I ran down the corridor, his bedroom door already wide open. The stench was the first thing that I noticed. Instead of the room’s normal smell, there was a stench of rot and death. The teddy sat in the middle of the room, facing me. Around it, multiple dead birds.
-
-“Dad?” It whispered, begging me to come closer. Something wet dripping from the stitching around its mouth made my stomach turn.
-
-“What the fuck is this?”
-
-“You said you’d feed me, dad.” I stumbled backward, my back reaching the end of the hall. For the first time since the hospital, I wasn’t seeing my son in front of me. Instead, it was something wearing, using him. My son was already gone, and in his place was something evil.
-
-“Who are you?” I asked, defeated. “You’re not him. He wouldn’t… he couldn’t…”
-
-“You don’t mean that,” he replied, his voice too steady and confident for a child. “You called me back, remember? Dad, don’t forget me.”
-
-Something touched my arm, and I flinched, pushing it away. “Ouch!” My son’s voice cried out.
-
-Instantly, guilt crashed into me again. That thing knew exactly what to say and how to manipulate me. I almost even apologized – *apologized,* to a monster. But the hallway lights flickered, and I finally saw what touched me.
-
-Something long and dark, dragging itself slowly back underneath the bed – the bed that had belonged to my son, now inhabited by something different. I heard wet breathing underneath the frame and my body locked up.
-
-“Dad?” it whispered again from the teddy, which was still in the same spot, between the bed and me. “Why are you like this? Don’t you miss what we had?”
-
-I stood up, gathering my thoughts as I saw the thing move under the bed again, adjusting itself. I ran, locking myself into the farthest room from the scene of my nightmares. I heard it crawling and dragging itself through the house all night long, its voice loud and clear.
-
-“Dad? Dad, where did you go? Did you leave me again, dad? Did you leave me to die again, dad?”
-
-I pressed my hands against my ears all night long, counting the seconds, minutes, hours until it finally shut up. By sunrise, that finally happened.
-
-I don’t know why, but it didn’t show itself for the entire duration of what I did next. I took the teddy outside into the backyard, along with a lighter and a bottle of gasoline.
-
-The moment I sat it down on the grass, the entire world seemed to stand still around me. Almost like everything was waiting for what I was about to do.
-
-My hands shook and my voice broke as I poured the gasoline over the teddy’s stained fur.
-
-“I’m sorry… I shouldn’t have brought you back, I’m so sorry…”
-
-I closed my eyes.
-
-“Please don’t do this.” That voice almost broke me. Because despite everything – the façade, the requests, it ruining my life slowly, the birds, everything that happened the night before – part of me still heard the voice of my son.
-
-Maybe because the teddy belonged to him. Maybe because I wanted it to be him so badly that my mind stopped caring about the difference.
-
-Even now, I still don’t know.
-
-“If you burn me now,” the teddy continued, “you’ll lose me again.”
-
-I felt not fear, but doubt. Because if there really was even a single piece of my son left inside that thing… I couldn’t kill it.
-
-I stood there for a long time holding the lighter. Maybe it was a selfish decision. All of my decisions during his life were out of my love for him, even if they didn’t seem like that. But this – maybe the most important decision – was a selfish one.
-
-I dropped the lighter into the grass.
-
-“I’m sorry,” I whispered again, but now from the bottom of my heart. Not to the thing, the teddy, myself, my sister, the situation, or anything.
-
-But to my son.
-
-For all the missed birthdays. For all the overtime. For every “maybe later” that never came.
-
-I spent so much time trying to build a future for him, to give him a good life, that I barely noticed I was missing his childhood in the meantime. The most important time. Something I will never regain.
-
-The front door creaked open behind me, and I looked down at the teddy one last time. Then toward the woods behind the house.
-
-I didn’t say anything else, but my decision was obvious even to the blind. I went back inside the house, and hours later the teddy was gone.
-
-I don’t know where it went, I don’t know what it’s doing, I don’t know anything about it. Maybe someone’s child found it and took it in. Maybe it was taken apart by wild dogs around the neighborhood. What I know for sure is that it brought me the peace that I desperately needed.
-
-To my son,
-
-If I doomed you to wander this earth alone, without the love of a parent or companion, I must ask you to forgive my selfish decision this one last time.
+Shortly after the scream, Polina and I heard a thud, like a sandbag being thrown onto the ground. No more breathing was audible from the other side of the door, and when I cracked it open to catch a peek, I saw the wide-eyed moose staring directly into my eyes. It was unmoving on its side, and I just knew that it was dead, I just knew it. Cold wind was blowing in through the now-empty doorway, and I could have sworn I saw stars in the tree line from the corner of my eye; little tiny dots swimming just beyond the reach of my vision. When I looked again, the lights were gone, and the moose wasn’t looking into my eyes at all, just staring blankly forward in the way dead things do.
