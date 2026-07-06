@@ -1,72 +1,236 @@
-# The People Of My Route Are Burning!
-I only have one job. I’m first in and last out of every job site I arrive at. Usually it’s smooth, just pull up to the site and drop off my usual crew of people. Their jobs are usually very mixed. Some are electricians, some do HVAC, some are plumbers, I’ve even had elevator technicians ride my bus. It’s not really a glamorous job, but I make pretty decent money doing it. 
+# Storm warnings repeated continuously over the AM band
+It issued from the local college receivers in tones of rehearsed composure. A broadcast intended to calm the population and discourage inquiry. No one at the mayor’s office would specify what distinguished this weather event from the ordinary spring storms common to our county. Unauthorized gatherings increase noticeably during prolonged weather emergencies. The county has documented this. Even I, as deputy mayor and fourth in leadership, could obtain no further information.
 
-I used to work for Greyhound back in the day, but the inner city of Albuquerque slowly became much too dangerous for my wife’s comfort. So I quit an above average salary and settled into this lower wage. The mileage from here to the warehouse where they store the bus is around thirty minutes, and since I’m paid for the whole day regardless if I’ve worked the whole day or not, I’m unashamed to say that I speed. I drop that commute to a measly twenty three minutes. I’ve been at it for around five years now, I drive to the cemetery every morning, drop off my load of folk, then head back to the warehouse. I’m not on call (according to policy), but if my boss, Michael, calls I’m expected to answer. He’s not mean or overly strict, he’s just a very specific guy with a set of very specific instructions. I’ve only ever seen, well not seen since I’ve never seen him but heard him get mean once. It was when I turned down a crackhead for a ride to the site. Mike was fuming. 
+*Residents are reminded not to gather unnecessarily during these unique periods of atmospheric instability.*
 
-At the time I had just onboarded with the company so I tried to keep my cool. Mike lost it though. His voice practically dripped with venomous contempt. He put me on ‘watched’ probation where I had to ride with this one guy, a pudgy balding Mexican man who went by Raphael. He was an odd character, he never spoke more than a few syllables at a time, and refused to make eye contact. The most conversation I ever got out of him was “yeah, I understand.” The day he left, I don’t think I’ll ever be able to forget. It was an average Wednesday commute, I had just settled into my driver seat and started to mess with the Bluetooth to radio converter I bought a week prior. On a typical morning, I usually showed up early to allow myself thirty to forty minutes of quiet before the driving began. 
+Power failed intermittently throughout town before noon. Internet service followed shortly afterward. Repeated radio notices indicated emergency weather conditions, nothing explained. Reception quality generally improved farther from town.
 
-So as I sat there looking through my plethora of Tool and Creed songs an odd song popped into my queue. It was a rendition of Nearer My God to Thee by some obscure church choir. I swiped to the left, and a red trash can appeared allowing me to delete the song from my queue. Odd, but not out of the ordinary for a third party app. I tried avoiding big name apps like Spotify or Apple Music because I’m cheap. I hate spending money on things that I don’t even know if I’ll use. I had thought about switching over, but with all my playlists and music being on this one app, I figured I’d just let it go for the moment. Finally as everything was set up and I could play my typical playlist, a figure loomed at the door. The sight made me jump, but once I regained my composure I smiled. It was Raphael. He stood in his usual position, belly pushed out and clipboard under his armpit, and for the first time I saw him smile. Not a big healthy grin, but a little tug of content happiness. 
+Near Main Street one felt a species of gravity upon perception. Thought slowed there and the village pressed inward against the mind. Conversations acquired delays. Men answered simple questions late and with visible effort. Traffic lights cycled confused colors. At the courthouse annex a clerk told me, without humor, that the clocks were keeping correct time but taking longer to do it.
 
-I opened the doors, a grin plastered to my face. “Raph! How are you?” His smile instantly flattened and he gripped the handrail hoisting himself up the stairs. “There he is!! Old Raph is back! That smile almost made you look human.” He found his seat, and the one sided banter was quickly curbed when he responded.
+The college broadcasts persisted throughout the afternoon. The voice delivering these statements possessed the mechanical composure of being trained exclusively to prevent panic. Beneath the broadcast persisted the noise of a crowd murmuring, a low humming interference not wholly electrical. When the dial was turned between stations one could hear three dull pulses beneath the static.
 
-“Drive.” He ordered.
+People spoke softly, counting in rhythm without appearing to notice they had done so. Everyone seemed lost in their own thoughts that afternoon.
 
-“Raph, my route isn’t scheduled until seven, it’s six right now. We have a bit of time to relax.”
+What had been intended as a pleasant spring market day became infamous throughout the county. Market days ordinarily required a degree of tolerated disorder the county permitted for economic reasons. Presently residents stood outside the diner and storefronts watching distant skies and discussing cloud formations with the solemnity usually reserved for funerals and failed harvests.
 
-“Drive.” He reasserted. His words edging with contempt.
+At the mayor’s office the barometer dropped steadily all morning, enough that several among county leadership exchanged knowing looks whose meaning they lacked the courage to state aloud. By noon the pressure had fallen low enough to ache behind the eyes and cause nosebleeds. Rain began shortly after three o’clock and continued without interruption into evening.
 
-This had happened before, he shows up and bosses me around, but never this early. Never had he shown up this early, and this aggressive. Usually it took him a minute to raise his voice. So this time I got pissed off. He shows up early and not exactly at six thirty when we would always leave, then begins to boss me around like I’m his puppy. I’m no one’s dog. So I snapped back. “You know what man, fuck off. I’m not going to-” My rant was cut off by an ear piercing wail coming from Raph’s mouth. “What the fuck dude? Cool it.”
+I first observed the presence of the figure crossing the park before the library while assisting market staff in dismantling the remaining produce stalls ahead of the storm. I became aware of her gradually, in the manner one notices a sound already present in the room.
 
-He didn’t, instead he just began placing syllables in his loud wailing. “GO! GO! GO! GO! GO! GO! GO! GO! GO! GO! GO! GO! GO! GO! GO!” I slammed the bus in reverse, then punched it into gear. As soon as the D on the dash glowed in its lime green light, Raph stopped his chant. We began to drive my usual route, and after a few minutes of total silence I glanced back in my rearview mirror. He looked completely placid. Not happy, not irritated, nothing but pure indifference. 
+She wore browns and carried a scaly leather-clad violin case darkened from age. The brim of her hat shadowed the upper portion of her face. No one else appeared to notice her emergence from the roses along the park path until she had already crossed half the square. Her outline flickered like a corrupted signal the town itself struggled to carry.
 
-“Raph, what the fuck is your problem? You show up early, you go into a total meltdown and now you’re just chilling? Was it my joke? If it was, my bad dude. I’ll take note and not do it again.” Of course no answer came. “What time are we supposed to meet at the pick up point?” I asked.
+I marked her immediately as the sort of person our ordinances were never designed to contain.
 
-To my surprise he answered. He sure was talkative today. “Seven ‘O six.” He replied. “On the dot.” I thought, *holy shit he is capable of speech.* However, as I promised him no more jokes, I let it go. Instead I cranked up my radio and to my disgust another church song hollowly tuned through the gravelly speakers. This time it had been Amazing Grace, this rendition played by a folk bluegrass band. Since I was being watched by Ol’ Raphael, I didn’t bother changing it. The last thing I needed was for him to freak out over me touching my phone. 
+Our county receives drifters now and then despite the worsening road conditions north of Briar Hills and the increasingly unreliable bridge crossings. Usually they arrive diminished, carrying failure and the grime of the region upon their faces. This woman did not move like someone accustomed to requiring permission. She crossed the square without the hesitation common to strangers.
 
-As the bus crept along a strange noise came from behind me, a man’s humming. Immediately I knew it had been Raph, the bastard was so content in his back seat driving position that he was able to hum. Although he danced on my nerves playing them like guitar strings, I again kept my mouth shut and drove. I just needed to keep my cool. After a few minutes of his incessant humming he spoke up. “Today is my last day.” He muttered.
+By dusk the rain had intensified enough to erase the hills entirely beyond the courthouse windows.
 
-“Why’s that? Am I doing good?” I asked.
+Later that evening I saw her again shortly after supper, walking alone toward Main Street beneath the failing light. I followed. By the time I reached the square she had disappeared.
 
-“Today will be excellent.” He answered, seeming to purposefully ignore the question. 
+The storm carried on through the night. Thunder moved gradually closer from the western valley and the radio reception deteriorated after midnight into long intervals of static interrupted by the triple pulse beneath it. The barometer had not risen by morning.
 
-“So I’m doing good.” I phrased it as a statement, so he’d either ignore it and I’d take that as a yes, or he would correct me. Either way I’d know where I stood.
+The following morning traffic congestion developed near Silas Mercer’s hardware and feed store severe enough to obstruct both freight movement and the factory crossing. I walked down personally expecting some collision or drainage failure and instead discovered a crowd gathered shoulder to shoulder around the woman from the park.
 
-He did neither. “Turn here, and drive straight to the brown building on the right. You will stop there.” His dodgy answer really pissed me off, but my focus remained on why we were taking a different route. I felt entitled to an answer, so I asked.
+The violinist stood before the storefront already playing.
 
-“Why there?” Raph didn’t respond. Again it felt as though he hadn’t even heard me. “Raph, you’re gonna need to speak up,” I was rapidly approaching the stop. “If you don’t, I will be forced to go my normal route.” I continued approaching the stop too quickly when Raph’s insane bellowing scream erupted from behind me.
+The factory shift bell had not yet rung. People blocked the most important crossing in town without complaint or awareness of inconvenience. Men stood listening with bags and lunch pails hanging loosely from their hands. One delivery truck sat abandoned at an angle across the intersection while its driver stared open mouthed from the curb.
 
-“SLOW SLOW SLOW SLOW SLOW SLOW SLOW!” He continued his chant not stopping for even a breath. “SLOW SLOW SLOW SLOW SLOW SLOW SLOW!” Once I depressed the brake pedal, and the bus lumbered to a near halt, his silence resumed. I pulled off the road to yell at my passenger. As soon as I turned the wheels to the curb however, a new yell erupted from his lungs. “NO NO NO NO NO NO NO NO NO NO NO NO NO!” I immediately turned them back to the road causing the whole bus to tilt as a result. I watched for him to scribble in his notebook, which he had done a few times when I had accidentally slipped with my road etiquette. The pencil remained in his shirt pocket. He never even reached for it.
+No one spoke.
 
-“Okay Raph, what the fuck dude? You’ve been freaking out on me all morning.” Although I knew speaking to him as a human would speak to another human would draw out literally nothing, it was worth a shot. “Something going on outside of work? You doing okay?” Of course this elicited no response nor any reaction whatsoever. Raph just stared forward at the windshield. Finally we approached the building where he had told me to stop earlier.
+Crowds ordinarily produce noise and complaint. Crude joking. Unwieldy movement. These people stood in complete concentration while the woman played, and their stillness possessed the petrified quality observed in animals before earthquakes.
 
-Another scream came from behind me, and again it divulged slowly into comprehensive words. “STOP STOP STOP STOP STOP STOP STOP!” This volley of words quickly halted after I came to a complete stop. I looked to the building he had mentioned, what had drawn my eyes to the complex had been the blackened soot of what looked to be a three alarm fire. No one stood outside, no one was waiting. The street had practically been abandoned. Which, to a point, was to be expected at seven in the morning. Out of an age old habit I pulled the lever and opened the doors. It had been seven o’six at the time, and no one entered for a minute. As soon as that number became seven o’seven however, a crowd of five people began to board. The first one who boarded handed me his ticket, a small boy who reminded me of someone I had recently seen on the news. I couldn’t place him at that second, but as soon as I glanced down at the boy's ticket, a strange understanding came to me. His hands excreted puss and blood, the flesh hung baggy to the tendons and bones of his hands. His face was perfectly clean and clear, but the rest of the boys body was haggard and burnt to the base of tendons and bones.
+The tune resembled no regional music I recognized, though fragments carried hints of mountain reels and old church measures altered into something leaner. It was not ancient precisely. It bore the character of music practiced for so long that purpose had outlived memory.
 
-The boy spoke his thanks, a breeze of black fumy smoke bellowing clouds of gray from his mouth. Without a hesitation he turned to the aisle and walked down to an open seat. The next man, a tall skeletal figure with no skin or muscle, handed me his ticket. His emaciated fingers had no grip strength whatsoever so the pass slipped out with no resistance. Well no resistance, aside from the bead of puss ridden membrane that quickly snapped like a spider web. I attempted to stay diplomatic, my political smile keeping my face warm and friendly to the onboarding customers. The man soon parted and went to his seat. The rest of the passengers followed one after the next, each one burnt to nothing but hard membrane and bone. The faces of each still being perfectly preserved to the detail of beauty marks and moles. That was all except the last passenger. The last man had a large build, the fat cells still bubbled like grease in a frying pan. He had an oversized hoodie with his hood drawn up, although the fabric had melted to his skin, you could still somewhat see the characters of Ren and Stimpy burned into his chest. His body emitted an awful amount more smoke than the rest, his thin balding mullet matted to his fleshy head. He looked as though he’d been used as fire wood. His face had not been preserved in the slightest, the sludge slid of his skull in a towelette of skin and muscle. 
+The crowd had begun mouthing the waltz rhythm beneath the melody.
 
-His grin was not one of happiness, but the natural grin the contours of our skulls portray. He attempted speech, the bubbling mixture of slobbery goop never quite seemed to clear up. That’s when he handed me a ticket. The thin piece of cardstock was charred and encased with the same membrane as the other passengers. “Thank you. Have a seat.” He had been the first person I had to tell to take a seat. His sockets almost seemed to gleam with excitement and he ran to his chair. “Do we go to the hospital Raph? These people need medical attention now!”
+Silently counting.
 
-“No. Drive to the job site.” Shocked and dismayed, I was about to argue with him. Unfortunately however, as fate had dictated time and time again in my life, I am a coward and put the bus into drive. I asked Raph why we weren’t going to the hospital but of course he didn’t answer. Instead he smiled longingly in his seat, as though he was protecting a secret. Finally as we approached the cemetery, he stood from his seat and approached my seat. “Do not let the fat fool leave this bus.” He said it so plainly that I had instinctively agreed. I pulled up to the cemetery where I threw the bus into park, and swung open the doors. All the passengers began walking toward the front of the bus, each one passing by, saying thank you. Then after leaving the bus, they each walked over to a funeral procession that had been taking place. Once they joined the crowd I lost track of their shambling bodies. One passenger remained, and he was approaching me quickly. 
+One-two-three.
 
-I stood up and stuck out my hand, “hey man, I was told you can’t get off here.” Of course the man developed a look of skeletal confusion. 
+One-two-three.
 
-Then he gurgled out his “why?” It wasn’t clear enough to completely understand, but the inflection of his bubbling voice alluded to the word. I had no idea, Raph hadn’t told me anything about why, he just said that he couldn’t. I hesitated hard enough for the man to attempt to push past me. Raph began to screech again.
+Several listeners stared vaguely, but not at the musician, as though attending an invisible performance that had no source.
 
-“NO NO NO NO NO NO NO NO NO NO NO NO NO!” The man stepped back, away from the exit. “This is not your final destination! Go and sit!” The man didn’t argue, nor did he even dispute the fact. He just bowed his head allowing blood and other fluids to drip out, then proceeded to take a seat. “Drive to the nearest crop field.” I did as instructed, closing the door and putting the bus into drive. So many questions, so many ideas and assumptions popped into my head as we drove. Finally I asked one question that I was able to put into words. 
+The sound and rhythm she produced exceeded all legal allowances for one instrument in a municipal zone. Beneath the fiddle persisted a deeper pulse resembling a buried mechanism striking steadily somewhere beneath the foundations of the town. It was then I noticed the crowd breathing together.
 
-“Why were all of their faces like that?” I didn’t expect an answer, but again Mr. Talkative surprised me.
+Someone nearby smelled strongly of wet iron and blood.
 
-“Like what?”
+My own breathing had not changed.
 
-“Perfect? They didn’t look burnt but that fat dude looks fucked up. Why?”
+The traffic lights along Main Street changed together behind her. No intersection in town was wired to do that. Somewhere beyond the square a factory whistle answered three times in return.
 
-Raph didn’t answer at first which was disheartening. Instead he sat there a minute, a thoughtful expression painted his face. Finally after a few minutes he spoke. “He doesn’t need to recognize that man.” More questions arose than answers, and I rapidly countered with another question.
+One elderly man standing near the curb had begun bleeding from the nose without awareness of it. A woman held her child too tightly while tears ran freely down her face. The child hummed softly in harmony with the fiddle.
 
-“Why wasn’t he allowed to deboard the bus with the others? Why is he staying? More importantly I guess, where are we going?” For a moment I thought I asked way too many questions, Raph just stared his face locked in his pondering expression.
+As I approached she looked directly at me. The attention produced in me a private agitation I declined to examine. I was required to remind myself repeatedly of the responsibilities of office.
 
-“He started the fire.” That was all he said. Really, looking back, that was all he needed to say. We continued our journey in silence. The smell of burnt rotting flesh emanated all around us making the air so thick I could practically feel it. The bus approached a field to our right and before Raph could squeal again, I pulled off. I put the bus into park and opened the door. The hiss of the air brakes filled the stale morning air. The bus wobbled for a second, a sign indicative of the man standing from his seat. He wobbled over to the front, what sounded like a thank you gurgled through the bile in his throat, and with another bus shaking wobble, he dropped from the stairs. “Drive.” Raph said from behind. 
+As deputy mayor it fell upon me to restore order in the mayor’s absence. I attempted dispersal verbally at first and found myself ignored with surprising completeness. One older woman seized my hand and attempted to dance with me there in the road. When at last I forced myself through the crowd and stood directly before the musician I discovered, to my embarrassment, that I had entirely forgotten what I intended to say.
 
-“Where?” I asked quietly. 
+She altered tempo as I drew near her.
 
-“The job site.” He returned. With that our uneventful trip back to the cemetery began. As soon as we pulled out another much smaller bus rode up and stopped for the man. I found myself driving a little slower than before, and I lingered there long enough to see him board the bus. As soon as we arrived at the cemetery, Raph stood and deboarded the bus without so much as a goodbye. He’s been gone ever since.
+Without breaking eye contact she allowed the melody to suspend itself unresolved upon a dominant harmony that generated painful tension within the chest. Then, while the final chord rang trembling through Main Street, she reached out casually with her free hand and pinched my nose between two fingers.
 
-I continue to work for this company, Mike is still my boss, and I haven’t seen Raph for a couple years. Life’s been good. I’ve returned to my old route picking up tradesmen and dropping them off at the cemetery. A queer thing caught my eye however, each one of the men who boarded my bus seemed to dawn their own stark injury. Whether it be something as obvious as a piece of rebar sticking out of their chest or burn marks from high voltage shocks, they all have something. I’ve learned to live with it though, because where it stands right now, I might have bigger fish to fry. Cause as I set up my Bluetooth radio transmitter for the millionth time, a figure stands outside of the bus door. It’s Raph, and he looks ready for the day ahead.
+A brief burst of laughter passed through the crowd. My face went hot in a way I found difficult to account for.
+
+Then the rhythm changed.
+
+The melody lost all resemblance to dance and became abrupt, percussive, and metallic. The hidden pulse beneath the earth accelerated. Several among the crowd stiffened simultaneously as though issued instruction.
+
+A man seized my shoulder hard enough to put my knee on the pavement. Others pressed inward immediately afterward without speech or visible anger. Their faces remained distant and concentrated while their movements possessed unmistakable collective intention.
+
+A woman lost one of her shoes and never stopped moving long enough to retrieve it.
+
+For several seconds the crowd ceased behaving like separate persons.
+
+The melody never stopped. She did not look at them.
+
+She looked only at me.
+
+I withdrew humiliated completely.
+
+I was aware, distantly, that I had not once looked away from her.
+
+That evening the storm moved fully over the town. The courthouse windows rattled continuously after sunset and lightning remained visible for long intervals within the clouds without fully striking ground. The AM broadcasts developed slight delays between sentences, as though the announcer were listening to something before speaking. The barometer, which had held through the afternoon, resumed its fall after dark.
+
+By evening I found myself reorganizing municipal files and concerns according to the likelihood of encountering her again.
+
+I registered this without surprise.
+
+The county physician Dr. Hill told me that several listeners described feeling lighter afterward as if a weight had been amputated.
+
+That word repeated often.
+
+Lighter.
+
+Grief disappeared first among them, then embarrassment, then memory itself. Long held habits and prejudices vanished in time leaving a dull shadow. Certain faces around town developed the calm vacancy observed in patients recovering from severe fevers.
+
+The diner stayed open later because nobody wanted to go home anymore.
+
+The advisories soon followed.
+
+By the fourth day of rain, people had stopped asking when the roads would reopen.
+
+*Repeated melodies should not be interpreted as instruction.*
+
+*Recognition alone does not constitute authorization.*
+
+I later attempted to determine when, and by whom, these notices had first been drafted. The records proved inconclusive. One clerk believed they had existed for years. The original file was missing.
+
+By then she had played publicly for three consecutive evenings while wind and lightning had assumed authority over the square.
+
+It was during this period that I ordered the woman arrested for causing a public disturbance and obstructing emergency response operations. I noted in myself a preference for proximity to her that I elected to describe administratively.
+
+When deputies attempted dispersal before her arrest, bolder members of the crowd fought them openly.
+
+Not riotously, but with reverence.
+
+To them, violence became necessary to save themselves from now unbearable silence.
+
+She offered no resistance. As deputies escorted her through the square that was now without her, several members of the crowd followed silently behind us despite the rain. One man struck his own forehead repeatedly against a telephone pole hard enough to split the skin while whispering:
+
+*don’t stop my music.*
+
+Through all this the melody never stopped. At one point, in the moment before the deputies took the instrument, she looked toward the crowd’s violence and smiled almost imperceptibly before lowering her eyes back to the strings. That was the moment I understood there would be no controlling her.
+
+Some degraded portion of my mind registered satisfaction at later seeing her contained behind iron and concrete where she could at last be administered by my office.
+
+The storm arrived fully that night. Wind struck the county jail with such force the masonry walls produced low groaning sounds beneath the pressure. The barometer, which had been falling for three days, dropped a distance in two hours that the instrument was not calibrated to record. I remained overnight at the jail.
+
+She lay upon the cot inside her cell reading a paperback under weak yellow light while the storm battered the building around us. The room smelled faintly of bleach failing to cover mildew. Finally, I asked where she came from. She ignored the question entirely. Instead, she began speaking about me: private griefs I had never voiced aloud, exhaustions, compromises, the loneliness accompanying public office in a dying town where one becomes gradually transformed from man into administrative function.
+
+Her voice behaved strangely within the concrete room. It did not echo; it chased and led the echo.
+
+Rain struck the jail in measured intervals. My breathing adjusted itself unconsciously to her cadence. The fluorescent light altered pitch upon every waltzing third beat and the desk beneath my hands vibrated faintly in sympathy.
+
+One-two-three.
+
+One-two-three.
+
+At some point she stopped speaking of such things and regarded me impatiently. Only then did I realize she had been asking repeatedly for her cell to be opened and for the violin returned.
+
+I obeyed.
+
+I experienced, briefly and with immediate shame, the conviction of having been chosen.
+
+“You misunderstand the relationship between interruption and protection,” she scolded.
+
+“You locked away the only thing presently persuading this storm to pass around you instead of through you.”
+
+I asked whether she caused the weather. The question appeared meaningless to her.
+
+I stood at the open cell door for a moment I cannot fully account for. At some point I became aware I was already holding the violin case. I do not remember the decision to walk into the storm.
+
+By the time we reached the street the rain had reached the windowsills.
+
+Water moved through Main Street nearly to the knees in some places, cold enough that my thoughts were simplified considerably. Electrical lines hissed intermittently where they touched the floodwater. The town had gone almost entirely dark except during lightning. People emerged from porches and storefronts as she passed, appearing first as movement and then as figures following.
+
+None of them spoke.
+
+They gathered automatically behind her while she climbed the churchyard steps and raised the violin beneath her chin.
+
+Then she played.
+
+The melody resembled mourning. As the notes spread outward rain altered direction around the churchyard. Loose paper circled, respecting an invisible jurisdiction. The storm did not stop.
+
+But it hesitated.
+
+The crowd seemed relieved. Several listeners swayed between measures for some time there all were at peace standing in a tempest.
+
+It was then lightning struck a nearby cupola weathervane so brightly the entire town appeared for one frozen instant etched in white relief against the mountains. The iron debris then tumbled off the metal roof into the churchyard.
+
+She inhaled slowly, preparing to continue.
+
+The iron descended through the rain. In an uncanny instant I saw it reach her.
+
+I shut my eyes.
+
+When I opened them, she was gone. Simply absent, as though she had never occupied the churchyard steps. The scaled leather case leaned against the railing untouched by the rain. The hat lay in a puddle at the base of the stairs. Beyond these objects there was no evidence.
+
+The crowd did not disperse.
+
+In her absence the storm intensified beyond anything previously recorded in county history. The hesitation ended. Rain came horizontally. The calm pocket over the churchyard collapsed instantly and the gale moved through the assembled people as though they were arrangements of paper. Several were knocked from their feet.
+
+The crowd held position in the elements. Some among them continued counting.
+
+One-two-three.
+
+One-two-three.
+
+The steeple bell rang without ceasing.
+
+I ran.
+
+I am now finishing this account while in my office in city hall. The windows flex inward with each gust and I do not look at them directly. I have barricaded the ground floor doors with filing cabinets, which I recognize as useless and did anyway.
+
+The radio has not stopped. Between bursts of static the AM band counts softly to three. I have turned it off more than three times. It continues regardless. The local college frequency, which should be carrying emergency advisories, is instead producing only the count, unbroken, without any announcer’s voice attached to it.
+
+Outside, people are still gathered in the churchyard. I can see them from this window if I am willing to look. They do not appear to be seeking shelter. They sway in the same measure they have been swaying since she stopped playing, waiting for a downbeat that will not arrive. Several among them have their faces turned upward into the rain.
+
+It was during a review of county records that I found the photographs.
+
+The county keeps bound volumes of civic photographs going back to the founding, documenting floods, elections, market days, and public works. I was looking for evidence of prior incidents. What I found instead was her face.
+
+She appeared in a photograph near the old mill during an earlier storm, wearing different clothes but carrying the same case. In another image she stood outside the predecessor of Mercer’s hardware while a crowd gathered in the rain, the violin already raised. A third photograph, water damaged and undated, showed the valley road during flooding. She stood near the waterline. Several figures surrounding her had faded almost entirely from the paper. Pale shapes remained where they had been.
+
+One report described livestock refusing enclosed shelter for three consecutive nights. Another documented a storm system that remained stationary over the valley for nearly a week.
+
+In none of the photographs was anyone looking directly at her.
+
+Even where she stood nearest the crowd, attention seemed displaced slightly elsewhere, as though the photographer had captured an event adjacent to the true subject of the image.
+
+In each photograph she appeared the same age. In none of them did anyone around her appear to notice her presence. The paper around her remained strangely intact.
+
+It is possible that I am the only person in this county who regarded her as a person. It is possible no one ever has.
+
+Outside the wind continues strengthening. The crowd in the churchyard has not moved. Several deputies later noted the dispatch tones arrived in groups of three, counting themselves into alignment. The courthouse bell no longer waits for the hour. The radio counts on without pause while pipes inside city hall knock softly in triplicate.
+
+When the wind falls quiet, the wiring inside the walls crackles softly in groups of three.
+
+Between gusts, if I press my ear against the wall, I can hear the town outside counting softly to itself.
+
+One-two-three.
+
+One-two-three.
+
+The sound no longer produces alarm in me. I find myself listening for it during the intervals when it stops.
+
+There are moments now in which the silence between counts feels worse.
