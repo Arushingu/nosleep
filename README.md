@@ -1,236 +1,244 @@
-# Storm warnings repeated continuously over the AM band
-It issued from the local college receivers in tones of rehearsed composure. A broadcast intended to calm the population and discourage inquiry. No one at the mayor’s office would specify what distinguished this weather event from the ordinary spring storms common to our county. Unauthorized gatherings increase noticeably during prolonged weather emergencies. The county has documented this. Even I, as deputy mayor and fourth in leadership, could obtain no further information.
+# I barely escaped the worst first date of my life. The problem is, the woman I met can now look like anyone.
+I downloaded the matching app because the silence in my apartment had become heavy. You reach a certain point in your twenties where the daily routines of commuting, working, and sleeping blur together into a seamless block of isolated time. I did not have a wide circle of friends to introduce me to anyone new, and the conventional methods of meeting people felt entirely foreign to me. I spent weeks swiping through endless profiles, reading carefully curated biographies, and sending out introductory messages that simply disappeared into the void. I was entirely ready to delete the application and accept my solitude when the notification chimed.
 
-*Residents are reminded not to gather unnecessarily during these unique periods of atmospheric instability.*
+Her profile was incredibly sparse. She had only uploaded two photographs, both poorly lit and slightly out of focus, showing a woman with dark hair pulling a weak smile. Her biography contained no jokes, no lists of hobbies, and no demands for a specific type of partner. It simply stated that she is a former surgeon and was looking for someone understanding, who did not judge, and willing to come over for a quiet evening.
 
-Power failed intermittently throughout town before noon. Internet service followed shortly afterward. Repeated radio notices indicated emergency weather conditions, nothing explained. Reception quality generally improved farther from town.
+We exchanged a handful of messages. Her responses were incredibly brief, arriving at odd hours of the night. I tried to initiate normal conversations about movies or music, but she consistently steered the dialogue back to the concept of meeting in person. She claimed she suffered from severe social anxiety and could not handle the loud environments of coffee shops or bars. She provided an address situated on the far edges of the suburban sprawl and asked if I could drive out to see her on a Tuesday evening. I knew all the standard safety rules regarding meeting strangers online. I knew you were supposed to meet in a crowded public space during daylight hours. But the overwhelming weight of my own loneliness bypassed my rational survival instincts, so I agreed to go.
 
-Near Main Street one felt a species of gravity upon perception. Thought slowed there and the village pressed inward against the mind. Conversations acquired delays. Men answered simple questions late and with visible effort. Traffic lights cycled confused colors. At the courthouse annex a clerk told me, without humor, that the clocks were keeping correct time but taking longer to do it.
+The drive took nearly an hour, taking me far away from the illuminated street and deep into a neighborhood that felt forgotten by the rest of the city. The streetlights here were sparse and frequently burned out, casting long, overlapping shadows across the cracked asphalt. The houses were spaced far apart, separated by thick, untended plots of wooded lots. I pulled up to the address she had provided. The property was severely neglected. The front lawn was overgrown with tall, dying weeds, and the gutters hung loosely from the edge of the sloping roof. A single, dim yellow bulb illuminated the concrete slab of the front porch. I turned off my engine, sitting in the dark cab of my car for a long time, listening to the ticking of the cooling metal. A deep, primal sense of unease began to pool in my stomach, urging me to put the car in reverse and drive back to my apartment. I forced myself to ignore the feeling, stepping out into the cold night air and walking up to the door.
 
-The college broadcasts persisted throughout the afternoon. The voice delivering these statements possessed the mechanical composure of being trained exclusively to prevent panic. Beneath the broadcast persisted the noise of a crowd murmuring, a low humming interference not wholly electrical. When the dial was turned between stations one could hear three dull pulses beneath the static.
+I knocked three times. The heavy wooden door opened almost immediately, suggesting she had been standing directly behind it, waiting for me.
 
-People spoke softly, counting in rhythm without appearing to notice they had done so. Everyone seemed lost in their own thoughts that afternoon.
+She looked significantly worse than her photographs. Her dark hair was tied back in a messy, chaotic knot, and her skin possessed a pale, unhealthy pallor. Deep, bruised circles underscored her eyes, which darted nervously around the empty street behind me before locking onto my face. She wore an oversized, stained grey sweater and loose sweatpants.
 
-What had been intended as a pleasant spring market day became infamous throughout the county. Market days ordinarily required a degree of tolerated disorder the county permitted for economic reasons. Presently residents stood outside the diner and storefronts watching distant skies and discussing cloud formations with the solemnity usually reserved for funerals and failed harvests.
+"You actually came,"
 
-At the mayor’s office the barometer dropped steadily all morning, enough that several among county leadership exchanged knowing looks whose meaning they lacked the courage to state aloud. By noon the pressure had fallen low enough to ache behind the eyes and cause nosebleeds. Rain began shortly after three o’clock and continued without interruption into evening.
+she spoke. Her voice was raspy, completely lacking the nervous, excited energy you would expect on a first date.
 
-I first observed the presence of the figure crossing the park before the library while assisting market staff in dismantling the remaining produce stalls ahead of the storm. I became aware of her gradually, in the manner one notices a sound already present in the room.
+"I said I would,"
 
-She wore browns and carried a scaly leather-clad violin case darkened from age. The brim of her hat shadowed the upper portion of her face. No one else appeared to notice her emergence from the roses along the park path until she had already crossed half the square. Her outline flickered like a corrupted signal the town itself struggled to carry.
+ I replied, attempting to offer a reassuring smile.
 
-I marked her immediately as the sort of person our ordinances were never designed to contain.
+ "It is nice to finally meet you."
 
-Our county receives drifters now and then despite the worsening road conditions north of Briar Hills and the increasingly unreliable bridge crossings. Usually they arrive diminished, carrying failure and the grime of the region upon their faces. This woman did not move like someone accustomed to requiring permission. She crossed the square without the hesitation common to strangers.
+She did not return the smile. She stepped backward, pulling the door wider to allow me entry. As I stepped over the threshold, a wave of dense, artificially heated air washed over me. The interior of the house was suffocatingly warm. 
 
-By dusk the rain had intensified enough to erase the hills entirely beyond the courthouse windows.
+"I was just making tea,"
 
-Later that evening I saw her again shortly after supper, walking alone toward Main Street beneath the failing light. I followed. By the time I reached the square she had disappeared.
+ she said, quickly closing the heavy door behind me and throwing the deadbolt lock with a loud clack.
 
-The storm carried on through the night. Thunder moved gradually closer from the western valley and the radio reception deteriorated after midnight into long intervals of static interrupted by the triple pulse beneath it. The barometer had not risen by morning.
+ "You can come into the back room. The front of the house is too drafty."
 
-The following morning traffic congestion developed near Silas Mercer’s hardware and feed store severe enough to obstruct both freight movement and the factory crossing. I walked down personally expecting some collision or drainage failure and instead discovered a crowd gathered shoulder to shoulder around the woman from the park.
+I followed her down a narrow, dimly lit hallway. The floorboards creaked heavily under my boots. The walls were entirely bare, lacking any framed pictures, mirrors, or decorative elements. The house felt entirely unlived in.
 
-The violinist stood before the storefront already playing.
+She stopped in front of a closed door at the end of the hallway, resting her hand on the brass knob. She turned her head to look at me.
 
-The factory shift bell had not yet rung. People blocked the most important crossing in town without complaint or awareness of inconvenience. Men stood listening with bags and lunch pails hanging loosely from their hands. One delivery truck sat abandoned at an angle across the intersection while its driver stared open mouthed from the curb.
+"You are in good shape," 
 
-No one spoke.
+she noted softly. 
 
-Crowds ordinarily produce noise and complaint. Crude joking. Unwieldy movement. These people stood in complete concentration while the woman played, and their stillness possessed the petrified quality observed in animals before earthquakes.
+"You look healthy. That is very important."
 
-The tune resembled no regional music I recognized, though fragments carried hints of mountain reels and old church measures altered into something leaner. It was not ancient precisely. It bore the character of music practiced for so long that purpose had outlived memory.
+Before I could ask what she meant, she pushed the door open and stepped aside, gesturing for me to enter.
 
-The crowd had begun mouthing the waltz rhythm beneath the melody.
+I walked into the room. The space was massive, appearing to be an expanded living area that had been entirely cleared of furniture. Bright, blinding halogen work lights were suspended from the ceiling, casting a harsh, shadowless glare across the entire space. The floor was covered in heavy, clear plastic sheeting, taped securely against the baseboards.
 
-Silently counting.
+I stopped walking. My brain simply refused to process the visual information entering my optic nerves.
 
-One-two-three.
+Nailed directly into the heavy wooden studs of the far wall were three men.
 
-One-two-three.
+They were stripped down to their undergarments, their arms spread wide, secured to the wall by massive, thick iron bolts driven brutally through the palms of their hands and the joints of their shoulders. Their heads slumped forward against their chests, their breathing shallow, rattling, and wet. Thick, dark trails of dried blood stained the peeling wallpaper beneath their arms.
 
-Several listeners stared vaguely, but not at the musician, as though attending an invisible performance that had no source.
+But the horror of their crucifixion was entirely eclipsed by the state of their lower bodies.
 
-The sound and rhythm she produced exceeded all legal allowances for one instrument in a municipal zone. Beneath the fiddle persisted a deeper pulse resembling a buried mechanism striking steadily somewhere beneath the foundations of the town. It was then I noticed the crowd breathing together.
+Their legs had been surgically amputated entirely at the mid-thigh. Thick, crude black sutures wrapped around the severed stumps, hastily binding the pale human flesh to limbs that completely defied biology. Grafted onto the ragged ends of their human thighs were massive, decaying, animalistic legs. The grafted appendages were covered in thick, matted brown fur, ending in long, hooked claws that scraped against the plastic sheeting on the floor. The unnatural tissue was actively rotting, weeping dark fluids and emitting the foul stench of decay. The human tissue surrounding the grafts was inflamed, swollen with severe infection.
 
-Someone nearby smelled strongly of wet iron and blood.
+I took a stumbling step backward, a scream catching in the back of my throat, strangling me. I turned blindly to run back down the hallway, but she was already standing directly behind me.
 
-My own breathing had not changed.
+She held a sharp surgical scalpel in her right hand; the blade pointed steadily at my abdomen.
 
-The traffic lights along Main Street changed together behind her. No intersection in town was wired to do that. Somewhere beyond the square a factory whistle answered three times in return.
+"Do not make a sound,"
 
-One elderly man standing near the curb had begun bleeding from the nose without awareness of it. A woman held her child too tightly while tears ran freely down her face. The child hummed softly in harmony with the fiddle.
+ she ordered. Her voice was no longer raspy or nervous. "If you scream, I will severe your femoral artery right here in the hallway, and you will bleed to death before you can reach the front door. Walk to the center of the room."
 
-As I approached she looked directly at me. The attention produced in me a private agitation I declined to examine. I was required to remind myself repeatedly of the responsibilities of office.
+I raised my hands instinctively, my entire body trembling violently as I backed away from the blade, moving deeper into the nightmare.
 
-As deputy mayor it fell upon me to restore order in the mayor’s absence. I attempted dispersal verbally at first and found myself ignored with surprising completeness. One older woman seized my hand and attempted to dance with me there in the road. When at last I forced myself through the crowd and stood directly before the musician I discovered, to my embarrassment, that I had entirely forgotten what I intended to say.
+"What are you doing to them?"
 
-She altered tempo as I drew near her.
+ I gasped, entirely unable to tear my eyes away from the crucified men and their rotting, fur-covered limbs.
 
-Without breaking eye contact she allowed the melody to suspend itself unresolved upon a dominant harmony that generated painful tension within the chest. Then, while the final chord rang trembling through Main Street, she reached out casually with her free hand and pinched my nose between two fingers.
+"I am trying to save him,"
 
-A brief burst of laughter passed through the crowd. My face went hot in a way I found difficult to account for.
+ she replied calmly, stepping fully into the room and locking the door behind her.
 
-Then the rhythm changed.
+She gestured with her free hand toward the dark, recessed corner of the room, an area situated entirely outside the harsh glare of the halogen lamps.
 
-The melody lost all resemblance to dance and became abrupt, percussive, and metallic. The hidden pulse beneath the earth accelerated. Several among the crowd stiffened simultaneously as though issued instruction.
+I turned my head. Chained securely to a massive, iron radiator pipe was a creature that belonged entirely to the darkest depths of human mythology.
 
-A man seized my shoulder hard enough to put my knee on the pavement. Others pressed inward immediately afterward without speech or visible anger. Their faces remained distant and concentrated while their movements possessed unmistakable collective intention.
+It was a towering, emaciated monstrosity, hunched over on the plastic sheeting. Its grey, stretched skin was pulled incredibly tight over its protruding ribs and elongated spine. The skull was elongated, resembling a starved, rotting deer, possessing sunken, glowing eyes and a jaw full of jagged, broken teeth. Thick patches of coarse brown fur clung sporadically to its shoulders and back.
 
-A woman lost one of her shoes and never stopped moving long enough to retrieve it.
+The creature was heavily mutilated. It was missing its left arm entirely, the joint ending in a ragged, rotting tear. Both of its lower legs had been brutally severed, replaced by fresh, bleeding stumps. The creature thrashed aggressively against the heavy iron chains binding its neck to the radiator, snapping its jaws at the empty air, completely feral and starved.
 
-For several seconds the crowd ceased behaving like separate persons.
+"Sit on the stool," 
 
-The melody never stopped. She did not look at them.
+she commanded, pointing the scalpel toward a metal medical stool positioned near a rolling stainless-steel tray.
 
-She looked only at me.
+I obeyed, my legs entirely failing me, collapsing onto the hard metal surface.
 
-I withdrew humiliated completely.
+She walked over to a metal cabinet, keeping the scalpel leveled at me, and pulled out a set of folded blue surgical scrubs. She pulled the garments methodically over her sweatpants and sweater, slipping a pair of latex gloves over her hands. She grabbed a plastic clipboard resting on the rolling tray and tossed it onto my lap.
 
-I was aware, distantly, that I had not once looked away from her.
+"Look at the charts,"
 
-That evening the storm moved fully over the town. The courthouse windows rattled continuously after sunset and lightning remained visible for long intervals within the clouds without fully striking ground. The AM broadcasts developed slight delays between sentences, as though the announcer were listening to something before speaking. The barometer, which had held through the afternoon, resumed its fall after dark.
+ she instructed. 
 
-By evening I found myself reorganizing municipal files and concerns according to the likelihood of encountering her again.
+"You need to understand the process. You need to understand why you are here. You are the perfect candidate. You are much healthier than the others on the wall."
 
-I registered this without surprise.
+I looked down at the clipboard with shaking hands. The pages were filled with meticulous, structured medical data. There were columns recording heart rates, blood pressure, detailed surgical incision angles, and massive dosages of immunosuppressant drugs. The notes detailed the exact hours of surgical amputation, the specific grafting procedures, and the inevitable, rapid timelines of tissue necrosis and biological rejection.
 
-The county physician Dr. Hill told me that several listeners described feeling lighter afterward as if a weight had been amputated.
+"You are attaching those animal legs to human beings,"
 
-That word repeated often.
+ I whispered, the sheer insanity of the medical charts causing my vision to blur.
 
-Lighter.
+"I am grafting his limbs onto human hosts,"
 
-Grief disappeared first among them, then embarrassment, then memory itself. Long held habits and prejudices vanished in time leaving a dull shadow. Certain faces around town developed the calm vacancy observed in patients recovering from severe fevers.
+ she corrected me, pointing the scalpel toward the thrashing, chained monstrosity in the corner. 
 
-The diner stayed open later because nobody wanted to go home anymore.
+"I am trying to find a compatible genetic and immunological match. The men on the wall failed. Their bodies rejected his tissue, so the necrosis spreads too fast. I need someone strong enough to accept the graft without rotting."
 
-The advisories soon followed.
+"Why?" 
 
-By the fourth day of rain, people had stopped asking when the roads would reopen.
+I pleaded, tears of panic spilling down my face. 
 
-*Repeated melodies should not be interpreted as instruction.*
+"What is that thing?"
 
-*Recognition alone does not constitute authorization.*
+She stopped sorting through the surgical instruments on the tray. She looked at the chained creature, her cold eyes softening into a look of profound, devastating sorrow.
 
-I later attempted to determine when, and by whom, these notices had first been drafted. The records proved inconclusive. One clerk believed they had existed for years. The original file was missing.
+"He was my boyfriend," 
 
-By then she had played publicly for three consecutive evenings while wind and lightning had assumed authority over the square.
+she said softly.
 
-It was during this period that I ordered the woman arrested for causing a public disturbance and obstructing emergency response operations. I noted in myself a preference for proximity to her that I elected to describe administratively.
+She walked closer to the creature, remaining just outside the reach of its snapping jaws.
 
-When deputies attempted dispersal before her arrest, bolder members of the crowd fought them openly.
+"We went camping together last autumn,"
 
-Not riotously, but with reverence.
+ she began, her voice taking on a distant, haunted quality as she stared at the rotting monster.
 
-To them, violence became necessary to save themselves from now unbearable silence.
+ "We hiked deep into the state park, far off the marked trails. We wanted to be completely alone. The woods were supposed to be quiet. But they found us on the second night. We were sleeping in the tent. I heard the nylon fabric tear, and before I could even sit up, they dragged him screaming into the dark."
 
-She offered no resistance. As deputies escorted her through the square that was now without her, several members of the crowd followed silently behind us despite the rain. One man struck his own forehead repeatedly against a telephone pole hard enough to split the skin while whispering:
+She turned to look at me, her grip tightening on the scalpel.
 
-*don’t stop my music.*
+"There were two of them," 
 
-Through all this the melody never stopped. At one point, in the moment before the deputies took the instrument, she looked toward the crowd’s violence and smiled almost imperceptibly before lowering her eyes back to the strings. That was the moment I understood there would be no controlling her.
+she continued. 
 
-Some degraded portion of my mind registered satisfaction at later seeing her contained behind iron and concrete where she could at last be administered by my office.
+"I grabbed his hunting knife and ran into the woods after them. I tracked the blood trail for miles. I tracked them all the way to a massive cave system hidden in the foothills, then crawled into the rocks and hid in the dark, watching them."
 
-The storm arrived fully that night. Wind struck the county jail with such force the masonry walls produced low groaning sounds beneath the pressure. The barometer, which had been falling for three days, dropped a distance in two hours that the instrument was not calibrated to record. I remained overnight at the jail.
+She took a slow, deep breath.
 
-She lay upon the cot inside her cell reading a paperback under weak yellow light while the storm battered the building around us. The room smelled faintly of bleach failing to cover mildew. Finally, I asked where she came from. She ignored the question entirely. Instead, she began speaking about me: private griefs I had never voiced aloud, exhaustions, compromises, the loneliness accompanying public office in a dying town where one becomes gradually transformed from man into administrative function.
+"They were monsters in the woods, tearing through the trees on animal legs. But when they reached the safety of the cave, I watched their bones break, their skin fold and shift, and them actively shape-shift back into normal, human forms. They use the human faces to walk into the towns, to lure people out, and then they shift back to hunt."
 
-Her voice behaved strangely within the concrete room. It did not echo; it chased and led the echo.
+She pointed the scalpel directly at my chest.
 
-Rain struck the jail in measured intervals. My breathing adjusted itself unconsciously to her cadence. The fluorescent light altered pitch upon every waltzing third beat and the desk beneath my hands vibrated faintly in sympathy.
+"I waited in the dark until they were completely human," she said, a dark, vindictive pride bleeding into her tone. 
 
-One-two-three.
+"I waited until they were vulnerable, and then I drove the hunting knife through their throats. I killed them both while they slept in the dirt."
 
-One-two-three.
+I stared at her, utterly paralyzed by the horrific confession.
 
-At some point she stopped speaking of such things and regarded me impatiently. Only then did I realize she had been asking repeatedly for her cell to be opened and for the violin returned.
+"I found him in the back of the cave," 
 
-I obeyed.
+she whispered, looking back at the chained creature.
 
-I experienced, briefly and with immediate shame, the conviction of having been chosen.
+ "He was in terrible shape. They had already started feeding on him. They had torn chunks of flesh from his legs and his arm. I carried him out of the woods, and brought him back here to fix him. I patched his wounds, gave him antibiotics, did everything I could."
 
-“You misunderstand the relationship between interruption and protection,” she scolded.
+She let out a ragged, desperate sob.
 
-“You locked away the only thing presently persuading this storm to pass around you instead of through you.”
+"But the saliva, the bites, whatever venom they carry in their teeth... it was already in his bloodstream. The infection took hold. I watched the man I love stretch and break. I watched the fur grow out of his skin, and remained beside him as his mind fade away until he became one of them."
 
-I asked whether she caused the weather. The question appeared meaningless to her.
+The creature on the chains roared, a terrifying, echoing sound that vibrated deeply in my chest.
 
-I stood at the open cell door for a moment I cannot fully account for. At some point I became aware I was already holding the violin case. I do not remember the decision to walk into the storm.
+"But he is stuck,"
 
-By the time we reached the street the rain had reached the windowsills.
+ she explained frantically, pacing in front of the metal tray. 
 
-Water moved through Main Street nearly to the knees in some places, cold enough that my thoughts were simplified considerably. Electrical lines hissed intermittently where they touched the floodwater. The town had gone almost entirely dark except during lightning. People emerged from porches and storefronts as she passed, appearing first as movement and then as figures following.
+"For some reason, he cannot shape-shift back. He cannot turn back into the man I love. I think the physical injuries they inflicted on him damaged his biological ability to initiate the shift. The trauma locked him in this form."
 
-None of them spoke.
+She looked at me, her eyes wide with a manic, unyielding obsession.
 
-They gathered automatically behind her while she climbed the churchyard steps and raised the violin beneath her chin.
+"That is why I need the match," 
 
-Then she played.
+she declared. 
 
-The melody resembled mourning. As the notes spread outward rain altered direction around the churchyard. Loose paper circled, respecting an invisible jurisdiction. The storm did not stop.
+"If I can find a human host that successfully integrates with his rotting limbs, it proves the tissue can stabilize. Once I find the perfect candidate, I will reverse the procedure. I will amputate your human legs, and I will surgically graft your healthy, human tissue directly onto his body. I believe the influx of matched, healthy human biology will trigger the shape-shifting mechanism. It will give his body the blueprint to become human eventually. I just want my lover back."
 
-But it hesitated.
+The sheer, monumental insanity of her plan crashed over me. 
 
-The crowd seemed relieved. Several listeners swayed between measures for some time there all were at peace standing in a tempest.
+She turned away from me, reaching down to the stainless-steel tray. She set the scalpel down and picked up a massive medical syringe attached to a thick glass vial filled with a cloudy, yellow liquid.
 
-It was then lightning struck a nearby cupola weathervane so brightly the entire town appeared for one frozen instant etched in white relief against the mountains. The iron debris then tumbled off the metal roof into the churchyard.
+"The men on the wall were weak," 
 
-She inhaled slowly, preparing to continue.
+she said, tapping the needle to clear the air bubbles. "They were desperate, pathetic men who let me bring them here without asking any questions. But you look resilient. You look like you have the biology to survive the integration. Roll up your sleeve. This sedative is going to burn, but you need to be unconscious when I start the bone saw."
 
-The iron descended through the rain. In an uncanny instant I saw it reach her.
+She began to walk toward me, the needle gleaming under the harsh halogen lights.
 
-I shut my eyes.
+The sheer terror threatening to shut my brain down completely morphed into a sudden, explosive surge of adrenaline. I knew with absolute, crystal clarity that if that needle pierced my skin, I would wake up nailed to the wooden studs, watching my own legs rot away.
 
-When I opened them, she was gone. Simply absent, as though she had never occupied the churchyard steps. The scaled leather case leaned against the railing untouched by the rain. The hat lay in a puddle at the base of the stairs. Beyond these objects there was no evidence.
+I did not speak, I refused to plead for my life.
 
-The crowd did not disperse.
+As she closed the distance, stepping within arm's reach, I threw my entire body weight to the side, rolling violently off the metal stool.
 
-In her absence the storm intensified beyond anything previously recorded in county history. The hesitation ended. Rain came horizontally. The calm pocket over the churchyard collapsed instantly and the gale moved through the assembled people as though they were arrangements of paper. Several were knocked from their feet.
+She lunged forward, thrusting the syringe toward my neck, but the needle only caught the fabric of my shirt, tearing through the cotton as I hit the plastic-covered floor.
 
-The crowd held position in the elements. Some among them continued counting.
+I scrambled to my hands and knees, my boots slipping frantically on the slick plastic sheeting. I grabbed the heavy wooden frame of a discarded dining chair sitting near the edge of the room.
 
-One-two-three.
+She pivoted gracefully, dropping the empty syringe and snatching the sharp surgical scalpel off the rolling tray. She charged at me, bringing the blade down in a vicious, sweeping arc.
 
-One-two-three.
+I swung the heavy wooden chair upward, using the thick legs as a desperate shield. The sharp scalpel blade sank deep into the wood, burying itself in the frame and jerking her arm forward.
 
-The steeple bell rang without ceasing.
+Before she could pull the blade free, I stepped forward, gripping the back of the chair tightly, and drove the heavy wooden mass directly into her chest with every ounce of physical strength I possessed.
 
-I ran.
+The impact lifted her entirely off her feet. She flew backward, the breath rushing out of her lungs in a harsh gasp, and crashed violently onto the floor.
 
-I am now finishing this account while in my office in city hall. The windows flex inward with each gust and I do not look at them directly. I have barricaded the ground floor doors with filing cabinets, which I recognize as useless and did anyway.
+She slid across the slick plastic sheeting, her body coming to a dead halt right next to the heavy iron radiator.
 
-The radio has not stopped. Between bursts of static the AM band counts softly to three. I have turned it off more than three times. It continues regardless. The local college frequency, which should be carrying emergency advisories, is instead producing only the count, unbroken, without any announcer’s voice attached to it.
+She had fallen directly into the striking range of the chains.
 
-Outside, people are still gathered in the churchyard. I can see them from this window if I am willing to look. They do not appear to be seeking shelter. They sway in the same measure they have been swaying since she stopped playing, waiting for a downbeat that will not arrive. Several among them have their faces turned upward into the rain.
+The chained creature lunged with terrifying speed. The heavy iron chains pulled taut, groaning under the immense strain, but the creature had the reach. It dropped its elongated, skull-like head, sinking its jagged, broken teeth deeply into the soft tissue of her shoulder and neck.
 
-It was during a review of county records that I found the photographs.
+She released a horrifying, gargling scream, her hands flying up to push the rotting monster away from her throat. The creature thrashed violently, its jaws locked tightly, tearing brutally through her surgical scrubs and into the muscle beneath.
 
-The county keeps bound volumes of civic photographs going back to the founding, documenting floods, elections, market days, and public works. I was looking for evidence of prior incidents. What I found instead was her face.
+I did not stay to watch the outcome of the struggle.
 
-She appeared in a photograph near the old mill during an earlier storm, wearing different clothes but carrying the same case. In another image she stood outside the predecessor of Mercer’s hardware while a crowd gathered in the rain, the violin already raised. A third photograph, water damaged and undated, showed the valley road during flooding. She stood near the waterline. Several figures surrounding her had faded almost entirely from the paper. Pale shapes remained where they had been.
+I abandoned the chair, turned away from the bloodbath, and sprinted toward the far end of the room. The exterior window was securely locked and painted shut. I did not slow down. I raised my arms, shielding my face, and dove headfirst directly through the thick glass pane.
 
-One report described livestock refusing enclosed shelter for three consecutive nights. Another documented a storm system that remained stationary over the valley for nearly a week.
+The glass shattered around me, slicing through my jacket and my arms as I tumbled out into the overgrown weeds of the side yard. I hit the wet dirt hard, rolling frantically to absorb the impact, and immediately scrambled to my feet.
 
-In none of the photographs was anyone looking directly at her.
+I bolted across the overgrown lawn, my boots slipping on the wet grass as the horrifying sounds of the struggle echoed loudly from the broken window behind me. I did not look back. I reached my car, threw myself into the driver's seat, started the engine with shaking hands, and floored the accelerator, tearing out of the dark neighborhood at reckless speeds.
 
-Even where she stood nearest the crowd, attention seemed displaced slightly elsewhere, as though the photographer had captured an event adjacent to the true subject of the image.
+I drove for thirty minutes until I reached a brightly lit gas station. I locked the car doors, pulled my phone from my pocket, and dialed emergency services. I reported the address anonymously, frantically stating that I had heard screaming and breaking glass, and then I threw the phone into a nearby storm drain.
 
-In each photograph she appeared the same age. In none of them did anyone around her appear to notice her presence. The paper around her remained strangely intact.
+I spent the rest of the night sitting in a cheap motel room, keeping the lights burning bright, meticulously cleaning the superficial glass cuts on my arms, waiting for the police sirens to pass.
 
-It is possible that I am the only person in this county who regarded her as a person. It is possible no one ever has.
+The following afternoon, I sat in the motel room, watching the local news broadcasts on the small television.
 
-Outside the wind continues strengthening. The crowd in the churchyard has not moved. Several deputies later noted the dispatch tones arrived in groups of three, counting themselves into alignment. The courthouse bell no longer waits for the hour. The radio counts on without pause while pipes inside city hall knock softly in triplicate.
+The breaking news report confirmed that the county police had raided the isolated house. The news anchor, looking visibly shaken, reported that authorities had uncovered a massive, horrific crime scene. They found the bodies of three missing men extensively mutilated inside the home.
 
-When the wind falls quiet, the wiring inside the walls crackles softly in groups of three.
+The anchor also stated that animal control had been called to the scene to neutralize a highly aggressive, diseased animal found chained inside the residence. The authorities classified the creature to the public as a severely starved, mange-ridden bear that had wandered into the home and attacked the occupants.
 
-Between gusts, if I press my ear against the wall, I can hear the town outside counting softly to itself.
+But the final detail of the broadcast completely froze the blood in my veins.
 
-One-two-three.
+The police had scoured the entire property, sweeping the house and the surrounding wooded lots. They found the victims. They found the creature. But they found absolutely no trace of the female homeowner. She was officially listed as missing, presumed to have fled the scene before the authorities arrived.
 
-One-two-three.
+I turned off the television, sitting in silence, the terrifying realization slowly assembling itself in my mind.
 
-The sound no longer produces alarm in me. I find myself listening for it during the intervals when it stops.
+I remembered watching the feral creature drop its head and sink its jagged teeth deep into her neck. I watched the blood pour out over her surgical scrubs.
 
-There are moments now in which the silence between counts feels worse.
+If her insane, desperate story was actually true... if the venom in the saliva and the bite of those creatures carried the biological infection...
+
+If the bite passes the curse, she now has the infection. And because her body is whole, she possesses the full, unobstructed ability to shape-shift.
+
+I am writing this post from a new apartment, hundreds of miles away from that city. I have changed my phone number, deleted every social media account I owned, and I keep the heavy deadbolts locked at all times.
+
+But the fear never leaves me. I walk down the crowded streets, looking at the faces of the people passing by me. I look at the baristas handing me coffee, the cashiers at the grocery store, the people standing next to me in the elevator.
+
+She knows what I look like, and someone this crazy will not leave revenge behind, and now, she could be absolutely anyone.
