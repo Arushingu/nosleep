@@ -1,244 +1,170 @@
-# I barely escaped the worst first date of my life. The problem is, the woman I met can now look like anyone.
-I downloaded the matching app because the silence in my apartment had become heavy. You reach a certain point in your twenties where the daily routines of commuting, working, and sleeping blur together into a seamless block of isolated time. I did not have a wide circle of friends to introduce me to anyone new, and the conventional methods of meeting people felt entirely foreign to me. I spent weeks swiping through endless profiles, reading carefully curated biographies, and sending out introductory messages that simply disappeared into the void. I was entirely ready to delete the application and accept my solitude when the notification chimed.
+# I think my customer is killing me.
+I may never regret anything more than knocking on that door. Even though it just happened yesterday it feels as though I’ve aged fifty years.
 
-Her profile was incredibly sparse. She had only uploaded two photographs, both poorly lit and slightly out of focus, showing a woman with dark hair pulling a weak smile. Her biography contained no jokes, no lists of hobbies, and no demands for a specific type of partner. It simply stated that she is a former surgeon and was looking for someone understanding, who did not judge, and willing to come over for a quiet evening.
+The house was nothing special, in fact it was borderline decrepit. The yard was more weeds and dirt than it was grass and even though it was an old 1960’s yellow brick ranch the brown paint trimming the windows and shutters was sun-faded and flaking away.
 
-We exchanged a handful of messages. Her responses were incredibly brief, arriving at odd hours of the night. I tried to initiate normal conversations about movies or music, but she consistently steered the dialogue back to the concept of meeting in person. She claimed she suffered from severe social anxiety and could not handle the loud environments of coffee shops or bars. She provided an address situated on the far edges of the suburban sprawl and asked if I could drive out to see her on a Tuesday evening. I knew all the standard safety rules regarding meeting strangers online. I knew you were supposed to meet in a crowded public space during daylight hours. But the overwhelming weight of my own loneliness bypassed my rational survival instincts, so I agreed to go.
+I cleared my throat and cast a quick glance to the other side of the street, where that dickhead Parker was getting ready to knock on the door of a much nicer looking house. He looked back at me, held up four fingers on one hand, declaring this would be his fourth sale for the day and grinned, knowing I still had none. I showed him my single middle finger and he turned back around to knock.
 
-The drive took nearly an hour, taking me far away from the illuminated street and deep into a neighborhood that felt forgotten by the rest of the city. The streetlights here were sparse and frequently burned out, casting long, overlapping shadows across the cracked asphalt. The houses were spaced far apart, separated by thick, untended plots of wooded lots. I pulled up to the address she had provided. The property was severely neglected. The front lawn was overgrown with tall, dying weeds, and the gutters hung loosely from the edge of the sloping roof. A single, dim yellow bulb illuminated the concrete slab of the front porch. I turned off my engine, sitting in the dark cab of my car for a long time, listening to the ticking of the cooling metal. A deep, primal sense of unease began to pool in my stomach, urging me to put the car in reverse and drive back to my apartment. I forced myself to ignore the feeling, stepping out into the cold night air and walking up to the door.
+Admittedly, I was not great at selling roof inspections. Technically they were free, but we got paid fifty bucks for every signup we managed to secure for the roofing company. I spun around to knock on my own door and felt my heart skip a beat when I saw it was already open.
 
-I knocked three times. The heavy wooden door opened almost immediately, suggesting she had been standing directly behind it, waiting for me.
+Standing there in ill-fitting black trousers and a baggy button-up white shirt was a liver-spotted fellow who looked to be a hundred years old. His back was hunched and crooked like a question mark and his face was skeletal, devoid of any fat at all. In one hand he shakily gripped a weathered wooden cane and in the other he held the doorknob.
 
-She looked significantly worse than her photographs. Her dark hair was tied back in a messy, chaotic knot, and her skin possessed a pale, unhealthy pallor. Deep, bruised circles underscored her eyes, which darted nervously around the empty street behind me before locking onto my face. She wore an oversized, stained grey sweater and loose sweatpants.
+Although he was the least pleasant thing I’d looked at that day his eyes were sharp and intelligent. He smacked his dry lips and smiled. His teeth were long and yellow. “Well, I assume you didn’t stop by just to flip the bird at the neighbor,” he said.
 
-"You actually came,"
+I cleared my throat and felt my cheeks flush. “Very sorry about that, sir. My, uh, friend over there and I have kind of a competition going and—Again, sorry. My name is Greg Mears, sir. Here’s my card.” I pulled one of the cheap throwaways from the stack rubber banded in my pocket. “And you must be…” I looked down at the company-issued tablet in my left hand and found his name. “Mr. Dobson.”
 
-she spoke. Her voice was raspy, completely lacking the nervous, excited energy you would expect on a first date.
+“Emerick Dobson,” the man said, chuckling hoarsely. He pressed the screen door open, fumbled with the cane and extended his trembling hand. I shook it gently and even then it felt like I was going to break it. Then he took the business card. “Good to meet you, son. What exactly is it you’re here selling?”
 
-"I said I would,"
+He wasn’t a dick! I couldn’t believe my luck. This was going to be a slam dunk.
 
- I replied, attempting to offer a reassuring smile.
+I offered up my winningest smile.
 
- "It is nice to finally meet you."
+“I’m glad you asked, sir. I’m with Super Duper Roofing and we’re walking this beautiful neighborhood—your beautiful neighborhood—today, offering free roof inspections to you and your neighbors for…”
 
-She did not return the smile. She stepped backward, pulling the door wider to allow me entry. As I stepped over the threshold, a wave of dense, artificially heated air washed over me. The interior of the house was suffocatingly warm. 
+He raised his hand and gave a snort. “Enough, son. No offense, but you are not a born salesman and I am two steps from the grave so I don’t have time for the spiel.”
 
-"I was just making tea,"
+My heart dropped, but then he continued.
 
- she said, quickly closing the heavy door behind me and throwing the deadbolt lock with a loud clack.
+“Why don’t you just tell me what your schedule is like, young man. This roof is a shambles.”
 
- "You can come into the back room. The front of the house is too drafty."
+My smile returned, though this time it was an honest one. “Well, I…” I looked down to the tablet.
 
-I followed her down a narrow, dimly lit hallway. The floorboards creaked heavily under my boots. The walls were entirely bare, lacking any framed pictures, mirrors, or decorative elements. The house felt entirely unlived in.
+Again he raised a hand. “Hold it. Why don’t you step in here and bring that contraption with you. I’m not all that steady just standing around on my feet.”
 
-She stopped in front of a closed door at the end of the hallway, resting her hand on the brass knob. She turned her head to look at me.
+“Yes sir!” I said, probably too excitedly. I couldn’t help it. I’d be out of this old codger’s house in two minutes and rapping on the neighbor’s door before Parker even knew what happened.
 
-"You are in good shape," 
+I followed him inside and was smacked in the face with the smell of stale air. It was hot and thick and it caught me off guard. I choked for a moment and cleared my throat. It smelled like old people, though to a higher degree than anything I’d smelled before. I made a deal with my body that I’d be in and out and I’d only have to adjust to it for a few moments.
 
-she noted softly. 
+The decorations also took me by surprise. While the exterior looked unkempt and the smell was almost rotten, the place was filled with expensive looking antiques. Not cheesy Americana kind of antiques, but hand-carved white statuettes on pedestals and tribal type masks that looked like they’d come from faraway lands where men hid behind trees waiting to shoot poison darts in your neck. There were all sorts of other odd looking knickknacks, surrounded by the mirrored and dark painted walls of a living room just inside the entryway.
 
-"You look healthy. That is very important."
+I had to pry my gaze from what looked like a big cow skull mounted on the wall beside me on a jet black piece of stone. It had gold caps on the tips of its teeth.
 
-Before I could ask what she meant, she pushed the door open and stepped aside, gesturing for me to enter.
+“Western black rhino,” the old man said, creaking down into a plush leather chair at the end of the living room. “Extinct. Quite a specimen, isn’t it?”
 
-I walked into the room. The space was massive, appearing to be an expanded living area that had been entirely cleared of furniture. Bright, blinding halogen work lights were suspended from the ceiling, casting a harsh, shadowless glare across the entire space. The floor was covered in heavy, clear plastic sheeting, taped securely against the baseboards.
+I looked at the yellowed skull again. I don’t know what I’d have called it, but definitely not beautiful. “Huh. Where’s the horn?”
 
-I stopped walking. My brain simply refused to process the visual information entering my optic nerves.
+Emerick chuckled. “Come, have a seat.”
 
-Nailed directly into the heavy wooden studs of the far wall were three men.
+“Well, sir. I really only need to get you plugged into the scheduler and be on my way.” The odd collection of curiosities surrounding me left me feeling unsettled and ready to get back out into the fresh open air, even though the summer sun was scorching.
 
-They were stripped down to their undergarments, their arms spread wide, secured to the wall by massive, thick iron bolts driven brutally through the palms of their hands and the joints of their shoulders. Their heads slumped forward against their chests, their breathing shallow, rattling, and wet. Thick, dark trails of dried blood stained the peeling wallpaper beneath their arms.
+“Nonsense, son. Come and sit. I promise I don’t bite.”
 
-But the horror of their crucifixion was entirely eclipsed by the state of their lower bodies.
+Two minutes, I told myself. Two minutes and out the door.
 
-Their legs had been surgically amputated entirely at the mid-thigh. Thick, crude black sutures wrapped around the severed stumps, hastily binding the pale human flesh to limbs that completely defied biology. Grafted onto the ragged ends of their human thighs were massive, decaying, animalistic legs. The grafted appendages were covered in thick, matted brown fur, ending in long, hooked claws that scraped against the plastic sheeting on the floor. The unnatural tissue was actively rotting, weeping dark fluids and emitting the foul stench of decay. The human tissue surrounding the grafts was inflamed, swollen with severe infection.
+I left the tile of the entry, walked a few feet across a thick Persian rug and sat down in a twin chair across from him. The leather was plush and enveloping, though the armchair was a little high. Probably how the old man was able to get in and out of them so easily. I scrolled down the screen.
 
-I took a stumbling step backward, a scream catching in the back of my throat, strangling me. I turned blindly to run back down the hallway, but she was already standing directly behind me.
+“Mr. Dobson, sir. It looks like I can get you down for the 16th of July if that would work for you?”
 
-She held a sharp surgical scalpel in her right hand; the blade pointed steadily at my abdomen.
+Emerick Dobson rested his cane against the arm of his chair and ran a hand over the top of his bald head with a tremor.
 
-"Do not make a sound,"
+“Are you a man of your word?” He asked.
 
- she ordered. Her voice was no longer raspy or nervous. "If you scream, I will severe your femoral artery right here in the hallway, and you will bleed to death before you can reach the front door. Walk to the center of the room."
+“Of course, sir,” I said automatically.
 
-I raised my hands instinctively, my entire body trembling violently as I backed away from the blade, moving deeper into the nightmare.
+He looked me over, scanning me deliberately with his pale blue eyes. 
 
-"What are you doing to them?"
+I continued. “We at Super Duper Roofing…"
 
- I gasped, entirely unable to tear my eyes away from the crucified men and their rotting, fur-covered limbs.
+He put up a hand to pause me.
 
-"I am trying to save him,"
+“Enough of that. I mean, are you truly a man of your word? A man that I can depend on.”
 
- she replied calmly, stepping fully into the room and locking the door behind her.
+The way his eyes were running over me made my hands feel clammy. Physically, I could have thrown this old weirdo through a wall but somehow his gaze reached down into my core, grabbed my spleen, and shook it like a maraca.
 
-She gestured with her free hand toward the dark, recessed corner of the room, an area situated entirely outside the harsh glare of the halogen lamps.
+“Yes,” I said dumbly.
 
-I turned my head. Chained securely to a massive, iron radiator pipe was a creature that belonged entirely to the darkest depths of human mythology.
+He considered me for a few seconds more. Then he showed me his yellow smile again, turned to the glass end table beside him and pushed a couple ancient, dusty books aside. He struggled with it but he produced a thick black book that looked like an antique diary but must have been his own old school schedule.
 
-It was a towering, emaciated monstrosity, hunched over on the plastic sheeting. Its grey, stretched skin was pulled incredibly tight over its protruding ribs and elongated spine. The skull was elongated, resembling a starved, rotting deer, possessing sunken, glowing eyes and a jaw full of jagged, broken teeth. Thick patches of coarse brown fur clung sporadically to its shoulders and back.
+His fingers shook as he flipped through the bound pages until he found what he was looking for.  Then he plucked a thin blue box from behind the pile of books, handling it almost reverently. He licked his lips and pressed both the binder and the box toward me. I stood up to take them from him. I squatted back on my chair and cocked my head.
 
-The creature was heavily mutilated. It was missing its left arm entirely, the joint ending in a ragged, rotting tear. Both of its lower legs had been brutally severed, replaced by fresh, bleeding stumps. The creature thrashed aggressively against the heavy iron chains binding its neck to the radiator, snapping its jaws at the empty air, completely feral and starved.
+I opened the box to reveal the wildest looking pen I’d ever seen. It was made entirely of what looked like carved white stone. Tiny intricate designs were cut into it, so small that they were hard to even interpret. It looked like one of those fancy ceramic easter eggs you used to see in old 80’s movies. What were those called? Chardonnay eggs or something. It was extra cool because I’d never actually even held a fountain pen before. It had a gold nib at the business end and looked very expensive.
 
-"Sit on the stool," 
+“Lovely piece of work, isn't it? Carved from pure ivory.” Emerick offered. “It was a gift to me from a tribal chieftain in Angola. I saved his son from a wildebeest stampede.” 
 
-she commanded, pointing the scalpel toward a metal medical stool positioned near a rolling stainless-steel tray.
+“Yeah, it’s very cool,” I said. My mind drifted as I examined the thing. “I’m sorry, sir. But, uh, what is all this for?”
 
-I obeyed, my legs entirely failing me, collapsing onto the hard metal surface.
+“It’s a contract, son,” Emerick said seriously.
 
-She walked over to a metal cabinet, keeping the scalpel leveled at me, and pulled out a set of folded blue surgical scrubs. She pulled the garments methodically over her sweatpants and sweater, slipping a pair of latex gloves over her hands. She grabbed a plastic clipboard resting on the rolling tray and tossed it onto my lap.
+I turned my attention to the open notebook. The pages were crisp and clean, unlined. The open page was filled from top to bottom with shaky cursive writing. At the bottom there was a long black line, presumably for a signature. I couldn’t make out a word of it. 
 
-"Look at the charts,"
+“I can’t read it.”
 
- she instructed. 
+“It’s a guarantee that you will give me your very best,” Emerick said.
 
-"You need to understand the process. You need to understand why you are here. You are the perfect candidate. You are much healthier than the others on the wall."
+I looked at the thing once more and shifted uncomfortably in my chair. “I’m sorry sir. No offense, but I can’t even read this so I don’t think I should sign it.”
 
-I looked down at the clipboard with shaking hands. The pages were filled with meticulous, structured medical data. There were columns recording heart rates, blood pressure, detailed surgical incision angles, and massive dosages of immunosuppressant drugs. The notes detailed the exact hours of surgical amputation, the specific grafting procedures, and the inevitable, rapid timelines of tissue necrosis and biological rejection.
+The old man leaned forward, deadly serious now. His blue eyes were cool and steady.
 
-"You are attaching those animal legs to human beings,"
+“If you want the commission you’re going to sign it.” His lips were taut, eyes unblinking.
 
- I whispered, the sheer insanity of the medical charts causing my vision to blur.
+I dropped my gaze and looked again at the hand-scrawled contract page. Then I glanced at him again. Aside from his trembling hands I don’t think he’d moved one bit.
 
-"I am grafting his limbs onto human hosts,"
+I took the pen out of its little blue cardboard box. It was unexpectedly light, like a feather between my fingers.
 
- she corrected me, pointing the scalpel toward the thrashing, chained monstrosity in the corner. 
+Screw it, I told myself.
 
-"I am trying to find a compatible genetic and immunological match. The men on the wall failed. Their bodies rejected his tissue, so the necrosis spreads too fast. I need someone strong enough to accept the graft without rotting."
+I took the pen and scratched at the surface of the paper. Nothing happened.
 
-"Why?" 
+“You have to click it,” Emerick explained.
 
-I pleaded, tears of panic spilling down my face. 
+“Oh,” I said, stupidly. “Right.” Although I never knew you had to click a fountain pen.
 
-"What is that thing?"
+I pressed the rear end of the pen, which did not appear to have a button, just more intricate carving. As my thumb made contact with it I winced. The damn thing poked me. The tip of my thumb started to bleed and I could not help but let it dribble on that pristine white surface of the pen. Almost immediately the ruby smear was absorbed into the instrument, as if it were not a porous device but rather a thirsty animal. My thumb continued to bleed a bit and that too was swallowed by the pen.
 
-She stopped sorting through the surgical instruments on the tray. She looked at the chained creature, her cold eyes softening into a look of profound, devastating sorrow.
+“What the hell?” I said.
 
-"He was my boyfriend," 
+“I’m afraid you’ll have to hurry up, son,” Emerick said. “All of a sudden I’m not feeling quite myself.”
 
-she said softly.
+I looked up at the old man and saw him sitting at the edge of his seat. Despite what he’d said he was watching my hands intently, not talking to me as much as he was talking at me, waiting.
 
-She walked closer to the creature, remaining just outside the reach of its snapping jaws.
+I wanted to leave. I wanted to go home. All of a sudden every nerve in my body was screaming at me to pry my ass up and out of the chair and run out the door as fast as I could.
 
-"We went camping together last autumn,"
+“Sign it, boy.”
 
- she began, her voice taking on a distant, haunted quality as she stared at the rotting monster.
+I looked again at the paper, feeling woozy now.
 
- "We hiked deep into the state park, far off the marked trails. We wanted to be completely alone. The woods were supposed to be quiet. But they found us on the second night. We were sleeping in the tent. I heard the nylon fabric tear, and before I could even sit up, they dragged him screaming into the dark."
+“I don’t want to,” I said, shaking my head to clear it. My thoughts were muddled. It felt like I was under some kind of hypnosis.
 
-She turned to look at me, her grip tightening on the scalpel.
+I shook my head more violently and stabbed the pen into the surface of the page in anger. I never intended to sign anything.
 
-"There were two of them," 
+As soon as the pen touched the paper a couple things happened simultaneously. First, dark red ink flowed onto the paper, blotting the writing in the middle of the page at first. Then it swirled downward, as if it had a mind of its own, criss-crossing  its way carefully between the cursive letters and down to the flat black line. There the ink twisted and turned until it became an unmistakable copy of my signature. The moment that happened the tension in my body deflated like a balloon. In fact, all the uncertainty and bewilderment drained from me like a plug had been pulled. Finally, directly across from me came an audible sigh.
 
-she continued. 
+I looked up and saw Emerick Dobson stop shaking. He placed a steady hand on the edge of the chair, stood up confidently and spoke in a voice that was at least one octave higher.
 
-"I grabbed his hunting knife and ran into the woods after them. I tracked the blood trail for miles. I tracked them all the way to a massive cave system hidden in the foothills, then crawled into the rocks and hid in the dark, watching them."
+“Thank you kindly, my boy. I think you’d better be on your way now, don’t you?”
 
-She took a slow, deep breath.
+A muscle twitched in my neck and I stood up. My knees creaked as I did so and I groaned. A dense fog settled across my thoughts and I stumbled toward the door.
 
-"They were monsters in the woods, tearing through the trees on animal legs. But when they reached the safety of the cave, I watched their bones break, their skin fold and shift, and them actively shape-shift back into normal, human forms. They use the human faces to walk into the towns, to lure people out, and then they shift back to hunt."
+“Uh, yeah. Thanks.”
 
-She pointed the scalpel directly at my chest.
+“I look forward to working with you,” Emerick said firmly.
 
-"I waited in the dark until they were completely human," she said, a dark, vindictive pride bleeding into her tone. 
+When the sunlight hit my face again I felt a little better, but when I turned back I saw the door was once again closed. I dazedly scrolled through the screen of the tablet, selected a random date and confirmed it before continuing down the sidewalk. I was so tired.
 
-"I waited until they were vulnerable, and then I drove the hunting knife through their throats. I killed them both while they slept in the dirt."
+The next hour passed in a blur. I knocked on a couple more doors before meeting up with Parker at the end of the block where he decided I didn’t look well enough to keep working the neighborhood. He wasn’t wrong. I was exhausted so I didn’t put a fight. We piled into his car so he could drop me off back at my apartment.
 
-I stared at her, utterly paralyzed by the horrific confession.
+I don’t remember falling asleep but I did wake in the night around 2AM. My body was stiff and sore, worse than I’d ever been even after a day of digging post holes back when I’d been on a fencing crew. I pried myself out of bed, took a few aspirin, and fell back into my bed.
 
-"I found him in the back of the cave," 
+When I woke up again it was mid-morning. The clock said I was three hours late reporting for work and I had a bunch of missed texts and voicemail messages from the Super Duper office.
 
-she whispered, looking back at the chained creature.
+I myself felt the exact opposite of Super Duper. I had never felt so weak before in my life. I imagine this must have been what was like when you’re getting your guts nuked by chemotherapy. I didn’t want to eat, could barely even drag myself to the bathroom. When I looked in the mirror I cried. The face that looked back at me was not one of a thirty-two-year-old man. My hairline had receded four inches and what little hair I had left was wispy and gray. My cheeks were sunken and sallow and my eyes bulged unnaturally above my bony cheeks. Every corner of my face skin was creased and deeply lined. My arm and chest muscles, while never prominent, were withered and thin. And I ached everywhere. My knees throbbed dully. My back actually hurt just above my hips and along my neck, and I could barely flex my fingers without wincing. I wept for what felt like an hour before I decided I ought to go to the hospital.
 
- "He was in terrible shape. They had already started feeding on him. They had torn chunks of flesh from his legs and his arm. I carried him out of the woods, and brought him back here to fix him. I patched his wounds, gave him antibiotics, did everything I could."
+I’d barely dragged my pants on when my phone began to ring. Fortunately it was within reach of me at the end of my bed and I gripped it with a palsied hand.
 
-She let out a ragged, desperate sob.
+“Hello?”
 
-"But the saliva, the bites, whatever venom they carry in their teeth... it was already in his bloodstream. The infection took hold. I watched the man I love stretch and break. I watched the fur grow out of his skin, and remained beside him as his mind fade away until he became one of them."
+“How do you do, young man? Feeling a little stiff today? I hope you don’t mind my calling. I got your number off your card.” The voice was undeniably Emerick Dobson’s, though all traces of warbling feebleness were gone.
 
-The creature on the chains roared, a terrifying, echoing sound that vibrated deeply in my chest.
+I screamed obscenities into the phone until my throat was hoarse. Tears streamed down the deep lines in my cheeks.
 
-"But he is stuck,"
+“You did this! What did you do to me?”
 
- she explained frantically, pacing in front of the metal tray. 
+“An agreement was made,” he responded shortly. “You guaranteed me you’d give me your very best. I simply wanted to call and thank you for making good on your end of the deal. It could not have come at a more opportune time. I don’t want to keep you, though. I do suspect you’ll be needing your rest now. Don’t worry. It’s almost over.”
 
-"For some reason, he cannot shape-shift back. He cannot turn back into the man I love. I think the physical injuries they inflicted on him damaged his biological ability to initiate the shift. The trauma locked him in this form."
+Rage welled inside me and I screamed. I wanted to kill him. As unbelievable as it was I knew exactly what he’d done and I wanted to end him for it. But the rage slowly slipped away. I just didn’t have the energy.
 
-She looked at me, her eyes wide with a manic, unyielding obsession.
+“Good day, young man. Thanks again.” And then there was a click as he hung up.
 
-"That is why I need the match," 
+I wanted to feel wrathful but all of a sudden I couldn’t remember why. Had I eaten breakfast yet? My thoughts were slipping.
 
-she declared. 
-
-"If I can find a human host that successfully integrates with his rotting limbs, it proves the tissue can stabilize. Once I find the perfect candidate, I will reverse the procedure. I will amputate your human legs, and I will surgically graft your healthy, human tissue directly onto his body. I believe the influx of matched, healthy human biology will trigger the shape-shifting mechanism. It will give his body the blueprint to become human eventually. I just want my lover back."
-
-The sheer, monumental insanity of her plan crashed over me. 
-
-She turned away from me, reaching down to the stainless-steel tray. She set the scalpel down and picked up a massive medical syringe attached to a thick glass vial filled with a cloudy, yellow liquid.
-
-"The men on the wall were weak," 
-
-she said, tapping the needle to clear the air bubbles. "They were desperate, pathetic men who let me bring them here without asking any questions. But you look resilient. You look like you have the biology to survive the integration. Roll up your sleeve. This sedative is going to burn, but you need to be unconscious when I start the bone saw."
-
-She began to walk toward me, the needle gleaming under the harsh halogen lights.
-
-The sheer terror threatening to shut my brain down completely morphed into a sudden, explosive surge of adrenaline. I knew with absolute, crystal clarity that if that needle pierced my skin, I would wake up nailed to the wooden studs, watching my own legs rot away.
-
-I did not speak, I refused to plead for my life.
-
-As she closed the distance, stepping within arm's reach, I threw my entire body weight to the side, rolling violently off the metal stool.
-
-She lunged forward, thrusting the syringe toward my neck, but the needle only caught the fabric of my shirt, tearing through the cotton as I hit the plastic-covered floor.
-
-I scrambled to my hands and knees, my boots slipping frantically on the slick plastic sheeting. I grabbed the heavy wooden frame of a discarded dining chair sitting near the edge of the room.
-
-She pivoted gracefully, dropping the empty syringe and snatching the sharp surgical scalpel off the rolling tray. She charged at me, bringing the blade down in a vicious, sweeping arc.
-
-I swung the heavy wooden chair upward, using the thick legs as a desperate shield. The sharp scalpel blade sank deep into the wood, burying itself in the frame and jerking her arm forward.
-
-Before she could pull the blade free, I stepped forward, gripping the back of the chair tightly, and drove the heavy wooden mass directly into her chest with every ounce of physical strength I possessed.
-
-The impact lifted her entirely off her feet. She flew backward, the breath rushing out of her lungs in a harsh gasp, and crashed violently onto the floor.
-
-She slid across the slick plastic sheeting, her body coming to a dead halt right next to the heavy iron radiator.
-
-She had fallen directly into the striking range of the chains.
-
-The chained creature lunged with terrifying speed. The heavy iron chains pulled taut, groaning under the immense strain, but the creature had the reach. It dropped its elongated, skull-like head, sinking its jagged, broken teeth deeply into the soft tissue of her shoulder and neck.
-
-She released a horrifying, gargling scream, her hands flying up to push the rotting monster away from her throat. The creature thrashed violently, its jaws locked tightly, tearing brutally through her surgical scrubs and into the muscle beneath.
-
-I did not stay to watch the outcome of the struggle.
-
-I abandoned the chair, turned away from the bloodbath, and sprinted toward the far end of the room. The exterior window was securely locked and painted shut. I did not slow down. I raised my arms, shielding my face, and dove headfirst directly through the thick glass pane.
-
-The glass shattered around me, slicing through my jacket and my arms as I tumbled out into the overgrown weeds of the side yard. I hit the wet dirt hard, rolling frantically to absorb the impact, and immediately scrambled to my feet.
-
-I bolted across the overgrown lawn, my boots slipping on the wet grass as the horrifying sounds of the struggle echoed loudly from the broken window behind me. I did not look back. I reached my car, threw myself into the driver's seat, started the engine with shaking hands, and floored the accelerator, tearing out of the dark neighborhood at reckless speeds.
-
-I drove for thirty minutes until I reached a brightly lit gas station. I locked the car doors, pulled my phone from my pocket, and dialed emergency services. I reported the address anonymously, frantically stating that I had heard screaming and breaking glass, and then I threw the phone into a nearby storm drain.
-
-I spent the rest of the night sitting in a cheap motel room, keeping the lights burning bright, meticulously cleaning the superficial glass cuts on my arms, waiting for the police sirens to pass.
-
-The following afternoon, I sat in the motel room, watching the local news broadcasts on the small television.
-
-The breaking news report confirmed that the county police had raided the isolated house. The news anchor, looking visibly shaken, reported that authorities had uncovered a massive, horrific crime scene. They found the bodies of three missing men extensively mutilated inside the home.
-
-The anchor also stated that animal control had been called to the scene to neutralize a highly aggressive, diseased animal found chained inside the residence. The authorities classified the creature to the public as a severely starved, mange-ridden bear that had wandered into the home and attacked the occupants.
-
-But the final detail of the broadcast completely froze the blood in my veins.
-
-The police had scoured the entire property, sweeping the house and the surrounding wooded lots. They found the victims. They found the creature. But they found absolutely no trace of the female homeowner. She was officially listed as missing, presumed to have fled the scene before the authorities arrived.
-
-I turned off the television, sitting in silence, the terrifying realization slowly assembling itself in my mind.
-
-I remembered watching the feral creature drop its head and sink its jagged teeth deep into her neck. I watched the blood pour out over her surgical scrubs.
-
-If her insane, desperate story was actually true... if the venom in the saliva and the bite of those creatures carried the biological infection...
-
-If the bite passes the curse, she now has the infection. And because her body is whole, she possesses the full, unobstructed ability to shape-shift.
-
-I am writing this post from a new apartment, hundreds of miles away from that city. I have changed my phone number, deleted every social media account I owned, and I keep the heavy deadbolts locked at all times.
-
-But the fear never leaves me. I walk down the crowded streets, looking at the faces of the people passing by me. I look at the baristas handing me coffee, the cashiers at the grocery store, the people standing next to me in the elevator.
-
-She knows what I look like, and someone this crazy will not leave revenge behind, and now, she could be absolutely anyone.
+Yes, breakfast sounded good. But first, I needed a nap.
