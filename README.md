@@ -1,490 +1,240 @@
-# I do specialized cleanup work for apartments where people have died, but I’ve never seen anything like this before
-I’m a self-employed specialist cleaner for apartments where people have died. Usually old people. Grandparents whose families want the place emptied and cleaned so it can be sold as quickly as possible.
+# I work in law enforcement. My partner and I just lied on an official police report because nobody would believe what we shot at tonight.
+I work the graveyard patrol in a jurisdiction where the trees outnumber the people ten thousand to one. It is a vast, deeply isolated county dominated by dense pine forests, winding dirt logging routes, and sprawling properties owned by people who value extreme privacy. You get used to the quiet. You learn to appreciate the long hours of driving through pitch-black roads with nothing but the hum of the engine and the dashboard lights to keep you company. But the extreme isolation also means that when something goes wrong out here, help is a very long way away.
 
-It never bothered me. At least not until tonight.
+My partner and I were parked near a deserted county intersection, drinking lukewarm coffee from thermos flasks, when the radio mounted on the dashboard crackled to life.
 
-I had taken on too many jobs again, blinded by the extra money, so by the time I reached the last house, it was already dark.
+The dispatcher’s voice broke through the static. She was a veteran operator, someone who usually handled horrific car accidents and domestic disputes with a flat, unwavering calm. Tonight, her voice was entirely different. Her tone was elevated, tight with genuine stress.
 
-The place stood in the middle of nowhere.
+"Unit Four, I need you to respond to a 10-54 at the estate at the end of the upper ridge road,"
 
-When I parked at the entrance, I had the uneasy feeling that this would not be a quick job.
+ the dispatcher said. 
 
-The moment I stepped inside, I realized the house hadn’t been emptied yet. Everything the old man had owned was still there, exactly where he had left it. Normally, the family would have removed the furniture and personal belongings before calling me in, leaving me to do the final cleanup.
+"I have an open line with the homeowner. He is frantic. I cannot get a clear read on the situation."
 
-A sheet of paper rested on the desk near the entrance:
+My partner grabbed the radio microphone.
 
-*Sorry, but there were complications with the transport service. Please just clean as much as you can. The place where he died is the living room.*
+ "Dispatch, can you confirm the nature of the intruder? Is the caller providing a description?"
 
-I frowned at the note. Why hadn’t they simply called me? Maybe they were afraid I would refuse the job if I knew beforehand.
+"Negative," 
 
-But I was already here, and I guessed I would do my best. I had been right about one thing, though. This would not be quick.
+the dispatcher replied, a faint tremor echoing over the frequency.
 
-As I moved through the house, a strange sadness slowly crept over me. Family pictures covered the walls. The old man smiling into the camera. The old man eating dinner with his family. The old man sitting in an armchair with thick glasses on, reading a book while a cat rested in his lap.
+ "The caller is not speaking to me anymore. I am just hearing background noise. It sounds like... heavy hooves. Like livestock stomping on a hardwood floor. And a man screaming."
 
-He had looked happy. And now he was gone.
+The transmission cut off, leaving a heavy, oppressive silence in the cab of our cruiser. My partner and I exchanged a single, hard look. He dropped the vehicle into drive, flipped on the emergency lights without hitting the sirens, and floored the accelerator.
 
-The house itself was small. A living room, a bedroom, a kitchen, and a bathroom. Nothing more.
+The drive took nearly twenty minutes. The paved highway eventually gave way to a deeply rutted, unpaved gravel road that wound steeply up into the heavily forested hills. The tree canopy grew incredibly dense, the interlocking branches blocking out the moonlight and creating a suffocating tunnel of darkness around the speeding cruiser.
 
-The subtle stench of death hit me the moment I entered the living room.
+We finally breached the tree line and pulled into a massive, circular driveway.
 
-There was a dark stain on the floor, roughly the size of a human body. This had to be where he died. The problem with elderly people living alone is that their bodies are often discovered days after death, once decomposition has already begun. Someone had clearly tried to wipe the spot clean before I arrived, but it had been pointless. Bodily fluids had soaked deep into the floorboards, and removing them properly required special chemicals.
+The property was a sprawling, multi-story log cabin built from incredibly thick, dark timber. It belonged to a notoriously wealthy big-game hunter, a man who spent his fortune traveling the globe to harvest exotic trophies. The house sat in total darkness. Not a single exterior light was burning.
 
-I pulled on my mask and got to work on the stain first. Just like I always did.
+We stepped out of the cruiser, drawing our heavy flashlights and our service weapons. The night air was freezing.
 
-The stain was stubborn, but after roughly half an hour, I finally managed to get rid of it. It took a lot of scrubbing and even more cursing.
+We approached the front porch, keeping our boots light on the wooden planks.
 
-After the long day, my back had started to ache, so I stayed sitting on the floor for a moment, letting myself rest while my eyes wandered through the living room.
+We did not need to knock. The massive, heavy oak front door had been completely obliterated. The thick wooden panels were fractured and splintered, but the damage had not been inflicted by someone trying to break in. The jagged shards of wood were pushed outward, pointing toward the porch. Someone, or something, had violently smashed their way out of the house.
 
-A small dinnertable for two in the middle. And there, in the corner, was the armchair from the photographs.
+"Someone wanted out in a massive hurry,"
 
-To the right stood a bookshelf filled with old novels whose authors meant nothing to me. On the left side of the chair stood a large full-body mirror. I glanced at my reflection and saw a tired, miserable face staring back at me, silently asking why the hell I always had to be so greedy.
+ my partner whispered, holding his weapon tightly against his chest as he swept his flashlight over the broken threshold.
 
-I could have been home by now. In bed with Laura...
+"Or something pushed them out,"
 
-I shook the thought away, pushed myself to my feet, and opened the windows to air out the chemical smell. Then I headed back outside to grab the coffee I had bought on the drive here. It was going to be a long night, and I needed the caffeine.
+ I replied, keeping my voice incredibly low.
 
-When I returned to the living room, I still felt completely drained.
+We stepped carefully over the splintered wood and entered the cabin.
 
-There was an old television in the corner, and I figured having some background noise might make the work a little less miserable, so I turned it on.
+The interior was a cavernous, vaulted space completely dedicated to death. The walls were lined top to bottom with an absurd collection of taxidermy mounts. Massive grizzly bears stood in the corners, permanently frozen in aggressive, roaring postures. Timber wolves stalked across the upper lofts, and dozens of heavily antlered deer heads protruded from the dark timber walls. Our flashlight beams swept across the room, catching the reflection of hundreds of polished glass eyes staring blindly back at us from the dark.
 
-Only static greeted me. I sighed and switched it off again.
+The air inside the house was thick and stale, smelling heavily of formaldehyde, and fresh, pooling blood.
 
-The moment I placed the remote back onto the table and turned away, the television flickered back to life behind me, filling the room once more with loud static.
+"Clear the ground floor,"
 
-I cursed under my breath.
+ my partner ordered, moving slowly toward the kitchen archway. 
 
-The old thing was annoying, and what I didn’t want to admit to myself was that it genuinely unsettled me, even though I was a grown man.
+"Keep your angles tight. Whatever did this could still be in here."
 
-I turned it off again and forced myself back to work.
+I moved toward the massive stone fireplace dominating the center of the living room. The heavy leather furniture had been tossed aside, the heavy coffee table overturned and splintered.
 
-An hour later, I finished the bathroom. Two hours after that, the kitchen was done as well, and I returned to the living room.
+I found the homeowner resting against the base of the stone hearth.
 
-The smell of chemicals had finally faded. I closed the window again, quietly humming some half-forgotten melody to myself. A loud noise suddenly echoed through the room, making me jump.
+He was dead. The scene was incredibly brutal. His chest and abdomen had been violently gored, punctured by multiple deep, jagged wounds that were entirely too wide and ragged to have been caused by a knife or a spear. The fabric of his flannel shirt was shredded, soaked through with dark blood that pooled heavily onto the rugs beneath him. His eyes were wide open, locked in an expression of terror.
 
-I spun around too quickly and nearly made myself dizzy. A book lay on the floor in front of the large bookshelf. It must have fallen out somehow.
+"I have a victim,"
 
-But how?
+ I called out softly. 
 
-I stared at it for a moment.  Nothing happened. Pressing my lips together, I slowly approached it.
+"He is gone. Massive puncture trauma."
 
-There was no title on the cover. No author’s name. Just black leather, worn and cracked with age.
+My partner emerged from the kitchen, stepping carefully around the overturned furniture to reach my side. He aimed his light down at the body, his jaw setting into a hard, rigid line.
 
-I bent down, picked it up, and instead of putting it back immediately, I opened it.
+"If this was a bear or a feral animal that got inside, we would see muddy tracks,"
 
-A strange symbol filled the first page. A triangle, with smaller markings branching from each corner, almost resembling the letter T. Beneath it was a single sentence.
+ my partner said, sweeping his flashlight across the pristine hardwood floors surrounding the blood pool. "There is no mud. There are no paw prints leading to the door."
 
-“Ecce donas, haas offeretus kanas, rementulum iv colum.”
+I lowered my beam to the floor, tracking the space immediately surrounding the victim. My partner was right. There were no tracks. However, there was a distinct, highly unusual trail leading away from the body toward the dark hallway branching off the living room.
 
-I read the words aloud.
+It was a trail of dry, yellowed synthetic stuffing, small clumps of brittle animal hair, and thin, rusted pieces of shaping wire.
 
-Latin, maybe? The rest of the pages were blank.
+I followed the trail of debris with my light, letting the beam travel slowly up the adjacent timber wall.
 
-“Meow.”
+The wall was decorated with a series of framed polaroid photographs. They featured the homeowner standing proudly in this exact living room, holding a hunting rifle, posing beneath his various trophies. I looked closely at the photograph positioned directly at eye level. It showed the man smiling widely, standing beneath a truly massive, record-breaking elk head mounted on a heavy wooden plaque above the stone fireplace.
 
-I looked up from the book and froze. The black cat from the photographs sat only a few feet away, staring directly at me. So that was how the book had fallen. And I had started imagining things already. Jesus.
+I immediately raised my flashlight, aiming the concentrated beam directly at the space above the stone hearth.
 
-I slid the strange book back into the shelf, trying not to think about what kind of man the owner must have been, and turned toward the cat.
+The heavy wooden plaque was securely bolted to the timber.
 
-“Hey, buddy,” I muttered. “You scared the hell out of me.”
+But the plaque was entirely empty. The iron bolts that normally secured the mount had been violently ripped outward. The massive elk head was missing.
 
-I should probably take the animal back to the family who hired me. The poor thing was likely starving, maybe abandoned after the old man died. I didn’t even want to consider that possibility for too long.
+"The elk is gone,"
 
-“Hey.”
+ I said, a cold knot forming rapidly in my stomach.
 
-I slowly knelt down and held out my hand toward the cat, trying not to scare it.
+"What are you talking about?"
 
-“Let’s be friends.”
+ my partner asked, keeping his weapon aimed down the dark hallway.
 
-“Meow.”
+"Look at the picture on the wall,"
 
-The cat turned around calmly, leapt forward, and disappeared straight through the mirror.
+ I insisted, pointing my beam at the photograph and then back up to the empty wooden plaque. 
 
-I froze.
+"Look at the mount. It was ripped off the wall."
 
-On the other side of the glass, I could still see it walking away from me.
+Before my partner could process the missing trophy, a sound echoed from the deep darkness of the hallway.
 
-“What the hell,” I whispered.
+It was a heavy thud.
 
-Slowly, I got to my feet and approached the mirror.
+Clop. Clop. Clop.
 
-The apartment on the other side looked exactly the same, except for the cat, now sitting with its back turned toward me while lazily licking its paw.
+It sounded exactly like hard, solid hooves striking the wooden floorboards, moving with a heavy, unnatural, dragging gait.
 
-This couldn’t be real.
+We immediately raised our weapons, aligning our flashlight beams perfectly down the narrow corridor.
 
-I reached out carefully, expecting my hand to hit cold glass. Instead, it passed straight through.
+"Police department! Show yourself right now!"
 
-My breath caught in my throat. Before I could stop myself, I took another step forward. Then another. A second later, my entire body had crossed through the mirror.
+ my partner yelled, his voice booming aggressively through the silent, cavernous house.
 
-Now I was standing on the other side as well. At first glance, the apartment seemed unchanged, but something felt wrong immediately.
+The clopping sound stopped.
 
-Sounds drifted in from the kitchen. The clatter of plates. The soft scrape of metal against ceramic. And beneath it all lingered the unmistakable smell of freshly cooked food.
+A shape stepped slowly out of an adjacent side room, entirely blocking the hallway.
 
-The cat slowly turned its head toward me.
+My brain completely rejected the visual information entering my optic nerves. It was a patchwork, horrifying abomination of stitched flesh and wire. The massive, decapitated head of the missing elk was roughly, violently sewn onto the thick, hulking torso of a grizzly bear. The creature stood upright on a set of mismatched, decaying animal legs that buckled and twitched under the uneven weight. Thick, crude black sutures crisscrossed the matted fur, bursting open in several places to reveal dry, yellowed stuffing and rusted metal armature wire protruding from the seams.
 
-My knees nearly gave out.
+The elk head scraped against the ceiling, the massive antlers gouging deep grooves into the drywall. The creature’s neck snapped at an impossible angle, and its dead glass eyes caught the glare of our flashlights.
 
-Its eyes were gone. Two dark, rotting holes stared back at me from beneath matted black fur. Flesh around its mouth had decayed away, exposing yellow teeth and parts of its jaw. More patches of rotten skin hung loose around its neck.
+"Drop your..."
 
-I instinctively stumbled backward toward the mirror.
+ my partner screamed, completely unable to finish the standard command as his mind failed to comprehend the monstrosity standing before us.
 
-This time, my back hit solid glass.
+The creature lunged forward. It moved with a terrifying, jerky speed, its mismatched hooves tearing into the floorboards as it lowered the massive antlers directly toward our chests.
 
-No matter how hard I pushed, it would not let me through.
+My partner fired his weapon rapidly, the deafening cracks of the caliber handgun echoing violently in the enclosed space.
 
-“Meow.”
+I watched the bullets strike the center of the creature’s stitched chest. The impacts produced small, explosive puffs of dry dust and stuffing. The creature did not flinch. It did not even slow down. The bullets simply passed harmlessly through the dry hide and the wire frame.
 
-The sound was no longer soft or harmless. It came out low and wet, beneath the growl.
+"Move!"
 
-The the noises from the kitchen stopped abruptly. Silence flooded the apartment. A second later, I heard footsteps approaching fast.
+ I yelled, grabbing my partner by the shoulder and dragging him backward.
 
-An old man stepped out of the corridor, drying his hands on a kitchen towel draped loosely over his shoulder.
+We scrambled away from the hallway, diving frantically into a heavy set of double doors located just off the main living area. We slammed the thick oak doors shut behind us, the heavy brass latch engaging with a sharp click.
 
-He smiled warmly at me, then looked down at the cat.
+"Brace it!"
 
-“Ah, Fluff,” he said gently. “You brought a friend with you.”
+ my partner shouted.
 
-Then his eyes settled on me, and his smile widened just a little too much.
+We threw our combined body weight against a massive, solid wood bookshelf sitting against the wall, dragging it aggressively across the carpet until it completely blocked the double doors.
 
-“I hope he didn’t bother you too much.”
+A second later, a devastating force slammed into the other side of the wood. The oak doors groaned violently, the hinges straining and protesting under the immense weight of the creature attempting to batter its way inside. The sharp points of the antlers pierced entirely through the upper panels of the wood, splintering the oak and retreating for another strike.
 
-“N-No,” I managed to choke out.
+We backed away from the barricade, sweeping our lights around the enclosed space. We were trapped in the homeowner's private study. The room was cluttered and chaotic. Empty glass liquor bottles were scattered heavily across the expensive rugs, and dozens of half-burned candles sat in pools of melted wax on the surfaces.
 
-“Good. Gooood.”
+Sitting directly in the center of a heavy desk was an open, leather-bound journal.
 
-The old man gestured toward the small dinner table.
+I rushed to the desk, illuminating the pages with my flashlight.
 
-“Come, sit down. Have dinner with me.”
+"Keep your weapon on the door," 
 
-I swallowed hard.
+I told my partner, leaning over the messy, frantic handwriting scrawled across the paper.
 
-“I’m sorry, but I really can’t stay. I still need to finish my work.”
+The entries were unhinged, heavily detailing a deep, unraveling paranoia. I read the scattered paragraphs rapidly as the heavy, rhythmic battering continued against the barricaded doors.
 
-I remained standing close to the mirror, trying to sound calm while silently praying in my head.
+“The woods are deeply angry. I took far too much from the tree line. I hunted for sport, and now the forest is hunting me. The spirit is ancient. It lives in the timber. It watches me from the edge of the property line every single night. I can feel the vapor of it pressing against the windows.”
 
-“Nonsense!” the old man replied cheerfully. “I haven’t had guests in such a long time. I can’t let you leave hungry.” He motioned toward the table.
+I flipped the page, my hands trembling as the heavy oak doors splintered further under another violent impact.
 
-“You’ve worked hard back there.” He nodded toward the mirror.
+“I brought a medium out here. He told me the spirit is vaporous. It cannot be shot or trapped in its natural state. He told me it requires a physical tether. A vessel to anchor the vapor to the physical plane. If I construct a vessel worthy of the forest, the spirit will inhabit it out of pure vanity. I spent three days stitching the pieces together in the workshop. A body for the forest. If I can lure the ghost inside the effigy, it will be trapped within the physical materials. Then, I can burn the wood and the hide. I can kill the ghost by burning the vessel.”
 
-“At least let me repay you with dinner. I just finished cooking, you know. You arrived at the *perfect* time.”
+I looked up from the journal, the terrifying reality of the situation rapidly assembling itself in my mind.
 
-Every instinct screamed at me to run, but the look in the old man’s eyes told me that refusing him would be a terrible mistake.
+"Bullets will never stop that thing,"
 
-So I nodded slowly and forced myself toward the table.
+ I yelled over the deafening sound of the antlers shredding the upper door panels.
 
-The old man disappeared back into the kitchen and returned moments later carrying two plates. Rice and stir-fried vegetables steamed gently beneath the dim light. He placed the plates on the table alongside forks and knives before sitting down across from me.
+ "It is just dry hide, glass, and wire. The journal says it is a spiritual tether. We have to destroy the vessel."
 
-“Oh, this feels wonderful,” he sighed.
+"Then what the hell do we do?" 
 
-He tilted his head sharply to the left.
+my partner demanded, his weapon trembling slightly as he aimed at the fracturing wood.
 
-Crack.
+I looked down at the floor, sweeping my beam over the scattered debris. The homeowner had been drinking heavily, relying on cheap alcohol to manage his profound terror. Several empty bottles lay on the rug, but near the leg of the desk, I spotted a large glass bottle of bourbon that was still a quarter full of amber liquid.
 
-Then slowly to the right.
+I snatched the bottle off the floor. I grabbed a heavy cloth curtain hanging near the window, drew my tactical folding knife, and violently sliced a long, thick strip of the fabric free. I shoved one end of the cloth deep into the narrow neck of the glass bottle, ensuring it soaked heavily in the high-proof alcohol, leaving the dry end hanging out like a crude wick.
 
-Crack.
+"Get your lighter ready," 
 
-The sound of bone grinding against bone echoed softly through the apartment.
+I told him, stepping directly in front of the barricaded doors, gripping the neck of the glass bottle tightly in my right hand.
 
-“I really did miss having company,” he said with a smile.
+ "When the door gives way, you light the fabric. Do not hesitate."
 
-“I’m sorry,” I said, clearing my throat. “I… accidentally stepped through the mirror, but it seems I can’t go back.”
+My partner holstered his firearm, his hands shaking as he pulled a metal Zippo lighter from his vest. He flipped the lid, the small, bright flame illuminating his pale face.
 
-“Oh, no wonder you can’t.” The old man laughed softly and unfolded a napkin across his legs.
+The heavy doors could not sustain another impact. The central panels shattered inward, sending sharp shards of splintered wood flying across the study. The creature rammed its massive shoulder against the gap, violently shoving the bookshelf aside with an terrifying strength.
 
-“These young people nowadays, honestly.”
+The abomination stepped into the room, its mismatched hooves cracking against the floorboards. The dead, glass eyes of the elk head reflected the small flame of the lighter. It lowered its massive antlers, preparing to charge directly into our chests.
 
-I stared at him in silence.
+"Light it!"
 
-“You can’t go back because you left the key behind, dear.”
+ I screamed.
 
-“The key?” I asked carefully. “Sorry, I… I don’t understand.”
+My partner thrust the lighter forward, touching the open flame directly to the alcohol-soaked strip of curtain fabric.
 
-“The key,” the old man repeated, sounding mildly irritated, as though I had asked something painfully obvious. “The book, dear. The key!”
+The cloth ignited instantly, a bright, aggressive line of fire racing down toward the neck of the glass bottle.
 
-I glanced down at my hands. They had started trembling slightly, and I quickly hid them beneath the table.
+The creature lunged forward, its jaws snapping violently in the air.
 
-“So I can’t leave?” I asked. “Everything looks the same here. There has to be another book somewhere in this apartment too, right?”
+I stepped directly into the charge, winding my arm back, and threw the glass bottle directly into the center of the creature’s matted chest.
 
-The old man sighed deeply.
+The thick glass shattered explosively upon impact. The alcohol coated the dry, brittle fur and the exposed, yellowed stuffing protruding from the bursting sutures. The burning wick met the highly flammable liquid in a violent, concussive whoosh.
 
-“No, no. The book is one of a kind, dear.”
+The entire creature ignited like a massive candle.
 
-For a moment, my stomach dropped completely.
+The dry hide, the ancient preservation chemicals, and the synthetic stuffing caught fire instantly, creating a towering, roaring inferno in the center of the study.
 
-“But of course you can leave,” he added suddenly with a smile.
+The creature thrashed violently, its hooves stomping chaotic rhythms against the burning rug. The massive antlers tore blindly into the drywall, ripping heavy chunks of plaster free as the fire rapidly consumed the stitched flesh.
 
-Relief flooded through me so fast it almost hurt.
+An inhuman, echoing shriek filled the enclosed room. The sound was deafening, vibrating deep within my teeth and my skull. 
 
-“Someone simply has to read the words aloud from the other side. Then the mirror opens again.”
+The vessel rapidly collapsed under the intense heat. The burning hide withered, the legs buckled, and the massive monstrosity crashed heavily to the floor, instantly reducing to a charred, smoking heap of blackened wire, melted glass, and grey ash.
 
-My heartbeat hammered painfully in my chest.
+The oppressive atmosphere within the cabin vanished instantly, leaving only the choking smoke of a fire.
 
-“Now,” the old man said pleasantly, picking up his fork, “let’s eat.”
+We did not wait to investigate the ashes. My partner grabbed his fire extinguisher, aggressively dousing the burning rug to prevent the flames from spreading to the timber walls, and then we ran. We sprinted out of the study, navigated blindly through the dark living room past the gored victim, and burst through the splintered front doors into the freezing exterior.
 
-Then he froze.
+We sat leaning against the cold metal of our cruiser, gasping for clean air, waiting for the state police and the fire department to arrive.
 
-Completely.
+We meticulously coordinated our official statements. We wrote exhaustive reports detailing a severely chaotic scene, an unknown human intruder who fled into the dense tree line, and an accidental fire caused by the homeowner knocking over candles during a violent struggle. We entirely omitted any mention of a walking, stitched freak. The state detectives accepted the narrative without question, attributing the brutal, wide puncture wounds to a specialized, exotic hunting weapon wielded by the unknown assailant.
 
-His fork remained suspended in the air while his eyes stared blankly ahead, unmoving.
+The estate was heavily processed, and the massive collection of hunting trophies was eventually boxed up and scheduled to be auctioned off to private collectors to cover the deceased man’s substantial debts.
 
-One second passed. Then another.
+I am posting this account here today as a desperate, warning to the public. If you are an amateur collector, or if you frequently purchase estate-sale hunting trophies, you need to understand the danger of bringing those items into your home. You do not know what kind of energetic tether the taxidermist bound to the hide, and you do not know what kind of spiritual vapor might be utilizing the glass eyes to watch you sleep.
 
-I didn’t dare look away from him.
+I know this, because before the state detectives cleared the scene, I utilized my authority as the responding officer to securely impound one small item from the house to serve as a baseline forensic sample of the homeowner's preservation materials.
 
-Almost a full minute went by before he suddenly resumed moving again as though nothing had happened.
+It was a small, perfectly preserved stuffed red fox.
 
-Just before taking the first bite, he paused once more.
+I placed the evidence bag firmly on the left side of my desk at the precinct before my shift ended.
 
-“Ohhh, forgive my terrible manners.”
+I went down the hall to get a cup of coffee. When I returned to my desk three minutes later, the sealed evidence bag was sitting on the extreme opposite side of my desk.
 
-He smiled warmly at me.
-
-“My name is Rolan. And yours, friend?”
-
-“Lars,” I answered quietly.
-
-I had no intention of touching the food.
-
-“So… you live here?”
-
-“Yes, yes,” Rolan replied happily. “Well, I lived here once. And now I live here again.”
-
-The way he said it made my skin crawl.
-
-“You’re not eating, dear,” he observed gently. “Is something not to your liking?”
-
-Before I could answer, panic suddenly flashed across his face.
-
-“Oh! Forgive this foolish old man!”
-
-He slapped his forehead dramatically and pushed himself up from the table so quickly the chair nearly tipped over.
-
-“You see, at my age I must be careful with what I eat. My stomach isn’t what it used to be anymore.”
-
-Then his eyes locked onto mine.
-
-“But you…”
-
-A wide smile spread slowly across his face.
-
-“You’re a young man. Young men need meat.”
-
-I watched him in frozen silence as he hurried across the room, scooped the cat into his arms, and returned to the table.
-
-“Forgive me for being such a terrible host.”
-
-The cat let out a sharp cry.
-
-Crack.
-
-The sound of its neck snapping echoed through the apartment.
-
-Before I could react, Rolan placed the dead animal onto my plate.
-
-Dark, rotten blood poured slowly from the cat’s mouth, running into the rice and soaking the vegetables.
-
-The smell hit me instantly. Sweet decay so thick I nearly gagged.
-
-“There we go,” Rolan said happily. “Eat now, dear. It’s getting cold.”
-
-“I…”
-
-I forced myself not to vomit.
-
-“I’m sorry. I forgot to wash my hands after the cleaning work.”
-
-I tried to keep my voice steady.
-
-“Could I use your bathroom first?”
-
-“Oh yes, make yourself at home.”
-
-I stood up and made my way toward the bathroom, trying not to move too quickly. Trying not to run. The moment I stepped inside, I locked the door behind me. Every instinct screamed at me to get out of this place.
-
-I hurried to the window and pushed it open. My breath caught in my throat. There was nothing outside.
-
-Just endless darkness stretching in every direction.
-
-My pulse hammered painfully in my ears as I grabbed the bar of soap from the sink and threw it out into the void.
-
-I watched it fall.
-
-And fall.
-
-And fall.
-
-Far longer than it should have before the darkness swallowed it completely.
-
-There was no ground.
-
-I stumbled backward from the window in horror. I couldn’t escape through there.
-
-A loud knock against the bathroom door made me flinch violently.
-
-“Everything alright, dear?” Rolan’s voice called from the other side. “Dinner is getting cold, and you really should eat.”
-
-“I-I’m fine,” I answered quickly. “I’d just like to stay here a little longer.”
-
-My voice trembled uncontrollably. Panic clouded my thoughts as my eyes desperately searched the bathroom for something I could use as a weapon.
-
-There was nothing.
-
-“Oh, but I can’t allow that.”
-
-The warmth vanished completely from Rolan’s voice.
-
-“Surely you know that it’s rude to leave the dinner table.”
-
-Then came the last sentence and the voice speaking it could not possibly have belonged to a human being.
-
-“*So come out*.”
-
-I froze.
-
-The doorknob slowly began to turn.
-
-Metal squealed.
-
-Then the wall beside the lock started to crumble with a dry cracking sound until the entire lock tore free from the frame.
-
-The door swung open.
-
-Rolan stood there calmly, staring at the debris scattered across the floor.
-
-“Oh dear,” he sighed. “What a mess. And after you cleaned everything so nicely too. My apologies.”
-
-Then he smiled again.
-
-“Now, please return to the table.”
-
-I didn’t dare argue.
-
-As I stepped past him, terror twisted painfully in my stomach, and I instinctively quickened my pace.
-
-He was strong.
-
-Not human strong, something far beyond that.
-
-I sat back down at the table, staring once more at the dead cat lying on my plate while Rolan calmly returned to his seat across from me.
-
-“*Eat.*”
-
-The patience had vanished from his voice now.
-
-“I’m sorry,” I whispered. “I’m not hungry.”
-
-Rolan looked at me silently for a moment.
-
-“You know,” he said softly, “when I was a boy and refused to eat what my mother placed in front of me, she would take my father’s leather belt and teach me how a I was supposed to behave.” He paused.
-
-“Maybe we should begin with teaching you not to leave the dinner table,” Rolan said softly. “It seems you never learned that lesson either.”
-
-His smile widened.
-
-“It will be an easy one, dear. After all, you can’t run away from the table if you’re no longer able to stand, don’t you think?”
-
-Panic hit me so violently that my body went numb for a second before adrenaline flooded through my veins. Without thinking, I grabbed the knife from the table and drove it straight into his left eye. The blade sank in with a wet crunch and remained lodged there.
-
-Rolan didn’t even flinch.
-
-I stared at him in horror, unable to breathe.
-
-“Oh dear,” he sighed.
-
-Calmly, he wrapped his fingers around the knife handle and pulled it free together with the eyeball still attached.
-
-“And here I was, trying so hard not to eat meat.”
-
-He opened his mouth and bit the eye off the blade.
-
-Crunch.
-
-The sound was wrong.  I nearly vomited as he chewed slowly. Then instinct finally took over again.
-
-I stumbled backward from the table and sprinted toward the mirror, desperately shouting the strange words from the book.
-
-Nothing happened. The mirror remained solid.
-
-“Now,” Rolan’s voice growled behind me, no longer human in the slightest, “let us begin the lesson.”
-
-I spun around just in time to throw myself aside.
-
-The thing that had once been Rolan slammed into the wall where I had been standing only a second earlier.
-
-He barely even resembled a man anymore.
-
-His flesh had turned yellow and purple with decay. One arm hung so unnaturally long that its fingertips scraped across the floor, while the other stretched across the bookshelf like the limb of some enormous insect.
-
-I grabbed a chair and smashed it against him with all my strength.
-
-The chair broke in pieces.
-
-Rolan barely reacted.
-
-I ran.
-
-I rushed into the kitchen while heavy footsteps followed behind me at an almost casual pace. He wasn’t even hurrying. There was nowhere to hide. I bolted into the bedroom and flattened myself behind the door.
-
-A second later, Rolan charged into the room so fast the floor shook beneath him.
-
-He tripped and crashed onto the mattress with a snarl.
-
-“Ahhh,” he groaned in that distorted, corpse-like voice, “young people these days. No respect for their elders.”
-
-I sprinted back into the living room. The mirror still refused to open. Then my eyes landed on the cleaning chemicals scattered across the floor.
-
-An idea hit me instantly. As Rolan emerged from the hallway, I snatched up the bottle and hurled the contents directly into his face.
-
-The creature let out a scream, not pained, angry, clawing wildly at its remaining eye.
-
-“There is no escape,” it snarled. “I can still hear you.”
-
-But by then, the plan had already formed in my mind.
-
-Rolan lunged toward me again. This time his claws caught my shoulder, tearing through flesh in long, burning lines before I managed to roll away.
-
-The pain nearly made me black out. Still, I forced myself toward the entrance door.
-
-Behind me, I could hear him charging after me. I grabbed the doorknob at the very last second and threw the door open before pressing myself flat against the wall beside it.
-
-Rolan tried to stop, but his massive body carried him forward too fast.
-
-Just as he reached the doorway, I slammed both hands against his back with every ounce of strength I had left. The creature stumbled out into the darkness beyond the entrance.
-
-A furious roar echoed through the void as it fell.
-
-And fell.
-
-And fell.
-
-Its screams grew quieter and quieter until the darkness swallowed them completely.
-
-Then there was silence.
-
-I collapsed against the wall, sobbing for breath while tears streamed uncontrollably down my face. After a long time, I forced myself back into the living room.
-
-I don’t know how much time has passed since then. I tried everything to return home. Nothing worked.
-
-Eventually, I realized that certain things I do on this side somehow appear on the other one as well. That is how I managed to leave this message behind.
-
-And if you are reading this now… then somehow it worked.
-
-Please.
-
-I’m begging you.
-
-I’m still trapped here.
-
-Help me.
-
-After thinking about it for a long time, I believe the book was never truly important. I think any large mirror might work. The words simply need to be spoken from the opposite side.
-
-So please.
-
-Go to your mirror. Draw the symbol I described. Speak the words aloud.
-
-And call my name.
-
-Please help me come home.
-
-( [more](https://www.reddit.com/user/Kira1006/comments/1rcrsqo/authors_journal/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) )
+And the fox was facing the other way.
