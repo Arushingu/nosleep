@@ -1,160 +1,142 @@
-# Something happened in tunnel B at the chicken plant
-It's hurting again.  
-  
-I can still feel it. Tightening. Coiling.  
-  
-That cold slimy grip.  
-  
-My friends tell me to talk about it but honestly they all look at me like I'm crazy.  
-  
-I'm not crazy.  
-  
-It happened three days ago. I work at a local chicken plant as a maintenance worker. They process tons of meat every day, from start to end. Usually these kinds of places break up the processes into smaller factories, but not here.  
-  
-From live hang, de-boning, dicing, prepping and even a few lines cooking chicken that you yourself might have eaten at some local fast food joint. They did it all. But see, it's not all clean efficiency.  
-  
-There's dirty jobs too.  
-  
-Most giblets, bits and other scraps get turned into dog chow but that doesn't mean there isn't still loads of wasted meat that gets flushed into the company drainage system. A series of interwoven grates, pipes and channels that feed out into a large wastewater pond.  
-  
-Yeah I hear ya, can't be great for the local environment but I guess by the time the stuff reaches the drainage pipes it's mostly sterile and diluted enough to release out into the world.  
-  
-It's a nightmare in the summer. The entire town hates it. But that doesn't stop them from letting their teenagers, friends and family work there. After all, there's almost nothing else around.  
-  
-That's why I'm here after all. It pays better than working the lines and it's mostly basic handyman work.  
-  
-A loose bolt here, a replaced power cord there. Really all you had to do was pay attention to what the older guys did and maybe watch a few YouTube videos here or there on lunch breaks. However there was one job you'd never catch any of the old hands doing.  
-  
-Pipe clearing. Every once in a blue moon some big glob of skin, fat and maybe a plastic bag or two will get caught somewhere and cause some backflow or start clumping near one of the tunnels that fed out into the drainage pond. It's usually pretty simple work.  
-  
-And you always come back smelling like rotten meat. That's why they make the newer guys do it. Guys like me and Mikey, who did it the last time there was an issue, so apparently it was my turn. Great.  
-  
-I elected to have lunch before going down into the pit, figuring I wouldn't really be in the mood after. The report talked about slower drainage, a few of the grates taking an hour to fully drain when they should take minutes, and a lingering odor of rot coming up from tunnel B.  
-  
-That meant checking every grate and channel from the factory floor all the way out to the concrete outfall that jutted over the pond by a good six or seven feet.  
-  
-So I set to work. Grabbed a radio, some of the large rubber gloves we used for cleanouts, and a three-pronged garden cultivator maintenance had started using to dredge stubborn clumps out of the grease-filled waters.  
-  
-Checking the grates they reported, I found no obvious signs of blockage aside from the backflow. Still, I pulled the metal covers off and tried to sift through the red-brown liquid. The tip of the cultivator scraped against concrete and only managed to pull up a few scraps of fat and a half-shredded feather.  
-  
-I followed the line down and repeated this process a couple of times before figuring it would just be easier to find where the water wasn't backing up.  
-  
-So down the maintenance stairways, into tunnel B, I walked. The further down I went, the deeper the water got. Not anything dangerous. Well, aside from the risk of losing my lunch to the smell. Just an inch or two of dirty water.  
-  
-The splash of my steps turned to sloshing as the water got up to ankle height. I was never so thankful for those ugly uncomfortable rubber boots they made us all wear as I dragged my feet through the stuff.  
-  
-Then finally shin height. By then I was starting to get nervous. My boots went up pretty high but if the water got any deeper I'd end up needing to turn back and get a pair of waders or something. Thankfully it seemed to stay pretty consistent as I reached the last stretch of the drainage tunnel. I wish I could say the same for the smell.  
-  
-The stench was quickly ramping up, no longer the stale smell of sterilized but rotting poultry.  
-  
-This was almost akin to sewage or like that time I had to pull a dead possum out from the neighbor's shed.  
-  
-Sweet but wrong, like rotting fruit up until the point where that greasy musk hits you and lingers in the back of your throat.  
-  
-The walk had taken me to the outflow. A square culvert that led directly to the outfall. They kept the tunnels pretty decently lit but I could still see the reflection of sunlight coming through the large grate that separated the tunnel from the outside world.  
-  
-I could tell even from a distance that the water wasn't moving right.  
-  
-The usual even flow out was something more of a slow lazy spiral, like it was choked off and just barely draining from some hole near the bottom of the grate. The sound of a steady flow of water was now a trickle followed by an occasional splash as the waste occasionally flowed over whatever the stoppage was. 
+# I was hired as an overnight receptionist and now I'm hiding for my life in the supply closet
+I cannot believe how I got here. I don’t even know if I’m going to make it out. But I need to know that someone knew I was here. I need to know that I’ll be remembered, even if this place won’t remember me. 
 
-And the sound of buzzing.  
-  
-God the flies must be having a field day with this.  
-  
-I walked along the edges where the walkway stayed level despite the drainage tunnel itself sloping down. That meant whatever was causing the blockage was big enough to cover up several feet of grate.  
-  
-This was gonna suck. No way it wasn't some big glob of skin, fat and feathers that had somehow slipped through processing. It happened. Maybe not this bad but it did happen from time to time.  
-  
-The pool here had begun to murk, looking more like the pond outside than the usual brown-red liquid I was used to seeing flow out these grates. It was thick enough that I couldn't even make out the bottom.  
-  
-So naturally I took the cultivator and pressed the head deep into the water, dragging the tip from as low as I could get it and starting to scrape upwards.  
-  
-And there was definitely something there, a rubbery sort of resistance between the cultivator and the metal grate. Whatever it was, I couldn't get purchase on it. When I pulled the head back it was trailed by a glob of green algae-like slime.  
-  
-I nearly gagged. The stench got worse when I pulled the mass out from the water. A smell like pond muck mixed with putrid meat.  
-  
-It was enough to distract me from the fact that the water around my feet wasn't just shifting with my own motions.  
-  
-The fact I threw up, that sudden jerk as I felt the cheap company-provided chicken meal leave me and join with the water below, made me close my eyes just long enough.  
-  
-Something clamped down.  
-  
-Hard.  
-  
-It wasn't painful yet. Like somebody had reached up from the murky muck to try and pull me down. A grip tight enough that in all my flailing I couldn't even pull out of my boot to get away.  
-  
-A grip that found itself on my other foot, causing me to fall back onto the grate.  
-  
-The whole thing shook with the impact. The sound of shaking metal bouncing through the tunnels.  
-  
-I would say that I took a deep breath, calmed down and tried my radio.  
-  
-But I didn't do that. No, instead I screamed, thrashed and dug my fingers into the grate behind me. I desperately tried to leverage myself up and out of the water, away from whatever was touching me, pushing me back against the grate.  
-  
-The more I pulled, the tighter the feeling got. Every time I'd get pulled back down while frantically yanking my legs, whatever it was would shift up maybe another inch or so.  
-  
-I didn't stop thrashing until it wasn't just holding my boots, but in them, pouring into them and rubbing against my feet.  
-  
-You ever held raw chicken skin? Felt the cold, rubbery texture? That's all I could picture at the time, my boots filling with wriggling loose skin.  
-  
-The smell. I will never forget that smell. No matter how hard I scrub my legs I swear.  
-  
-Sometimes when I'm alone. When there's nothing going on.  
-  
-I smell that waterlogged, sickly sweet scent of rot.  
-  
-Somewhere in my panic the cheap clip of the radio must've snapped, or maybe it just got pushed the wrong way when I hit the grate. Don't know. They never recovered it.  
-  
-So there I was, hyperventilating and gripping onto greasy metal for dear life while something slowly inched its way up my legs. It seemed like the less I struggled the slower the thing moved.  
-  
-That's when I got a look at it, or at least part of it. The patch that was working its way up me was mostly a clear slime with flecks of yellow-white blobs in it that I eventually pegged as bits of fat alongside some patches of bubbling discolored liquid held in its form.  
-  
-As it met the water below I saw a mix of rust-red patches that lazily shifted, suspended in whatever was holding this thing together.  
-  
-And deeper in the water, just barely visible under the surface, were more concentrated black blobs that occasionally bobbed up close enough to see as it shifted its way up my body.  
-  
-I screamed, cried, shouted. This deep in the tunnels nobody would probably hear me. Sure maybe if they went into the maintenance stairwell but like I said.  
-  
-Nobody came down here unless they had to.  
-  
-Worst part of it? I could see the town. Through the grate, there in the distance I could just barely see the road leading away from the factory and into the town proper.  
-  
-None of my shouting mattered. The cars kept driving, town kept moving while I got to stand there and wait for this thing to finish me off.  
-  
-I think it was an hour in when I threw up again. It wasn't exactly in any hurry after I'd stopped struggling. At that point I was hoping somebody would just notice I'd been gone and come get me. The ooze had worked its way up slowly to my stomach and was still squeezing. That, coupled with the fact I could make out what looked a lot like mosquito larvae twitching in those little pockets of yellowed water trapped inside the ooze, made the urge hard to resist.  
-  
-That was a mistake.  
-  
-I couldn't exactly lurch forward so a good bit of it just ran down my work suit.  
-  
-And when it made contact with the thing, I could see the shifting stop. The whole thing seemed to freeze up.  
-  
-It started drinking. That's the only way I could describe it. It sucked the trickle of vomit into itself. I could see the bits of white and brown from the breaded chicken meal getting sucked down into one of the darker parts of the stinking mass.  
-  
-It moved in contractions, like a throat swallowing over and over again.  
-  
-I still see it. Still see the moment where it began to trace up the vomit trail.  
-  
-Still remember the sticky feeling between my fingers as I ripped at it, threw chunks of goo off and away only for it to react by binding my fingers so tight I heard something pop.  
-  
-It was pinning me to the grate. Not creeping up anymore but moving in short pulsing bursts, tightening, squeezing.  
-  
-I felt my head getting light. I tried to move my leg again but the thing responded by gripping down on my right leg with a crushing force. I felt something give followed by a blinding pain that made me cry out.  
-  
-The last thing I remember is something cold, wet and slimy trailing up my chin and the taste of mildew and mold poking into my mouth.  
-  
-And then nothing. According to the doctors I must have fallen into the water while trying to clear a blockage which apparently I did because by the time somebody got around to checking on me the water was draining normally.  
-  
-With me laid splayed out, propped up against the grate.  
-  
-I don't know why it let me live.  
-  
-What I do know is when I came to I tried to vomit. Could still taste that stale rot in my mouth, smell it in my nose, feel it in my skin. It was too much.  
-  
-Water. Mostly anyway, thick and warm with a stench that was too familiar.
+It started a few weeks ago. I was at home scrolling online, looking for job postings. With everything going on in the world, you don’t have to think too hard about why I was searching. The job market is a mess, and employers are still toting the “no one wants to work” motto. I wanted to work. Student loans and medical debt are trailing me wherever I go. No escaping that. So I went job hunting. I started applying for everything I found. Waitress, baby sitter, dishwasher, cashier, stocker; you name it I applied for it. Well, at least everything that would allow me to apply with a certificate for 3D arts. I couldn't even finish a full degree. 
 
-The doctors sent me home with a cast and some antibiotics, told me to call if I feel any flu like symptoms.
+While I was searching, I came across this posting. It was from this senior living community in my city, maybe about a ten minute drive from where I lived. Pay was decent too, $19.50 an hour, full time, Tuesday night thru Saturday night, or Sunday morning I guess, the wording seemed off but I was desperate. Overnight receptionist wanted. Skimming the requirements, I thought it was a long shot. It was wanting someone with any kind of degree and they preferred bilingual people. But everything else I was great at. I’ve worked in retail and customer facing roles since I was old enough to be hired. And I’ve worked at the front desk for places before as well. I thought I’d give it a go. So I did, and got back to hunting. 
 
-Now I'm stuck sitting here, wondering as I try to forget the painful throb in my leg and that taste that won't go away no matter what I eat.
+It wasn’t until I got an email about the posting that I even remembered that I had applied. The email came from the community’s hiring manager, and it held a link for continued questioning. It felt off, but with how much technology is advancing and relying on AI, I just thought that maybe they were too. Following the link led me to this virtual interview thing. I was given questions and I had to record myself answering. It was typical stuff like why do you want to work for us, do you believe in our goals and beliefs. Normal everyday interview questions with full automation. No more than an hour after sending in the virtual interview did I get the email saying I was hired. I would be given links for training videos, an appointment time to do a drug test, and a log in so I could clock in and out for watching the videos. My first day would be that following Tuesday night. Three days away. 
 
-Did it stop at my mouth?
+The drug test came first. I had a premade appointment with a clinic of the companies choosing, and just had to show up. The clinic knew what company I was there for, I guess they do all of the drug testing for them. That, or I gave too much information when I checked in. Either way, I remember the lady at the desk gave me a look of pity when I went to fill out paperwork. Like, she knew something I didn’t but wouldn’t tell me. I wish I had known why. But I had been so swept up in the excitement of finally getting hired I didn’t think much of it until now. After I was done at the clinic, I went home and logged in to start the training videos since I was starting in three days. 
+
+The videos had that old corporate feel to them. The ones that had people pretending on camera to act out scenarios, or do dramatic re-enactments of seniors with dementia getting angry at a care giver. The whole time it felt like I was watching relics of the past, not updated information. I learned more about the community I was going to be working at, for privacy sake I’m calling it WG. WG had been around since 1999, and was founded as part of a larger group of communities around the eastern seaboard. Seemed pretty normal at the time. Nothing stood out to me. Sitting here I remember there was one video that kept buffering around a part that kept talking about how WG had the highest rated memory care experience, but it buffered and repeated “memory” over and over until I had decided to give it a rest and start the video again the next day. 
+
+I finished the other videos with no problem. I had a whole day to spend just relaxing and mentally preparing myself for going in. So I did what any sane person would do; I practiced a phone greeting in the mirror. It’s crazy sounding, but I had been answering phones for other places, I didn’t want to trip up and say the wrong place. When I was confident in that, I spent some time shopping for a few new blouses. One of the emails I had gotten said the dress code for the receptionist role was black or khaki slacks, a WG polo or other dress shirt (button ups, polos, blouses, those kinds of things). I had a few, but wanted to get a few new things so I had a little bit of variation, even though my shifts were going to be from 11pm at night to 7am the next day. I was still meant to be the first face someone saw when arriving at WG. 
+
+While I was out shopping, I got a text message from a number I did not recognize. The text was extremely formal and professional. I almost ignored it. I changed the name of who texted me. I can’t risk them being found again.
+
+“Hello, this is Laura from WG. I will be your mentor for onboarding. Please bring your documents and a notebook. I will see you at 11pm.”
+
+So Laura was meant to train me in person tomorrow. The entire time since I got accepted had been automated or through some outside company. I was excited and nervous. I had so many questions at the time. How long would she be training me? Was this just another automated message and Laura was actually some AI program the company used? 
+
+I got my sleep schedule fixed for doing overnights, and when Tuesday night came around, I was greeted by a person. The entrance for the place was really nice. There was an awning over the loading area for the entrance. Sliding doors that led to a vestibule that had a second sliding door that was locked. Laura had to let me inside. 
+
+“Welcome. I’m Laura. Did you bring the documents I asked you about?” Laura got right to it. Her hair was drawn back into one of those loose half up ponytails, black slacks, and she had this bright yellow blouse with a grey cardigan over it. It reminded me of the sun coming out after a storm. How I wish I knew then that she was warning me of the approaching storm I’m facing now. 
+
+I cleared my throat, “Yes, I did.” I handed them over and walked with her to the desk. The lights in the main lobby had been lowered, and Laura explained to me that the interior doors locked at 8pm when the sun went down. They stayed locked until 7am the next morning when the day staff would arrive. She told me this was to make sure no bad actors got inside. 
+
+“While I get your documents scanned in, would you please put your name on your name tag? The label maker is in the bottom drawer.” Laura asked me once we sat at the desk. I did as instructed, and put my name. Silent. After that, everything was pretty standard. Laura showed me how to access the cameras, access Microsoft Teams for our phone system, showed me what doors are locked and where deliveries came to. 
+
+At first I didn’t have questions. The overnight shift was pretty much there to make sure Care Staff did their jobs, answer stray phone calls at night, and accept the odd delivery every once in a while while doing rounds of the main building every few hours. It was around 1am that Laura showed me how to do the rounds, and introduced the “checklist”. She never handed it to me directly, but showed me where to find it when I was by myself. 
+
+“Whenever you leave to do these rounds, always make sure that you grab the cell phone, the walkie, and the master keys. The door code is hidden under the keyboard. For tonight, I’m going to walk you through and show you. Tomorrow, I’ll have you do the whole thing.” Laura said, showing me where to find the aforementioned items. Near the time clock, at the desk, and under the desk. Pretty simple. Laura made sure that I held nothing tonight, showing me the best route and how to check the doors without waking anyone. 
+
+“Now, whenever you leave the desk for any reason, you NEED to bring these items with you. If you realize halfway down the hall you forgot something, don’t go back and get it.” I didn’t think about it at the time, but sitting here I know why she said that. I had given her an inquisitive look when she first said that, and I remember her face changed from neutral to scared.   
+  
+“WG wants us to report rounds within a certain timeframe. Backtracking can make that time go over, and they prefer the shorter times. Longer times typically mean problems that the directors don’t want to deal with,” she explained. I took it at face value. A company wants to report efficiency over quality at times. Nothing I haven’t dealt with before. From there, we walked the floors of the building. The desk was on the second floor, so we had some weird route to follow to get to all the other external doors. Anytime we walked past a certain apartment, Laura would tell me about a memory she had of that resident. Mr. Smith would always whistle instead of sing at sing-alongs. Mrs. Harlow needed to be across the street in Memory Care, but her son wouldn’t sign the paperwork. She wandered the halls at night. But if there was whispering from her room, she was in bed for the night. 
+
+The 1am rounds were relatively quick. 20 minutes at most for the size of the building. When we got back to the desk, I noticed that there was a delivery driver standing at the main entrance. I was about to speak up about it, when Laura put a hand on my shoulder and walked me towards the copy room, hidden just behind the desk.   
+  
+“Shouldn’t we see who the delivery is for?” I asked, confused as Laura started getting out papers from the cabinets.   
+  
+“Not that one.” she said flatly. I was confused. She had told me earlier that we buzz in deliveries after hours to sign for them. I guess she sensed my confusion and went on to explain. “That one dresses like a delivery driver. Has the right style of outfit, but he never has any company logo on. He’s one of the bad actors we don’t let in.” I nodded at her explanation.
+
+“Why haven’t we called the police about him if he keeps showing up?” I asked, worried. If that guy shows up so often that we know he’s a bad actor, why wouldn’t we?
+
+Laura gave me a look that I couldn’t pinpoint at the time, but was telling me that this isn’t something that I really should be asking.
+
+“We’ve… tried,” she says slowly, like she’s searching for the right words. “He…. always ends up gone by the time police show up. It’s best to ignore him.” She seemed a little more confident in her words. “If you ever see him at night, just make sure not to trigger the motion sensor by the door. That’s the only way he can get in.” After a beat of silence, we went back to the desk and he was gone. Just like that. I decided to just take it in stride. If they tried, the new girl wouldn’t be able to do anything about it. 
+
+The next few hours were mostly quiet. There were maybe one or two phone calls for the other building that Laura showed me how to transfer, and then said something odd. She had said that the only time we ever talk with the other building at night was to transfer phones. I was about to ask why when she explained that the care staff have their own things going on that I might interrupt if it wasn’t a phone transfer. 
+
+It was at 3am when we did our next rounds. Same thing. Phone, walkie, keys, door code. Laura still carried everything. But before we left, she had me check the cameras. The one for an entrance to the main building over by the loading dock.   
+  
+“What am I looking for?” I asked. I saw nothing out of the ordinary. It was dark, but the night vision showed some insects flitting around and the outlines of the dumpsters. 
+
+“If you don’t see anything, we are good. Let’s go,” was the only answer she gave me. I followed behind her as we went the opposite way for the rounds this time. There were some more stories of residents as we passed by apartment doors, and I noticed that the numbers seemed like they repeated themselves. I would blink and they looked right again. I attributed it to not being used to the overnight schedule. There was one door we passed by that we tested, apartment 329, that was unlocked when I jiggled the door. 
+
+A faint voice answered through the door “Is that the knitting needles I ordered?” Laura’s face drained of color as she quickly locked the door. 
+
+“No, no knitting club today Mrs. Lyra.” Laura whispered and shooed me on. A few doors down, Laura was still pale. I gave her a look, and she just smiled.
+
+“That resident has her days mixed up. She got her needles a few weeks ago, but the club was cancelled due to lack of interest. Her door is always unlocked on these rounds. If she says something to you, just remind her that there’s no club today and move on.”
+
+“What if the door is locked and she still answers?” I ask.
+
+“Then you - “ Laura was about to answer when the walkie crackled to life. I couldn’t quite make it out, but Laura turned it off. After it was shut off, she turned it back on and set it to channel 2. She said nothing else, and started walking again. I followed, still trying to wrap my head around the layout of the building. 
+
+These rounds took 30 minutes. When we got back, Laura showed me how to log the rounds into the computer, and we spent the next hours with me doing more training videos. I remember almost falling asleep a few times, and Laura was always there to nudge me awake. At some point, maybe around 4:40am, she showed me where to get coffee at the cafe near the desk. I think I was imagining it, but I remember seeing a shadow out of the corner of my eye when we were walking back. 5am came and went and we had our final rounds at 5:30am. It was the exact same thing as the other two rounds, but Laura let me pick which way to go. I wanted to see the route for the 1am again, so we went towards Mr. Smith’s door came and went, as did Mrs. Harlow’s door. I stopped to listen for the whispering, but I didn’t hear it this time. I looked at Laura. 
+
+“She’s probably wandering the building. It’s best to just make sure the door is locked and keep going. She knows the way back.” Laura said, as if she was expecting the whispering to be gone. I took the keys and locked the door, which was still locked. I moved on, and right before we got back to the desk, I saw her. I think I did at least. There was a woman at the desk in a night gown that was moving her lips like she was in a trance. Laura and I returned to the desk, and sat down. 
+
+If it had not been as quiet, I’m certain I would have missed where the woman asked “Are you here to help me Jane?” It took a moment, but I was about to say something about my name, when Laura piped up and said something else in response.  
+  
+“Yes, I will meet you at your door.” That was enough for the woman, and she started shambling away from the desk. I stared after her, wondering why we wouldn’t clarify that we weren’t whoever this Jane person was.
+
+“It’s just a thing for overnight staff. We don’t want to confuse residents, so if they think we are someone else, it’s just best to let them think that.” Laura explained. I remember reading that dementia residents lived whatever reality they were in, and agreed that it would be easier to just agree sometimes. 
+
+Laura finished up the shift by showing me how to prep for the morning crew, and waited with me until it was time to leave. She asked if I had any questions before leaving. The only one was where to find the checklist tomorrow so I could practice with her. She showed me, and I went to pack my notebook. When I turned to say bye, she was already gone, the outside door sliding shut. 
+
+All of this was yesterday. I was expecting Laura to be here when I got in tonight, but when I arrived, I was greeted with a locked door and an envelope addressed to me. I picked it up, and was surprised to see what was inside. 
+
+“Silent,
+
+Thank you for choosing WG as your new home for your career in senior living. We are excited to welcome you to our Reception Team. Below, you will find your door code to enter the building after hours. Second Shift has already gone home for today, but going forward you will swap with them at 11pm. 
+
+For this evening, please find all your onboarding paperwork in the top left drawer in the copy room and fill out between your rounds. The Round Checklist is in the right drawer at the desk. Everything you need to know will be on that paper. 
+
+If you have questions, please use the computer to email your supervisor. If an emergency arises, follow the normal emergency procedures.
+
+Welcome, to WG  
+Management”
+
+I was confused at the time, but I realize now what made that letter so unsettling. I used my new door code and let myself inside. Everything was the same as the night before, just… No Laura. I searched for the paperwork the letter mentioned, worked on that, apparently got lost in it. The next time I looked up at the clock was at 1:15am. A whole two hours had slid past me and I was already late for my first round. I scrambled for the checklist, and found it in the drawer, right where Laura and the letter had told me it’d be.
+
+# Third Shift Night Rounds
+
+On all rounds bring the following
+
+* Desk Cell Phone (access code on back)
+* Walkie Talkie (set to channel 2)
+* Master Key (located under the desk)
+* Door Code (provided at hiring)
+
+Under no circumstance are you to return to the desk before completing a round.  
+Log your round as soon as you return, including how long the round took.
+
+1:00 AM Rounds
+
+* Check all exterior doors to ensure security
+* Ensure all resident doors remain locked
+
+3:00 AM Rounds
+
+* Check the Loading Dock Camera before leaving the desk
+* If you see no activity, proceed by going to opposite way of the 1:00 AM rounds
+* Ensure all resident doors remain locked
+
+5:30 AM Rounds
+
+* The order of these rounds do not matter
+* Ensure all resident doors remain locked
+
+OUTSTANDING INCIDENTS  
+If anything occurs during your rounds, log them into the book when you return. Do not allow residents to linger at the desk for too long. 
+
+I read and reread the checklist. It was a lot more… clinical than Laura had mentioned last night. But I grabbed everything from the desk and started the rounds. The building was a lot quieter than last night. Every rustle of fabric or creaking in the floors made me jump. I went the same way we went last night, and went towards where Mrs. Harlow’s room is. I was hoping for something from last night, and was relieved to hear whispering when I got close to her room. But when I listened closely, it wasn’t coming from her room. It was behind me. 
+
+I could feel my body turn rigid and my blood turn to ice. Laura said to lock the door and keep moving, right? I reached for the door, and started to turn the lock that was already in place. And that’s when I heard it.  
+“You are late Laura.”
+
+It was just a whisper, but I couldn’t help the slight gasp. Laura? I turned around, expecting to see Laura behind me, but she wasn’t there. Just the woman in the night gown from last night. I was frozen. Was she talking to me?
+
+“I…. I’m not Laura. I’m Silent.” I said, slowly. I remember the sense of dread that covered me as soon as the words were out.
+
+The woman's frame twitched. Then a hand reached out. Towards me. I took a step back, and realized what I had done. I didn’t confirm the reality the resident was in. Mrs. Harlow looked up at me, slowly, almost mechanically. Her eyes were like voids when her gaze met mine, and I knew I messed up. 
+
+I didn’t wait for anything. I sprinted down the hall as fast as I could, took a set of stairs and ran to one of the first doors I could find. A supply closet. 
+
+It's not even 2am on my second night and I already messed up. I locked myself in here with the lights off. I can’t move. My legs burn, and I can barely see the screen while I type this. I am terrified. I can hear Mrs. Harlow wandering past the closet every so often. She keeps whispering my name, like she is trying to coax me out. But I don’t even know if that’s her out there. I just need someone to know I was here, just incase… I’m not anymore. 
+
+I keep hearing something crinkling behind me. I’m too scared to even look. What did I sign up for? And am I even going to be able to get out?
+
