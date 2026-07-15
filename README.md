@@ -1,142 +1,317 @@
-# I was hired as an overnight receptionist and now I'm hiding for my life in the supply closet
-I cannot believe how I got here. I don’t even know if I’m going to make it out. But I need to know that someone knew I was here. I need to know that I’ll be remembered, even if this place won’t remember me. 
+# The snow is pretty when it runs red.
+I gasped, barely able to breathe. I could see the blood pooling over my right eye, and my left hand was twitching uncontrollably. My head slowly turned to the left, forcing me to meet my mother's gaze. 
 
-It started a few weeks ago. I was at home scrolling online, looking for job postings. With everything going on in the world, you don’t have to think too hard about why I was searching. The job market is a mess, and employers are still toting the “no one wants to work” motto. I wanted to work. Student loans and medical debt are trailing me wherever I go. No escaping that. So I went job hunting. I started applying for everything I found. Waitress, baby sitter, dishwasher, cashier, stocker; you name it I applied for it. Well, at least everything that would allow me to apply with a certificate for 3D arts. I couldn't even finish a full degree. 
-
-While I was searching, I came across this posting. It was from this senior living community in my city, maybe about a ten minute drive from where I lived. Pay was decent too, $19.50 an hour, full time, Tuesday night thru Saturday night, or Sunday morning I guess, the wording seemed off but I was desperate. Overnight receptionist wanted. Skimming the requirements, I thought it was a long shot. It was wanting someone with any kind of degree and they preferred bilingual people. But everything else I was great at. I’ve worked in retail and customer facing roles since I was old enough to be hired. And I’ve worked at the front desk for places before as well. I thought I’d give it a go. So I did, and got back to hunting. 
-
-It wasn’t until I got an email about the posting that I even remembered that I had applied. The email came from the community’s hiring manager, and it held a link for continued questioning. It felt off, but with how much technology is advancing and relying on AI, I just thought that maybe they were too. Following the link led me to this virtual interview thing. I was given questions and I had to record myself answering. It was typical stuff like why do you want to work for us, do you believe in our goals and beliefs. Normal everyday interview questions with full automation. No more than an hour after sending in the virtual interview did I get the email saying I was hired. I would be given links for training videos, an appointment time to do a drug test, and a log in so I could clock in and out for watching the videos. My first day would be that following Tuesday night. Three days away. 
-
-The drug test came first. I had a premade appointment with a clinic of the companies choosing, and just had to show up. The clinic knew what company I was there for, I guess they do all of the drug testing for them. That, or I gave too much information when I checked in. Either way, I remember the lady at the desk gave me a look of pity when I went to fill out paperwork. Like, she knew something I didn’t but wouldn’t tell me. I wish I had known why. But I had been so swept up in the excitement of finally getting hired I didn’t think much of it until now. After I was done at the clinic, I went home and logged in to start the training videos since I was starting in three days. 
-
-The videos had that old corporate feel to them. The ones that had people pretending on camera to act out scenarios, or do dramatic re-enactments of seniors with dementia getting angry at a care giver. The whole time it felt like I was watching relics of the past, not updated information. I learned more about the community I was going to be working at, for privacy sake I’m calling it WG. WG had been around since 1999, and was founded as part of a larger group of communities around the eastern seaboard. Seemed pretty normal at the time. Nothing stood out to me. Sitting here I remember there was one video that kept buffering around a part that kept talking about how WG had the highest rated memory care experience, but it buffered and repeated “memory” over and over until I had decided to give it a rest and start the video again the next day. 
-
-I finished the other videos with no problem. I had a whole day to spend just relaxing and mentally preparing myself for going in. So I did what any sane person would do; I practiced a phone greeting in the mirror. It’s crazy sounding, but I had been answering phones for other places, I didn’t want to trip up and say the wrong place. When I was confident in that, I spent some time shopping for a few new blouses. One of the emails I had gotten said the dress code for the receptionist role was black or khaki slacks, a WG polo or other dress shirt (button ups, polos, blouses, those kinds of things). I had a few, but wanted to get a few new things so I had a little bit of variation, even though my shifts were going to be from 11pm at night to 7am the next day. I was still meant to be the first face someone saw when arriving at WG. 
-
-While I was out shopping, I got a text message from a number I did not recognize. The text was extremely formal and professional. I almost ignored it. I changed the name of who texted me. I can’t risk them being found again.
-
-“Hello, this is Laura from WG. I will be your mentor for onboarding. Please bring your documents and a notebook. I will see you at 11pm.”
-
-So Laura was meant to train me in person tomorrow. The entire time since I got accepted had been automated or through some outside company. I was excited and nervous. I had so many questions at the time. How long would she be training me? Was this just another automated message and Laura was actually some AI program the company used? 
-
-I got my sleep schedule fixed for doing overnights, and when Tuesday night came around, I was greeted by a person. The entrance for the place was really nice. There was an awning over the loading area for the entrance. Sliding doors that led to a vestibule that had a second sliding door that was locked. Laura had to let me inside. 
-
-“Welcome. I’m Laura. Did you bring the documents I asked you about?” Laura got right to it. Her hair was drawn back into one of those loose half up ponytails, black slacks, and she had this bright yellow blouse with a grey cardigan over it. It reminded me of the sun coming out after a storm. How I wish I knew then that she was warning me of the approaching storm I’m facing now. 
-
-I cleared my throat, “Yes, I did.” I handed them over and walked with her to the desk. The lights in the main lobby had been lowered, and Laura explained to me that the interior doors locked at 8pm when the sun went down. They stayed locked until 7am the next morning when the day staff would arrive. She told me this was to make sure no bad actors got inside. 
-
-“While I get your documents scanned in, would you please put your name on your name tag? The label maker is in the bottom drawer.” Laura asked me once we sat at the desk. I did as instructed, and put my name. Silent. After that, everything was pretty standard. Laura showed me how to access the cameras, access Microsoft Teams for our phone system, showed me what doors are locked and where deliveries came to. 
-
-At first I didn’t have questions. The overnight shift was pretty much there to make sure Care Staff did their jobs, answer stray phone calls at night, and accept the odd delivery every once in a while while doing rounds of the main building every few hours. It was around 1am that Laura showed me how to do the rounds, and introduced the “checklist”. She never handed it to me directly, but showed me where to find it when I was by myself. 
-
-“Whenever you leave to do these rounds, always make sure that you grab the cell phone, the walkie, and the master keys. The door code is hidden under the keyboard. For tonight, I’m going to walk you through and show you. Tomorrow, I’ll have you do the whole thing.” Laura said, showing me where to find the aforementioned items. Near the time clock, at the desk, and under the desk. Pretty simple. Laura made sure that I held nothing tonight, showing me the best route and how to check the doors without waking anyone. 
-
-“Now, whenever you leave the desk for any reason, you NEED to bring these items with you. If you realize halfway down the hall you forgot something, don’t go back and get it.” I didn’t think about it at the time, but sitting here I know why she said that. I had given her an inquisitive look when she first said that, and I remember her face changed from neutral to scared.   
   
-“WG wants us to report rounds within a certain timeframe. Backtracking can make that time go over, and they prefer the shorter times. Longer times typically mean problems that the directors don’t want to deal with,” she explained. I took it at face value. A company wants to report efficiency over quality at times. Nothing I haven’t dealt with before. From there, we walked the floors of the building. The desk was on the second floor, so we had some weird route to follow to get to all the other external doors. Anytime we walked past a certain apartment, Laura would tell me about a memory she had of that resident. Mr. Smith would always whistle instead of sing at sing-alongs. Mrs. Harlow needed to be across the street in Memory Care, but her son wouldn’t sign the paperwork. She wandered the halls at night. But if there was whispering from her room, she was in bed for the night. 
+The taste of copper washed over my teeth. Blood pooled in my cheek before forcing its way out of my mouth and down my cheek. I watched a man plant his boot on my mom's body. He took the handle of the axe with both of his hands and slowly removed the axe from my mother's skull. A trial of blood and other bodily fluids spilled out onto our carpet. 
 
-The 1am rounds were relatively quick. 20 minutes at most for the size of the building. When we got back to the desk, I noticed that there was a delivery driver standing at the main entrance. I was about to speak up about it, when Laura put a hand on my shoulder and walked me towards the copy room, hidden just behind the desk.   
+I whimpered.
+
   
-“Shouldn’t we see who the delivery is for?” I asked, confused as Laura started getting out papers from the cabinets.   
+I watched the man drag my mother's body out of the house. I tried to reach for our couch to get up, but my arm wouldn’t move. I tried to wiggle my toes, to get my leg to bend, to scream for help. But I could only whimper. 
+
   
-“Not that one.” she said flatly. I was confused. She had told me earlier that we buzz in deliveries after hours to sign for them. I guess she sensed my confusion and went on to explain. “That one dresses like a delivery driver. Has the right style of outfit, but he never has any company logo on. He’s one of the bad actors we don’t let in.” I nodded at her explanation.
+The man came back into our home. He was humming a song, a tune that will forever be burned into my mind. He took me by the leg and lifted me with one arm, swinging me up and back. Pain shot through my body. It reverberated through my bones. 
 
-“Why haven’t we called the police about him if he keeps showing up?” I asked, worried. If that guy shows up so often that we know he’s a bad actor, why wouldn’t we?
-
-Laura gave me a look that I couldn’t pinpoint at the time, but was telling me that this isn’t something that I really should be asking.
-
-“We’ve… tried,” she says slowly, like she’s searching for the right words. “He…. always ends up gone by the time police show up. It’s best to ignore him.” She seemed a little more confident in her words. “If you ever see him at night, just make sure not to trigger the motion sensor by the door. That’s the only way he can get in.” After a beat of silence, we went back to the desk and he was gone. Just like that. I decided to just take it in stride. If they tried, the new girl wouldn’t be able to do anything about it. 
-
-The next few hours were mostly quiet. There were maybe one or two phone calls for the other building that Laura showed me how to transfer, and then said something odd. She had said that the only time we ever talk with the other building at night was to transfer phones. I was about to ask why when she explained that the care staff have their own things going on that I might interrupt if it wasn’t a phone transfer. 
-
-It was at 3am when we did our next rounds. Same thing. Phone, walkie, keys, door code. Laura still carried everything. But before we left, she had me check the cameras. The one for an entrance to the main building over by the loading dock.   
   
-“What am I looking for?” I asked. I saw nothing out of the ordinary. It was dark, but the night vision showed some insects flitting around and the outlines of the dumpsters. 
+I wanted to scream. 
 
-“If you don’t see anything, we are good. Let’s go,” was the only answer she gave me. I followed behind her as we went the opposite way for the rounds this time. There were some more stories of residents as we passed by apartment doors, and I noticed that the numbers seemed like they repeated themselves. I would blink and they looked right again. I attributed it to not being used to the overnight schedule. There was one door we passed by that we tested, apartment 329, that was unlocked when I jiggled the door. 
-
-A faint voice answered through the door “Is that the knitting needles I ordered?” Laura’s face drained of color as she quickly locked the door. 
-
-“No, no knitting club today Mrs. Lyra.” Laura whispered and shooed me on. A few doors down, Laura was still pale. I gave her a look, and she just smiled.
-
-“That resident has her days mixed up. She got her needles a few weeks ago, but the club was cancelled due to lack of interest. Her door is always unlocked on these rounds. If she says something to you, just remind her that there’s no club today and move on.”
-
-“What if the door is locked and she still answers?” I ask.
-
-“Then you - “ Laura was about to answer when the walkie crackled to life. I couldn’t quite make it out, but Laura turned it off. After it was shut off, she turned it back on and set it to channel 2. She said nothing else, and started walking again. I followed, still trying to wrap my head around the layout of the building. 
-
-These rounds took 30 minutes. When we got back, Laura showed me how to log the rounds into the computer, and we spent the next hours with me doing more training videos. I remember almost falling asleep a few times, and Laura was always there to nudge me awake. At some point, maybe around 4:40am, she showed me where to get coffee at the cafe near the desk. I think I was imagining it, but I remember seeing a shadow out of the corner of my eye when we were walking back. 5am came and went and we had our final rounds at 5:30am. It was the exact same thing as the other two rounds, but Laura let me pick which way to go. I wanted to see the route for the 1am again, so we went towards Mr. Smith’s door came and went, as did Mrs. Harlow’s door. I stopped to listen for the whispering, but I didn’t hear it this time. I looked at Laura. 
-
-“She’s probably wandering the building. It’s best to just make sure the door is locked and keep going. She knows the way back.” Laura said, as if she was expecting the whispering to be gone. I took the keys and locked the door, which was still locked. I moved on, and right before we got back to the desk, I saw her. I think I did at least. There was a woman at the desk in a night gown that was moving her lips like she was in a trance. Laura and I returned to the desk, and sat down. 
-
-If it had not been as quiet, I’m certain I would have missed where the woman asked “Are you here to help me Jane?” It took a moment, but I was about to say something about my name, when Laura piped up and said something else in response.  
   
-“Yes, I will meet you at your door.” That was enough for the woman, and she started shambling away from the desk. I stared after her, wondering why we wouldn’t clarify that we weren’t whoever this Jane person was.
+I heard him open the back door of his van, and he threw me inside with ease. I was still for as long as possible, hoping that he wouldn’t notice that I was still alive. But as he slammed the door, one of the bodies near me jolted to the side. We made eye contact, and I couldn’t help but try to scream. 
 
-“It’s just a thing for overnight staff. We don’t want to confuse residents, so if they think we are someone else, it’s just best to let them think that.” Laura explained. I remember reading that dementia residents lived whatever reality they were in, and agreed that it would be easier to just agree sometimes. 
+  
+But I had no voice, and I knew that no one was coming to save me.
 
-Laura finished up the shift by showing me how to prep for the morning crew, and waited with me until it was time to leave. She asked if I had any questions before leaving. The only one was where to find the checklist tomorrow so I could practice with her. She showed me, and I went to pack my notebook. When I turned to say bye, she was already gone, the outside door sliding shut. 
+\-
 
-All of this was yesterday. I was expecting Laura to be here when I got in tonight, but when I arrived, I was greeted with a locked door and an envelope addressed to me. I picked it up, and was surprised to see what was inside. 
+Eventually, I must’ve fallen asleep because I had to force my eyes open. The blood on my lips and teeth was dry. I sat up as quickly as possible, too quickly. Pain shot through my abdomen and down into my left leg. Something was wrong; the room around me was dark. I could only barely feel my injuries, which made no sense. I shouldn’t even have been alive. 
 
-“Silent,
+  
+I watched the darkness separate, as if it were made out of water. As soon as the darkness started moving, I tried to get up, but I couldn’t. It felt like something was weighing my hips down. I managed to get on one knee, keeping my left leg out. I was barely able to keep my balance. 
 
-Thank you for choosing WG as your new home for your career in senior living. We are excited to welcome you to our Reception Team. Below, you will find your door code to enter the building after hours. Second Shift has already gone home for today, but going forward you will swap with them at 11pm. 
+  
+As soon as the darkness finished parting ways, the ground a few feet in front of me seemed to transform into shallow blue water. The kind of blue that you see in a painting. It looked surreal and unnatural, but real all the same. 
 
-For this evening, please find all your onboarding paperwork in the top left drawer in the copy room and fill out between your rounds. The Round Checklist is in the right drawer at the desk. Everything you need to know will be on that paper. 
+  
+I watched the area in front of the water slowly morph into black sand. The sand crept its way up to my body. I tried to shy away, but I couldn’t move. As soon as it got to my knee, I sank a little. Just enough to feel the soft sand over my jeans.   
+It suddenly became extremely hard for me to breathe. 
 
-If you have questions, please use the computer to email your supervisor. If an emergency arises, follow the normal emergency procedures.
+  
+A few feet in front of me, a golden pole appeared. I tugged at my body as I tried to force myself to stand up. Once the pole was finished forming, I realized that I was looking at a giant scale. 
 
-Welcome, to WG  
-Management”
+  
+A pair of beaming red eyes met my gaze from just beyond the scale. I could barely make out its shape. As it approached me, I watched its head form. It had large, sharp ears like a dog. The closer it got, the more details I could make out. The creature had the head of a dog. The canine features ended at its neck, where it had the chest of a man. He wore red pants and had the legs of a dog. 
 
-I was confused at the time, but I realize now what made that letter so unsettling. I used my new door code and let myself inside. Everything was the same as the night before, just… No Laura. I searched for the paperwork the letter mentioned, worked on that, apparently got lost in it. The next time I looked up at the clock was at 1:15am. A whole two hours had slid past me and I was already late for my first round. I scrambled for the checklist, and found it in the drawer, right where Laura and the letter had told me it’d be.
+  
+As he approached me, I tried to trash again, and again, and one more time. My bones felt like they were on fire. By the time the creature was just inches away from my body, I became completely stiff. When he reached his arms out and took my face on either side, I screamed as hard as possible. 
 
-# Third Shift Night Rounds
+  
+In the darkness, in front of a monster, I had found my voice. 
 
-On all rounds bring the following
+  
+\-
 
-* Desk Cell Phone (access code on back)
-* Walkie Talkie (set to channel 2)
-* Master Key (located under the desk)
-* Door Code (provided at hiring)
+  
+ As soon as my eyes opened, I gasped for air, exhaling loudly. The room smelled like chicken noodle soup. Homemade. I sat up slowly, planted my hands on the ground, and tried to ground myself. Unsure of how I was alive, or even if I was really alive. Nothing felt real until I heard footsteps coming from outside the room. 
 
-Under no circumstance are you to return to the desk before completing a round.  
-Log your round as soon as you return, including how long the round took.
+  
+I tried to scramble to my feet, but it felt like my left leg was locked. Just moving my toes sent pain up my leg and into my hip. I slammed my teeth together and used the carpet to help push myself to the back of the room. I tried to take my surroundings in. A boarded-up window was behind me, and a wooden door stood in front of me. There was nothing else in the room, no carpet, nothing. 
 
-1:00 AM Rounds
+  
+When the door swung open, I jumped back and screamed. A man wearing a puffy blue jacket and snow-covered black pants entered the room. He exhaled. I couldn’t make out his facial features because he was wearing a black face mask and goggles. He stood there for a minute, watching me, before stepping out of the way. He used his arm to motion for me to exit the room, and I slowly rose to my feet. I had to use the wall to pull myself up; my leg still hurt. But I wasn’t going to risk not listening. Not after what I saw. 
 
-* Check all exterior doors to ensure security
-* Ensure all resident doors remain locked
+  
+I used the wall to support my weight as I limped into the hallway. As soon as I hit the black carpet, I blinked. I looked at the walls, which were wooden, but I could see sheets of metal underneath. 
 
-3:00 AM Rounds
+  
+Picture frames lined the wall, but they were flipped over, so I couldn’t see anything in the frames. I kept limping down the hallway until I reached what looked like a living room. I froze. A woman sat at a table next to a large brown TV. I saw bits of her black hair poking out from under her snowcap. She smiled at me when we made eye contact, and she motioned for me to come over and sit on the green couch. 
 
-* Check the Loading Dock Camera before leaving the desk
-* If you see no activity, proceed by going to opposite way of the 1:00 AM rounds
-* Ensure all resident doors remain locked
+  
+So I did. 
 
-5:30 AM Rounds
+  
+As soon as I sat down and exhaled, I realized how cold it felt. A chill ran through my arms and straight into my back. I love the cold, and I love the snow. This was a different kind of cold, something I could only feel inside my body. Like it was creeping around under my skin. 
 
-* The order of these rounds do not matter
-* Ensure all resident doors remain locked
+\-
 
-OUTSTANDING INCIDENTS  
-If anything occurs during your rounds, log them into the book when you return. Do not allow residents to linger at the desk for too long. 
+  
+“What’s your name?” The woman asked me as she reached forward and lifted a steaming cup off the table in front of us. 
 
-I read and reread the checklist. It was a lot more… clinical than Laura had mentioned last night. But I grabbed everything from the desk and started the rounds. The building was a lot quieter than last night. Every rustle of fabric or creaking in the floors made me jump. I went the same way we went last night, and went towards where Mrs. Harlow’s room is. I was hoping for something from last night, and was relieved to hear whispering when I got close to her room. But when I listened closely, it wasn’t coming from her room. It was behind me. 
+  
+“What?” I mumbled. I heard her, but it was like my head was stalling. My mother was murdered, someone tried to kill me, and this woman wanted to know my name? 
 
-I could feel my body turn rigid and my blood turn to ice. Laura said to lock the door and keep moving, right? I reached for the door, and started to turn the lock that was already in place. And that’s when I heard it.  
-“You are late Laura.”
+  
+“I need to know your name. Don’t bother lying.” The woman said after taking a sip of her drink. I watched her put down the lipstick-stained cup and go back to meeting my eyes. 
 
-It was just a whisper, but I couldn’t help the slight gasp. Laura? I turned around, expecting to see Laura behind me, but she wasn’t there. Just the woman in the night gown from last night. I was frozen. Was she talking to me?
+  
+My body tensed. 
 
-“I…. I’m not Laura. I’m Silent.” I said, slowly. I remember the sense of dread that covered me as soon as the words were out.
+  
+“Samantha. Sam.” I whispered as I turned my head from the woman and looked out the window. The only thing I could see was snow, which was weird. It was the middle of Summer when my mother and I were attacked. 
 
-The woman's frame twitched. Then a hand reached out. Towards me. I took a step back, and realized what I had done. I didn’t confirm the reality the resident was in. Mrs. Harlow looked up at me, slowly, almost mechanically. Her eyes were like voids when her gaze met mine, and I knew I messed up. 
+  
+“Did you see what happened in West Brooke?” She asked. I had no idea what she was talking about, so I shook my head no. 
 
-I didn’t wait for anything. I sprinted down the hall as fast as I could, took a set of stairs and ran to one of the first doors I could find. A supply closet. 
+  
+“Did you hear about the plane crash?” She asked as she slid a notepad out of her jacket. I watched her pull out a golden pen after popping the cap off. The sound of the pen hitting the paper made my brain itch. 
 
-It's not even 2am on my second night and I already messed up. I locked myself in here with the lights off. I can’t move. My legs burn, and I can barely see the screen while I type this. I am terrified. I can hear Mrs. Harlow wandering past the closet every so often. She keeps whispering my name, like she is trying to coax me out. But I don’t even know if that’s her out there. I just need someone to know I was here, just incase… I’m not anymore. 
+  
+I licked my lips and crossed my arms, “No.” I answered honestly. 
 
-I keep hearing something crinkling behind me. I’m too scared to even look. What did I sign up for? And am I even going to be able to get out?
+  
+“The incident at Greenridge?” She asked as she wrote. Each time the pen hit the paper, my body tensed. 
+
+  
+“Never heard of Greenridge,” I said as I looked around the room again. Stacks of movies lined the north wall, and a pile of rifles sat next to the TV. I could hear someone cooking nearby; there must’ve been a kitchen somewhere. 
+
+  
+“Sam, I need you to focus.” The woman said as I slowly turned back to her. 
+
+  
+“Where are you from?” She asked me seriously. Leaning in. I could smell the coffee and cigarettes wafting off of her. It made my eyes twitch. 
+
+  
+I went to answer her question, but I couldn’t. I couldn’t remember where I was from. I closed my eyes to think, but the woman eventually tapped my leg. 
+
+  
+“What about your mom? We had no idea she had children. Our cleaner would have handled the situation differently. What was your mom's name?” She asked me as she got ready to write. I was suddenly very aware of my own voice. 
+
+  
+My lip quivered as I went to speak. Searching for the memory made my brain feel like it was burning. I had to reach up and grab the side of my head. I opened my eyes, and the woman was a little blurry. It wasn’t until I felt the tears running down my face that I realized I was crying. 
+
+  
+“Only a few more questions. Do you remember when the sky changed?” She asked me as I licked my tears from my lips and shook my head no. 
+
+  
+“Have you ever been to LittleBrooke?” She asked me as I clenched my pants and slammed my eyes shut. My head was pounding, and my brain felt like it was pushing at every inch of my skull. 
+
+  
+“Sam. Stay with me. Did you get to meet Stella? Have you met your sister? Did your mother ever tell you about the sky changing-” I heard every word. I could practically feel the desperation pouring off the woman. But I couldn’t keep my eyes open anymore. It was like my body just gave up. 
+
+\-
+
+When I woke up again, I clenched the ground underneath me. This time, there was no pain in my leg, so I sat up, quickly got to my feet, and moved towards the window. I could barely make out a car in the distance. I was trying to calculate if I could make it through the snow when the door behind me opened. 
+
+  
+“I’m so sorry.” The man in the blue snowjacket said as he walked into the room. I turned to my left and tried to take off, but he reached out and grabbed me with ease. I screamed, I screamed harder than I ever had before as I was carried out of the room. 
+
+  
+I reached out to grab the doorframe. I tried to kick my legs, buck my hips, thrash my body. I clenched my hand around the doorframe, but it didn’t matter. The man kept pulling, I kept screaming, until I felt one of my nails break. I felt the wood pushing into my fingertips.
+
+  
+He yanked me away from the frame and squeezed me into his chest. It hurts to breathe. 
+
+  
+“This is all your fault. You and your damn mother. If you had just died, we wouldn’t have to do this. I wouldn’t have to kill you this way,” He said as he hugged me. A hug so tight it felt like my heart was going to burst.
+
+  
+“I’ll make it quick. I promise.” He said as he slowly started moving down the hallway. I sucked in through my teeth. As I trembled in the man's arms, he brought me into the living room and held me near the couch.
+
+  
+“I’m so sorry!” He screamed above me as he kept squeezing. Tears flowed down my cheeks, but I couldn’t scream anymore. I could barely feel my body, my arms went numb, and then my legs. I had to force myself to close my eyes.   
+I could hear him crying. 
+
+  
+My mind flashed back to my mother's lifeless eyes. 
+
+  
+I whimpered and let go.
+
+\-
+
+I gasped when my eyes opened. My body twitched, and I looked around. My legs were submerged in black sand. I tried to brace myself to see the monster again. But nothing happened. 
+
+  
+“Sam.” A voice spoke out from somewhere around me. I dug my hands into the sand and started pushing myself up. I could feel my broken ribs and bruises. I coughed loudly, violently, but I just kept pushing. 
+
+  
+“Let go.” The voice said as I looked up to the black sky. Only looking down, I realized a cup had appeared in front of me. My nose twitched when the smell of fresh hot chocolate. Hit me. I could feel the warmth radiating from the cup. It was as if it was becoming me to reach forward and take a sip. 
+
+  
+For a moment, I considered reaching forward and taking a sip. But I didn’t. Instead, I leaned back and let myself sink into the sand, preparing myself to suffocate again. But instead, my eyes fluttered open. My body was facing the TV in the living room, and I didn’t dare move. But I could see myself in the TV reflection, my hair was partially white. One of my eyes was a burning orange.
+
+  
+As soon as I heard voices, I closed my eyes again. 
+
+\-
+
+“How many times do you think she can die?” The woman asked. 
+
+  
+“No idea, but she hasn’t moved. Is this our first time seeing this ability?” The man who crushed me asked. 
+
+  
+“Yes. But it won’t matter. We cleared the town, and the endless snow should stop. Everything should be okay. Get rid of her body and get warm.” The woman said. She sounded so sweet, so confident. 
+
+  
+There was pressure next to me. I could hear the man breathing. He was still sniffling, but I didn’t feel bad. Pain radiated throughout my whole chest, my back, and the base of my neck. It was all his fault. He didn’t have the right to feel bad.
+
+But a question burned at the back of my mind. How many times can I come back? 
+
+  
+I sat as still as possible for god knows how long before I finally heard the man start snoring. I opened my eyes and slowly got off the couch. I turned my attention to the pile of weapons and slowly made my way over. I crouched down and slammed my teeth together, fighting back a cough. As soon as my hand hit one of the rifles, pain shot into my arm. I yanked my hand back, and bits of blood trickled out from my fingertips. 
+
+  
+I checked behind me before slowly standing up. As I moved out of the living room, it felt like time was slowing down around me. I left the living room and hit the kitchen. The first thing I looked for was a phone. 
+
+  
+I didn’t even hear someone approaching me until it was too late. The creak ringing out from behind me made me jump and turn around, just in time to be hit in the face. I stumbled backward before a fist hit me again, causing my head to slam off the fridge. 
+
+  
+“You killed him.” The woman snarled at me. 
+
+  
+“I didn’t-” I screamed as she slammed into me. I gagged loudly as I hit the fridge again. I could hear objects hit the floor around me.
+
+  
+“If you would just die, the snow would stop! Everything would be okay if you would just die!” The woman screamed at me as she took me by my hair.
+
+  
+I cried out and reached for her wrist as she dragged me out of the kitchen. I coughed loudly, spitting blood all over my chin as I swung back at the woman. 
+
+  
+“Look at him!” She screamed at me as she threw me next to the couch that had the man sleeping on it. I looked up, and my blood ran cold. My whole body tensed. I could feel my eyes filling with tears. 
+
+  
+He wasn’t snoring anymore. His whole face was an icy blue; his eyes appeared to be frozen shut. He was snoring, I swear he was snoring.
+
+  
+“He felt bad!” The woman roared at me as she tackled me. She took my head in her hand and screamed at me. I will never forget her scream. Her fist hit my head again. I coughed again, blood shooting out of my mouth. She hit me again, this time, my head bounced off the hard floor. I whimpered. 
+
+  
+My hands shot up in a desperate attempt to fight back. It wasn’t until she went to punch me again that I grabbed her wrist and brought her closer to me. She screamed, and I used my free arm to reach up. I shoved my finger into her eye. I pushed as hard as possible.
+
+  
+She wailed out and tried to pull away. Her free hand slammed into my side. I yipped, screamed, and punished a little harder before she finally pulled away. As soon as she got off of me, I forced myself up and charged at her.
+
+  
+When we collided, her body slammed into the floor, and I screamed. I hit her as many times as I could, as hard as I could. I hit her head, her chest, her side, and her face. I hit her until she stopped fighting back. I slowly got up and tried to clean the tears from my eyes.
+
+  
+It was a mistake to turn my body away from her.
+
+  
+I heard a screech from behind me as the woman came charging at me again. We hit another wall so hard that we went through it. I cried out as we went crashing into the snow. The cold stung. I screamed as the woman put her hands around my throat.
+
+  
+“You let it in!” She screeched as she choked me. I grabbed her wrists and bucked my hips.
+
+  
+My vision was becoming spotty, but I could see her skin slowly turning blue. Eventually, she fell over. I had to pry her fingers from my neck. I sat up, gasping, coughing up blood. I could feel blood on my back; I could see it pooling in the snow.
+
+  
+I got up and limped back to the house. I searched for a bag of any kind, and eventually found a backpack in one of the bedrooms. I also looked for any personal belongings, but I couldn’t find any. I went back to the living room to continue looking around. 
+
+\-
+
+My arms trembled as I looked over the weapons. I even checked the DVD’s. After that, I went on to the rest of the house until finding the woman's room. It was the most normal room in the whole house. She had a bed with sheets, a flatscreen TV, and a lot of clothes. I searched everything.
+
+  
+Eventually, I found a green backpack tucked away in her closet. I opened it to find papers, a box, and a few VHS tapes. The works. As I looked into the backpack, it dawned on me. The woman said I let “it” in. I closed the bag and got my stuff before making my way to the front door. 
+
+  
+I made my way off the porch and tested the snow. It was mostly frozen; if I kept moving, I wouldn’t sink. I clenched the bags and trudged forward. I was sure that I would hit a road, or another house, or something. But just as I hit the middle of the lawn, I felt like someone was watching me. 
+
+  
+I turned my head towards the trees and squinted a little. A pair of pinprick white eyes looked back at me. I could barely make them out. My body froze, and I started trembling again. A mix of pain and fear shot through my body. Inside the house, I was scared. When I died, I was terrified. But when I made eye contact with the creature in the woods, it was like looking into the eyes of despair itself. My lip quivered as I whimpered. I tried to will my body to move when someone spoke from the woods.
+
+\-
+
+“Mommy! It’s so cold! I don’t feel good!” A child's voice rang out from the woods. For a moment, I wanted to run towards the child, to let him know that it was safe. But that feeling was fleeting. 
+
+  
+I watched the eyes get closer, slowly taking a step back, the snow crunching under my foot. 
+
+  
+“Mommy! When will the snow stop?” The trees echoed around me. I kept moving backward. 
+
+  
+“The pastor said when the sky returns to normal.” The woman's voice rang out from the trees. I clenched my bags and tried to glance around. It was as if the trees were dancing around me. 
+
+  
+“The pastor said that his cleaner will fix the problem!” The woman's voice shrieked again. I could hear it clearly now. The voices sounded human, so human that it was hard to ignore. But certain words were wrong, the inflection and pitch were off. I kept stepping back slowly. 
+
+  
+“Mommy? Did God answer the pastor-r-r?” The child's voice returned. This time, it sounded like someone was speaking through a broken loudspeaker.
+
+  
+“Yes, my love. He said that God heard our prayers. He found the heathens who have been causing the endless snowfall. It will all be over soon.” The woman's voice shot out again, and this time I started moving faster. I could see the white dots dancing in the woods against the setting sun. 
+
+  
+“Momm-y-y-y.” The woods screamed as the eyes finally escaped the treeline. I watched as a grotesque creature emerged from the trees. It stood on two legs that came down into large paws. Its arms were abnormally long; I couldn’t see its hands in the snow. It had the head of a wolf. The torso of a man was covered in white fur. I watched its head snap back and forth.
+
+  
+Paralyzed with fear, I couldn’t help but watch. It was like my legs wouldn’t move anymore. 
+
+  
+“Mommy, what was the first sin?” The creature bellowed. It hung its jaw open to speak, the voice of the child playing out of the beast's throat. 
+
+  
+I screamed and took off running. It took everything I had left in me to make it through the snow. But I could hear it running after me. Eventually, it stopped speaking and made a sound like…a human crying. After that, it screamed, the screams of at least ten different people. 
+
+  
+I shot through the trees. Grunting and screaming as branches slammed off my body. I was so sure that I was going to die, that this was the last time, until my foot hit the pavement. I slipped, landing right on my left hip. I slid across the street and into a snowbank. 
+
+  
+As the falling snow peppered my face, I slowly forced myself to stand up. Blood ran down my leg. My knees trembled; it felt like my bags were my lifeline. But it didn’t matter. I didn’t have any fight left in me. I coughed as I waited for the monster to come barreling out of the woods, but it never happened.
+
+   
+I started limping up the street, trying to stay off the icy road. That’s when I saw it in the distance, the beaming lights of a Bus Stop sign. I made my way over and sat under the small dome. I just wanted to get out of the snow. As I sat there, I could hear the snow cracking behind me. I tried to sit up and look back, but I could barely move. 
+
+  
+A man sat next to me. He wore a black suit and a black hat with tinted sunglasses. He leaned back and pulled his glasses off to meet my eyes. 
+
+  
+“I’ll trade you the green bag for a bus ticket.” The man smiled at me. I wanted to say no, I tried to say no. But I couldn’t form the words. I could feel my left arm rise. I watched my hand open and handed him the bag. But it wasn’t my choice. 
+
+  
+“I’m sorry about your mom, kid. But I’ll make sure these get to a safe home. In the meantime, be careful with your gift.” He said as he got up and left. I watched him walk into the woods. Leaving nothing behind but a ticket where he was sitting. 
+
+  
+I slowly took the ticket and watched a bus come roaring down the street. It stopped right in front of me. Getting off the bench felt like hell; I was so sure that my body was going to crumble at any moment. 
+
+  
+I handed my ticket to the bus driver and sat down, resting my head on a window. I sat there sobbing as the bus drove down the street. We passed by many different houses. All were different colors, but they all had something in common. The snow outside of each one was stained red. Some cars looked torn open. I saw people frozen, body parts missing. 
+
+  
+I looked up into the dark sky and saw the snow stopping, and couldn’t help but cry harder.
 
