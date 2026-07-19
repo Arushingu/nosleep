@@ -1,178 +1,32 @@
-# Before Grandpa Died, He Gave Me His Secret Coins
-Honestly, I thought it was a lie. A wild tale from a withered old man. But it wasn’t a lie. Grandpa was telling the truth. Those coins were magical. They brought good luck. Unfortunately, luck travels in both directions.
+# The Box I Can't Bring Myself to Open
+When I came home, my wife's car was in the driveway, but she was nowhere in sight. The door to our son's room was closed, and the baby monitor was off. I called her name, but she didn't respond. The stroller was folded by the door. Still, it was possible they weren't home. I kept telling myself it was possible. I could've opened the bedroom door to be sure. But then, I couldn't.
 
-When I was a kid, Grandpa got sick; he moved into our basement. I’d listen to him tell stories for hours. Like how he and his friend Jim would travel across the country in their VW Microbus, following the Grateful Dead. I loved hearing those stories. Sometimes – after a drink or three – he’d talk about his time in Vietnam. I hated those stories, but was equally fascinated by them. Once and a while, he’d talk about magic coins. But only after dark. And not until the cancer made it clear: he was dying.
+Looking back, I had missed many opportunities to step up. She was always the one getting up with the baby. Each morning when I awoke, puzzling at my eight hours of uninterrupted sleep, she told me she'd been up anyway. She couldn't sleep, not with everything that was going on in the world. Not with all the people out there that would try to hurt our child if given the chance. I tried to comfort her, but I didn't take it that seriously. All new moms are anxious, right? 
 
-“Coins?” I asked, somewhat intrigued.
+The 9mm was in the gun safe in our bedroom. We didn't keep it loaded. I'm not an idiot. The lid on the gun safe was closed and locked, as it should've been. I could've opened it to check, to make sure it was in there. But then, I couldn't. 
 
-Grampa grabbed my little hands and looked me dead in the eyes. “Not just any coins, Neil,” he said. “Special coins.”
+The lack of sleep wore her down. More and more often, I came home to find her sobbing. She could never tell me what was wrong, not really, not specifically. She'd hold our son tight against her chest and whisper that she couldn't protect him, but I told her we were safe; this was a good neighborhood. Maybe I am an idiot. 
 
-When he spoke, the smell of bourbon burned my nostrils. His tired gray eyes grew cold; he seemed lost in memories. I removed my hands from his grip and stood uneasily beside his bed. There was another smell permeating in the basement, one I could do without: death.
+I didn't open the door. She could've walked to a neighbor's house with him. We hadn't met any of our neighbors yet, but maybe she just did. I hadn't seen or heard any other children around since we bought the house. The realtor had told us that most of the homes on this block were still occupied by the original owners, but as they moved to retirement communities, more young families like ours would start moving in. A kindly grandmother could've introduced herself and invited them over. Someone, perhaps, who could someday help fill the void left by her own mother, with whom she'd gone no-contact. That could happen.
 
-Over the course of that summer, I learned more of these special coins. Apparently, he and Jim acquired them at a Dead concert in New Orleans – their final road trip together. (I’ve since done some research, and the pair of shows happened on October 18 - 19, 1980.)
+I'd told her we should get a nanny so she could rest more. I was trying. But she didn't trust any of the nannies we interviewed. She didn't trust anyone anymore. Including, maybe, me. When she wouldn't go for a romantic night out, I tried to get her to call a friend, saying I'd stay with our son. She still refused. 
 
-Grandpa met a young fortune-teller named Pearl, who traded him a bag of coins for some hash. (Hearing my dying gramps talk about hash was…well…unusual).
+I called her cell. Straight to voicemail. She wasn't addicted to her phone like so many people our age. When we were dating, she would turn her phone off for hours, sometimes even leaving it at home, on purpose. I had loved that about her. I wanted a mother like that for my child, one who would be fully present and squealing with joy at his first steps, not distracted by memes or busy taking pictures for everyone else. Sure, we'd talked about the need for her to be reachable now that we had a kid, but it wasn't surprising that her phone was off. It meant nothing.
 
-Grandpa gave his friend Jim a couple coins, then stashed the pouch in the glove box and away they went. They’d spent the entire decade following the Dead, scoring chicks (his words, not mine), and having the time of their lives. But when this particular road trip ended, Grandpa and Jim had a falling out. Grandpa grew tired of travelling; he found himself a steady job, and never spoke to his friend again.
+Maybe there were things I shouldn't have brushed off. But at the time, it seemed to go from normal to frightening overnight. I didn't have time to react. Out of nowhere she was screaming at me. I thought I should give her space to let her calm down; clearly my being there was stressing her out. I went to work that morning.
 
-Anyways, back to the coins. Just before Grandpa passed away, he called me over. By now the stench of death was all-encompassing. I dreaded going down there. The basement was murky and damp and draped in cobwebs. It felt like a coffin.
+My hand was frozen on the doorknob. My brain grasped for something useful and came up with a stupid high school memory. Walking out of physics class with my friends. Laughing and rolling our eyes at our teacher, a short, impatient German man who sucked at teaching even basic concepts and had just attempted to explain Schroedinger's Cat. We mocked his accent and phrasing. "Eez alive oond dead, both, oontil you open ze container!" We fell all over ourselves laughing. Was it the left half that was dead and the right half alive? Could we try to get a live front half and a dead back half so we wouldn't have to scoop the litter box? He'd turned red when we said these things, and flecks of spit came out of his mouth as he raised his voice. "Only oontil you open ze container! Zen it eez eezer alive or dead!"   
 
-“Neil!” he croaked, his voice as sharp as a razor’s edge. “Come quick!”
+I ran from the house. I got back in my car. I called my wife again and left a forced cheerful voice message saying I had to work late. I drove around, my heart racing, trying to figure it out. I was leaving a message like everything was fine. Everything was fine. Everything was fine and not fine. 
 
-I stood over to him, holding my breath. He was so thin and frail it seemed impossible. But his eyes were ablaze. He pointed to a strange key dangling from a nail on the wall. Somehow, I’d never noticed it before. He made a ‘get going’ gesture. I didn’t know what to do – I’d just turned twelve: old enough to fend for myself, young enough to scare easily.
+We all had our demons. I was scared too. Scared I didn't have what it took; scared I'd be like my dad. Normal stuff. People manage. 
 
-“Fetch me that key,” Grandpa ordered.
+The sun slipped below the horizon. This was crazy. What if she needed help? I called my wife. Told her voicemail I was heading home and was hoping to hear from her soon. Turned back toward the house. Turned back again.
 
-I did. It was long and bent and covered in markings. It looked ancient, like it had belonged to a pirate.
+I was going too fast. My headlights were still off. There was a bend in the road and then a fire hydrant on the corner. My car hopped the curb and slammed into the fire hydrant. Not hard enough to hurt me; I had my seatbelt on and the airbags deployed. But the car wasn't going anywhere. 
 
-“Now go to my dresser; bottom drawer. Near the back.”
+I called my wife again and told her voicemail I was worried. Then I called the police and told them I'd been in an accident and my wife wasn't answering her phone at home, where she was alone with our son. They said they'd send someone out to check on her. 
 
-I wanted to run upstairs, as far away from him as possible, and I nearly did. But I was curious, so I went rooting through his dresser and found a small, simple box. It was heavy.
+I crossed the street toward the familiar neon signs. The prices were higher than I remembered. Not high enough to deter me, though. The next thing I remember is waking up in my backseat, confused for a moment about where I was and why. My phone was buzzing, but then stopped. One missed call. Not my wife's number. I shut it off when I heard the message begin with "Good evening, this is Officer—" I took another swig. Another. I squeezed my eyes shut against the tears. My wife would be so mad at me, coming home like this. I couldn't come home like this. 
 
-“That’s it!” Grandpa started coughing. “Bring it here, goddammit! I don’t got all day.”
-
-I did as told.
-
-“Open the box,” he snapped.
-
-I tried, but my hands were clumsy. Suddenly, I was trembling. Grandpa got upset with me, which made it worse. Finally, my hands steadied, and the strange key slid into the slot. The small box opened.
-
-I gasped.
-
-Wrapped within a tattered old rag was a bundle of gold coins. The peculiar coins depicted a sword-wielding lizard with a human head. The lizard – which looked anything but friendly – was surrounded by odd letters that looked otherworldly.
-
-“There used to be a dozen of them,” Grandpa said, barely above a whisper. “Now there’s only three. Becasue…well…you know…”
-
-I didn’t know. Nor did I want to. The images on the coins were horrifying.
-
-“Keep them,” he said. “But spend them wisely. And wait until you’re older. And for Christ’s sake, don’t do anything stupid, like get yourself killed.”
-
-A coin danced along his gnarly knuckles. To my surprise, he flipped the coin straight into the air and snatched it. The coin vanished. He motioned for me to come closer, and when I did, he reached behind my ear and the coin reappeared.
-
-I was impressed.
-
-“They’re yours now,” he said. His eyes grew wider, “But keep them secret. You understand?”
-
-“Why me?” I managed to say, my voice choosing that exact moment to crack.
-
-He started coughing again, so I fetched him a glass of water.
-
-“They’re magic,” he said in his croaky voice. “They can help you and your mother. But be forewarned: magic is like a boomerang.” He drifted into sleep.
-
-That was the last time I spoke to him.
-
-I kept the coins hidden in my closet. I didn’t know what to do with them. I had to tell someone. But I knew Mom wasn’t the right person; she’d take them away from me. Or sell them. So I told my friend Michael.
-
-Big mistake.
-
-Michael and I were school chums. We lived on the same street and walked to school together. On our way home, we’d sometimes cut through a small stretch of forest, climb trees and catch snakes. One tree in particular – the Big Ape – was our favorite. We’d climb it and act like monkeys. Harmless fun. Michael wanted a coin, and after much pleading, I gave him one. Seemed harmless. Besides, it’s not like I paid for them. The following week, he showed up with a brand new bike. I was  baffled. His parents were impoverished. I asked him how he paid for it.
-
-His eyes lit up. “The coin,” he said.
-
-I shook my head, “Impossible.”
-
-“Nuh-uh,” he said. “I promise.”
-
-He’d been bugging his mother for a bike all summer. The other night, he tried again, but his mother was adamant. The answer was no. So he placed the coin on his bedside table, and before he fell asleep, he prayed for a new bicycle. The coin started glowing, so he prayed harder. When he woke up, the coin was gone. In its place, was a new bike.
-
-“You’re lying!” I said, but one look in his ballooning eyes told me he wasn’t. I recalled what Grandpa said, and shivered. A million questions sprang to mind.
-
-“Can I leave it with you?” He frowned, “My mother will think I stole it.”
-
-I shrugged. My mother was very distracted. She wouldn’t even notice it. “Sure,” I said. “But I get to use it too.”
-
-It was a deal.
-
-Sadly, I never got to ride the bike. Later that week, while Michael was riding the bike to the convenience store – a mere three blocks away – he was struck by a bus and killed. The bike was totaled. And I’d lost my best friend.
-
-…
-
-The coins stayed hidden in the back of my closet for three years. But they weren’t forgotten. Every now and then – in the dead of night – I’d hear an ominous hum gurgling from the closet. The closet door would open, seemingly on its own, and I’d feel the calling of the coins. This sounds crazy. But it’s the truth.
-
-My step-father left home without warning. Mom was devastated. And broke. Turns out, her dear hubby left her with a pile of gambling debts. It was a tough year. We moved into a small one bedroom apartment, and Mom took up a second job. She was really stressed, and complained about needing a vacation.
-
-The call of the coins grew stronger. I recalled what Micheal had said a few years earlier. About wishing for the bicycle, and it appearing. One night, unable to sleep, I crept into the closet and snatched the bag of coins. They were heavier than I recalled. And uglier.
-
-I placed a coin under my pillow, and started praying. I prayed for Mom to go on a perfect vacation and come home feeling rejuvenated. The following morning, when I searched under the pillow, the gold coin had vanished. My heart sank. I raced around my room searching for it. But it was nowhere to be found. I went to school, grumbling about the stupid coin, and was surprised by a smiling mother when I got home.
-
-“Neil,” she said, grinning gloriously. “You’ll never guess what happened to me today.”
-
-…
-
-Mom didn’t invite me on her vacation. She invited Doug, some loser she’d recently started seeing. I was disappointed. But at least she got her much-needed vacation. Earlier that day, she’d called a radio station, and won an all-expence trip to see Coldplay in Ireland. Her favourite band. The trip was triumphant. Mom returned looking ten years younger. Finally, she was happy. A month later, Mom’s health started to deteriorate. The doctors were baffled. Soon thereafter, she was diagnosed with advanced MS.
-
-The coins.
-
-I was livid. Why did Grandpa give me those damned coins? There was only one left. Maybe it would bring better luck. Or maybe not. I didn’t want to find out, so one night, while Mom was watching TV, I tossed the coin into a nearby dumpster. Good riddance.
-
-The following morning, I awoke from a terrible dream. My head was swimming. The walls in my bedroom were pulsating. A small, tinkering light flickered.
-
-The coin.
-
-It was on the dresser, pulsating.
-
-“What the heck?”
-
-Did someone put it there? Mom, perhaps? No way. Impossible. She was nearly immobilized at this point. Warily,  I stashed the gold coin in the closet, then I went to school and tried to forget the cursed coin. Everyone at school seemed suspicious of me. And I couldn’t blame them. My life was spiraling out of control, and I had no one to turn to. The last person I confided with was Michael, and he died.
-
-Mom’s health worsened. Money was an issue. I tried to find a job, but it was tough. Nobody, it seemed, wanted to hire an unskilled sixteen-year-old kid. Finally, I landed a job as a dishwasher at a local diner where Mom once worked. It was nice earning money, but it wasn’t enough to pay for Mom’s medical bills.
-
-“Neil,” Mom called me over, late one night. “We need to talk.” The look on her face was troubling. “I’m dying,” she said, sadly. “You need to stay with Steven and Althea.”
-
-I was gutted. As much as I loved my uncle and aunt (I stayed with them during Mom’s vacation), I hated the idea of leaving her alone to die. No way. I tried convincing her that things would improve, but even I didn’t believe this was possible. It would take a miracle.
-
-The coin.
-
-I pondered the gold coin all week. I’d need to be careful – cover all the bases, as they say. I considered wishing for millions of dollars but thought otherwise. What if a pile of money fell on me and crushed me? Or what if I drowned in a sea of cash? I could pray for Mom’s health to improve, but that, too, seemed risky. I should leave her out of this. Just in case. Think!
-
-A big, fancy house. Somewhere warm.
-
-Yes! I would wish for a new house in a fine neighborhood. The mortgage would be paid off, and the property owned by us. Seemed fool proof.
-
-Before bed, I painted a house surrounded by tall trees, eclipsed by golden rays of a honeycomb sun. Then I added a swimming pool in the yard. I placed the gold coin on top of the painting and prayed. The following morning, I woke up feeling rejuvenated. Mom was sitting in her wheelchair, sipping coffee. She looked dreadful. Like she hadn't slept in days.
-
-“You’ll be leaving here once school finishes,” she said, her voice as dry as Grandpa’s.
-
-“What about you?” I asked, miserably. The idea that a gold coin could save my family seemed ludicrous. I hated myself for even trying.
-
-Then everything changed.
-
-The following week, my mother received a letter in the mail informing her that she’d inherited property. Apparently, Grandpa had owned property in Gainesville Florida. He’d left this estate to some floozy (Mom’s words, not mine) named Stella, who had rented it to students. Stella had recently passed away, and the property was now awarded to Mom. None of this made any sense, but at least my prayers were answered.
-
-It took all summer to iron out the details. Mom suddenly had more than enough money to cover her medical expenses. Things were looking good for the first time…well…since Grandpa died.
-
-When school ended, we packed up and moved to Florida. Mom wanted to sell the house, but decided to live there for a while. Soak up the sun. The house was exactly how I’d imagined, swimming pool and all. My friends (all three of them) were asking when they could come down for a visit. Life, it seemed, took a turn for the better.
-
-Then the walls caved in.
-
-By Christmas, it became apparent: major repairs were needed. The plumbing was a disaster, the paint was peeling off the walls, and the crawl spaces are infested with snakes. It was time to sell the place. Pronto. Mom acted fast, but not fast enough. Making matters worse, some drunk college kid drove a car through the living room window. Mom nearly died of a heart attack.
-
-“This place is cursed,” she complained.
-
-She was correct. But I certainly wasn’t going to tell her why. I did some digging, and discovered that Grandpa’s old friend Jim was alive; he lived in Georgia. I contacted him. After much coercing, I convinced him to have a meeting with me. He was highly suspicious, but eventually agreed.
-
-I was nervous. This was stupid, I scolded myself, standing outside his home. What was I doing here? I nearly chickened out. Instead, I was greeted by his daughter, who was roughly my mother’s age. She was tall and thin, with frizzy dark hair and a warm smile. She invited me inside.
-
-She spoke with a slight Southern drawl. “Can I get you some lemonaid?”
-
-I asked for a cold glass of water, then was led into a large bedroom. The room was a psychedelic dream. Grateful Dead banners, lava lamps and floral colors. The works. Jim was lying in bed, watching baseball. He was a heavyset man, with pale lips and large earlobes. His hair was mostly gone, replaced by red spots.
-
-Jim looked up. “Holy crow. You look just like your gramps!”
-
-We chatted for a couple minutes, while I gathered my nerves. He was a jovial man, and loved hearing stories about school. He asked me if I liked the Dead. I told him yes, and he seemed pleased. He talked about old times. Then he asked the million dollar question.
-
-“Tell me, Neil. What brings you here?”
-
-“The coins,” I blurted, before my nerves could get the best of me.
-
-Jim’s demeanor changed at once; his eyes burst from his puffy face. Drool fell from his furrowed face. His legs kicked. He clutched his heart. He tried shouting, but instead whimpered. He died right there in front of me.
-
-I cried all the way home.
-
-Life worsened, the house continued to crumble, and my hatred for Grandpa grew stronger. Stupid coins. Mom managed to sell the house – the property was worth a pretty penny – but she didn’t live long enough to make use of the money.
-
-After her funeral, I was gutted. I needed a change. At least money wasn’t an issue. With high school completed, I decided to travel the country. Luckily, I’d met a girl named Cassidy who shared my love for jam bands. She, too, wanted to travel. We drove to the West Coast in a newly-purchased SUV (not nearly as cool as Grandpa’s VW Microbus, but beggars can’t be choosers), and had ourselves a blast.
-
-After a month or so, we found ourselves in New Orleans, attending a music festival. That’s when this story takes another terrible turn. Cassidy met an old fortune-teller named Pearl, who traded her some gold coins for a grilled cheese sandwich. We sold food and tie-dyed T-shirts at the tailgates, earning extra money.
-
-Cassidy was elated. Her jade-green eyes glimmered. She pulled a pouch out of her purse. In it was a bundle of ancient-looking gold coins. “Don’t these coins look [cool?”](https://www.reddit.com/r/StoriesFromStarr/)
+Once my head started to clear, I started walking. Away. I don't know where I'm going. I don't know how long I can keep this up. I only know that as long as I don't open the box, that cat is still half-alive. 
