@@ -1,118 +1,658 @@
-# The Wound
-I run my tongue along the staples lining the roofing of my mouth. I wince. And think *this isn’t going to work.*
+# Mirror funhouse makes me look normal.
+The first time I saw the funhouse mirror, I laughed.
 
-The next day I phone the doctor and she comes to my house to see what the problem is.
+Not because it was funny.
 
-I tell her it’s the metallic taste. It’s doing my nut in.
+Because for the first time in my entire life, I looked right.
 
-*Are you rubbing your tongue on them?*
+The carnival had rolled into town overnight, swallowing the abandoned parking lot beside the old grocery store with rusted rides and cheap lights. I only went because my coworker Ethan begged me to. He said I “needed to get out more.” Said staying locked in my apartment all day after work wasn’t healthy.
 
-Of course.
+I almost didn’t go.
 
-*Then stop.*
+Crowds made me nervous.
 
-She leaves without saying much else. Does a check of the staples to see if the wound is healing. Everything is fine as per *professional* opinion.
+People always stared.
 
-I spend the night plucking at the staples with my tongue. And spitting blood into a bucket.
+Even when they tried not to.
 
-The next morning I phone the doctor and tell her I’ve started spitting up blood. She comes to the house and has another look at the wound.
+Especially children.
 
-*Have you been poking them with your tongue?*
+Children never hide it.
 
-Of course.
+I still remember being eight years old, standing in the cafeteria line while some boy named Marcus pointed at my face and shouted:
 
-*Then stop.*
+“Why does he look melted?”
 
-She leaves without saying much else. I spend the day touching the roof of my mouth and wiggling the staples with my fingers. Until the metal starts scraping somewhere behind my nose.
+The entire lunchroom laughed.
 
-The next morning I phone the doctor and tell her the staples have all started coming loose. She comes to the house and *thumps* new ones into place. I ask her if they’ll have the same metallic taste as the last ones and she tells me *not if you don’t play with them*. *Are you playing with them? Then stop.*
+I remember touching my cheek, confused, because I hadn’t understood what was wrong with me yet.
 
-I spend the night licking the roof of my mouth and pushing my tongue into the wound. I creep my fingers up inside and wiggle the staples back and forth until they pop out onto my tongue. I spit them all into the sink and hear them *clink* and go to bed.
+Adults called it a birth defect.
 
-The next morning I phone the doctor and tell her the staples have all fallen out. The wound has opened up again. But she can’t understand a word.
+Kids called it monster face.
 
-So she hangs up the phone.
+One side of my jaw sat lower than the other. My nose curved oddly. My left eye drooped slightly. My shoulders were uneven. I wasn’t horrifying enough to make people scream, but I was strange enough that they always looked twice.
 
-I spend the night rooting around inside the wound. Until I see sparking lights behind my eyeballs and my limbs begin to twitch.
+Always.
 
-The next morning I phone the doctor and tell her the wound is far too wide to eat. Crisps are getting stuck inside of it and now all I can taste is the tang of vinegar and the salt of the blood and the cheese of the puss. She can't understand me and asks if I’m having a stroke because it’s all just a series of slurring and creaks. Her attitude flips when I begin to moan and breathe heavy from the pain. She gasps and sounds offended. Calls me a pervert. And slams down the phone.
+Even when they pretended they weren’t.
 
-I see scenes of blackened Pots calling Kettles by their own name.
+Especially mirrors.
 
-I spend the night drooling red and yellow threads of saliva into the bathroom sink. I watch myself in the mirror twisting a finger into the roof of my mouth as the knuckle disappears. Along with the kettles and pots. I push through bruised meat until I feel something spongy. But then I press against certain bumps and between certain slimy folds and now I see flashes of memories I thought I’d hidden. Of biting cheeks and picking scabs. Of cigarette burns and angry dads. Of blinking hard and clenching jaws. Of roaming hands and gentle shushes.
+God, I hated mirrors.
 
-A mother's caress should never last that long.
+Bathroom mirrors. Store windows. Phone cameras. Polished metal. Every reflective surface felt cruel.
 
-I am filled with an overwhelming surge of bliss. And now a mess of muddied hate.
+Every morning was a reminder that something had gone wrong when I was made.
 
-The next morning the doctor phones *me* but she hangs up immediately when she hears me trying to explain my opinions with all of my groaning and clicking. I think she was wrong to have done so much and to have left me with so little. And I know she shouldn't have stapled the wound because I’ve discovered something wonderful about it being open and pliable.
+By high school I learned survival.
 
-I spend the evening ignoring the knocking at the door and the shouting of the police claiming they are trying to perform a wellness check on me. They don’t understand that everything is absolutely fine and well. The only thing of any concern is that I haven’t got a long enough finger to reach the unprobed corners of my brain.
+Avoid eye contact.
 
-Oh how they long to be stroked.
+Keep conversations short.
 
-I spend the night dipping in and out of consciousness instead of sleeping because the blood is mostly gone and now there is only puss for me to taste. And it tastes so wretchedly rotten that I think I actually preferred the taste of the staples.
+Sit in the back.
 
-The next morning I weave dizzy pathways to the garden after fainting three times trying to get there. I find a jagged branch and strip it bare of all its hair and skin. But I don’t know if I have enough strength in my legs to make it back inside. So I lay there in the snow and thread the stick between my gnashing jaws. Up inside the wound. Around imposing ridges of bone behind my nose. Until I feel the familiar comfort of spongy resistance. And twitch myself to sleep.
+Laugh at yourself before others can.
 
-At last.
+People are less vicious when you help them hurt you.
 
-Fresh fields.
+That became my whole personality.
 
-When I awake I am more careful this time. I thread another sharp branch between what I feel is a cavity between the two hemispheres of my brain. And when it feels as though it will not go a fraction further I push it a little harder. Turn my palm to face the stick. And give it a little *thump*. It snaps through that stubborn rubber and the top of my skull gives a *knock* from where it stops.
+So when Ethan dragged me into that carnival, I stayed quiet behind him while he wasted money throwing rings at bottles.
 
-And that’s about enough as I can take. I vomit against my hand. And pass out in the snow with the smell of my success.
+Then I saw the funhouse.
 
-I spend the night crawling around the garden rooting out better sticks within the dark. But my left hand keeps insisting on slapping them all away. And because I drop a dozen worthy ones I’m forced to snatch them quick and stick them up inside my face before the hand can have its way.
+Bright red letters buzzed overhead.
 
-But me and my right hand have been conspiring. And here’s what we plan to do.
+LAUGHING MIRRORS.
 
-We lie on Left Hand until we’re certain she's asleep. And we stumble our way to the tool shed and grab the hatchet from the bench. And we *hack* that traitorous bastard away with a couple of swings and a few good smacks.
+I almost walked past it.
 
-And we take the nub and we take the arm and we tell them both to fall in line. Unless they want the same treatment as the hand. Because we will do it without so much as batting an eye.
+But something inside me twisted.
 
-Or so much as flicking a finger.
+Maybe curiosity.
 
-The next morning we barely make it back inside the house when the front door is bashed off of its hinges. I feel it vibrating in my sticks. And wince against the pain. There are police and medical staff rushing about looking for me in every room. I leap up onto my feet. On who knows what reserves. And I get ready to defend myself with the hatchet in my Right Hand.
+Maybe self-hatred.
 
-My stubby left shoulder waves feebly for help while Left Leg tries dragging me closer to the policemen and the medical staff. But Right Leg is trying to pull us further away. And we’re all so equally and incredibly feeble that we get absolutely nowhere fast and collapse back onto the ground where we started.
+Maybe both.
 
-*Now* they notice me.
+Ethan grinned. “C’mon, man. You gotta see these.”
 
-They gawk at me and frown at me as if I’m something new.
+I told him no.
 
-I know they are here to remove the sticks I’ve stuffed up inside the roof of my mouth. So Right Hand lunges at them with the hatchet. While I scream at them from around the bundle of branches stretching my lips open wide. I try explaining calmly through all of my bloody froth that if they try and touch me I will do exactly what I did to Left Hand and Left Arm to every one of the *treacherous fuckers.* To each of their faces and heads.
+He grabbed my sleeve anyway.
 
-Now the branches are wet with my saliva.
+The inside smelled like dust and wet wood. The floor creaked beneath us as colored lights blinked in every direction. Kids ran around laughing at stretched reflections.
 
-Since I seem to be in need of assistance a policeman steps towards me to lend a hand. Behind him I see doctor mom telling me things she thinks I want to hear. But all I hear coming from her cancerous mouth is treasonous disbelief. About the progress I’ve been making. About how bad she believes things are. And her hands. Trying to shush me down to a calm. Held out like blind mice in a darkened bedroom. I dare them to find me this time. I'm older now. And ready.
+Tall mirrors.
 
-I squeeze the hatchet handle and launch it through the air. It strikes her square in the forehead. And drops her flat on her ass.
+Wide mirrors.
 
-I try to laugh but crack a branch instead.
+Twisted mirrors.
 
-The policeman draws his gun. And when he points it at my head I point directly at a spot I haven’t had a chance to reach yet. I ask him *would you be so kind*? And when the bullet strikes me there I feel a rushing blast of air cold inside my mind. Until the blood pools. And warms me right back up. And I thank him for his service.
+I kept my head down.
 
-But all he hears are snaps and bubbles.
+Then I accidentally looked up.
 
+And froze.
 
+The mirror in front of me distorted everything around me.
 
-\*
+Except me.
 
+Ethan looked warped beyond recognition beside me. His face sagged sideways. His limbs bent unnaturally.
 
+But me?
 
-They have me now in bindings in a silent hospital room. They’ve given me a bed of my very own with people who come and go. They take me for scans and they take me for talks. They want nothing more than to learn from me.
+I looked balanced.
 
-These are the real doctors. These are the ones who listen.
+Centered.
 
-Instead of sticks they thread these exceptionally long needles up inside my brain to try and figure out exactly how I became the way that I am. But for that they'd need to dig *her* up and ask her.
+Normal.
 
-But for now I am in my element. And
+I stepped closer.
 
-it
+My breathing stopped.
 
-feels
+My face looked symmetrical.
 
-like
+My shoulders even.
 
-H E A V E N
+My jaw straight.
+
+For the first time in my life, I looked like everyone else.
+
+No.
+
+That’s not true.
+
+For the first time in my life…
+
+I looked beautiful.
+
+Something cracked open inside my chest.
+
+I stared so long Ethan eventually laughed nervously.
+
+“Dude?”
+
+I didn’t answer.
+
+I couldn’t.
+
+I touched the glass.
+
+The reflection touched back.
+
+My eyes started watering.
+
+Not crying.
+
+Just… overwhelmed.
+
+Like seeing someone you’ve missed your entire life.
+
+Myself.
+
+The real me.
+
+The way I was supposed to look.
+
+“You okay?” Ethan asked.
+
+I whispered:
+
+“That’s me.”
+
+He chuckled awkwardly. “Uh… yeah?”
+
+“No,” I said.
+
+I couldn’t stop staring.
+
+“That’s actually me.”
+
+—
+
+I went back the next night alone.
+
+Then the night after that.
+
+Then every single night that carnival stayed in town.
+
+The old man running the attraction started recognizing me.
+
+“Back again?” he asked once.
+
+I nodded silently and handed him cash.
+
+Sometimes I stayed for hours.
+
+Just standing there.
+
+Looking.
+
+Admiring.
+
+Studying every detail of the version of me inside the mirror.
+
+The normal version.
+
+I started talking to him eventually.
+
+Not out loud at first.
+
+Just in my head.
+
+You look confident.
+
+You look strong.
+
+People wouldn’t fear you if you looked like that.
+
+Women wouldn’t glance away so fast.
+
+Children wouldn’t whisper.
+
+You could exist without apologizing.
+
+At night I stopped avoiding mirrors in my apartment.
+
+Because now I knew the truth.
+
+The mirrors at home were wrong.
+
+The funhouse mirror was right.
+
+That realization infected me slowly.
+
+Like mold growing behind wallpaper.
+
+At work I began noticing everyone’s distortions.
+
+A woman’s eyes slightly uneven.
+
+A man’s crooked teeth.
+
+A teenager’s acne scars.
+
+Tiny flaws.
+
+Tiny ugliness.
+
+Everyone was distorted.
+
+The difference was society agreed theirs were “normal.”
+
+But mine wasn’t.
+
+Why?
+
+Because people voted on it.
+
+That’s all “normal” was.
+
+Majority rule.
+
+I started getting angry.
+
+Not sad anymore.
+
+Angry.
+
+Why should I suffer because people decided my face crossed some invisible line?
+
+Why should I feel ashamed?
+
+The mirror understood me.
+
+The mirror showed truth.
+
+One night I brought Ethan.
+
+I told him I wanted to show him something amazing.
+
+Inside the funhouse, I dragged him to my mirror eagerly.
+
+“Look,” I said.
+
+He laughed immediately.
+
+“Oh my god, this one makes me look horrifying.”
+
+“No,” I whispered. “It makes you honest.”
+
+He looked at me strangely.
+
+I pointed at my reflection.
+
+“Look at me.”
+
+“You look stretched weird too.”
+
+I stared at him.
+
+My stomach dropped.
+
+“No I don’t.”
+
+He frowned.
+
+That was the first moment fear touched me.
+
+Because I realized…
+
+Other people couldn’t see it.
+
+Only I could.
+
+That should’ve stopped me.
+
+Instead it obsessed me further.
+
+I started wondering if maybe the mirror wasn’t changing appearances.
+
+Maybe it revealed inner truth.
+
+Maybe everyone secretly looked wrong beneath the surface.
+
+Maybe I was simply ahead of them.
+
+Enlightened.
+
+The carnival eventually announced it was leaving town Sunday morning.
+
+The idea terrified me.
+
+I couldn’t lose the mirror.
+
+I couldn’t go back.
+
+Saturday night, I stayed until closing.
+
+The old operator finally approached me.
+
+“You really love that mirror, huh?”
+
+I asked him where they were taking it next.
+
+He shrugged.
+
+“Few states over.”
+
+My chest tightened.
+
+Desperation clawed through me.
+
+Then he smiled oddly.
+
+“You know… some people see what they need in there.”
+
+I looked at him sharply.
+
+“What does that mean?”
+
+He shrugged again.
+
+“Lonely people see friends. Sad people see happiness. Ugly people…”
+
+He didn’t finish.
+
+I snapped.
+
+“I’m not ugly.”
+
+Silence.
+
+Then quietly:
+
+“Of course not.”
+
+But I saw pity in his eyes.
+
+I hated him instantly.
+
+That night I broke into the carnival after hours.
+
+I don’t even remember deciding to do it.
+
+I just remember climbing the fence.
+
+Rain pouring.
+
+Lights dead.
+
+The funhouse standing alone in darkness like some sleeping creature.
+
+Inside, everything creaked softly.
+
+My flashlight shook in my hand as I ran to the mirror.
+
+And there I was.
+
+Perfect.
+
+Beautiful.
+
+Normal.
+
+I pressed my forehead against the glass.
+
+“I can’t lose you,” I whispered.
+
+Then something horrible happened.
+
+My reflection smiled before I did.
+
+I stumbled backward instantly.
+
+The reflection stayed still.
+
+Smiling.
+
+My blood turned cold.
+
+I hadn’t imagined it.
+
+I know I hadn’t.
+
+Then it spoke.
+
+Not with sound.
+
+Its mouth simply moved.
+
+Bring them here.
+
+I couldn’t breathe.
+
+Show them truth.
+
+Its smile widened unnaturally.
+
+Make them like you.
+
+I ran.
+
+I ran all the way home through the rain like a terrified child.
+
+But even back in my apartment, I couldn’t escape the idea.
+
+Make them like you.
+
+For days afterward, the thought consumed me.
+
+What if everyone saw themselves differently?
+
+What if everyone could become free from shame?
+
+Why should the world keep pretending?
+
+Why should anyone hide?
+
+I began sketching mirrors obsessively.
+
+Researching optics.
+
+Distortion.
+
+Perception.
+
+Psychology.
+
+Eventually I started building my own mirrors in my apartment using warped reflective panels ordered online.
+
+None worked perfectly.
+
+But some came close.
+
+Very close.
+
+When guests visited, I guided them toward them casually.
+
+“Look at this.”
+
+“Funny, right?”
+
+Most laughed.
+
+Some looked uncomfortable.
+
+A few stared too long.
+
+Those were the important ones.
+
+The broken ones.
+
+The lonely ones.
+
+I told them what I discovered.
+
+“You don’t have to hate yourself.”
+
+“The world taught you to.”
+
+“Normal isn’t real.”
+
+Slowly, people listened.
+
+I found others online too.
+
+Communities of people obsessed with altered reflections.
+
+Disfigured people.
+
+Insecure people.
+
+People who felt wrong in their own skin.
+
+I invited them over.
+
+One by one.
+
+We stared into the mirrors together for hours.
+
+And for the first time in my life…
+
+I belonged somewhere.
+
+No judgment.
+
+No staring.
+
+No pity.
+
+Only understanding.
+
+The movement grew.
+
+More mirrors.
+
+More people.
+
+More truth.
+
+We rented an abandoned warehouse eventually.
+
+Filled it with warped reflections from floor to ceiling.
+
+People walked in ashamed and walked out transformed.
+
+Confident.
+
+Liberated.
+
+Free.
+
+And me?
+
+I became their leader.
+
+The man who helped them see themselves properly.
+
+The irony made me laugh sometimes.
+
+The boy everyone mocked became someone people followed.
+
+But then…
+
+One night…
+
+I walked through the warehouse alone after closing.
+
+Hundreds of distorted reflections surrounded me.
+
+Everyone looked warped now.
+
+Bent.
+
+Twisted.
+
+Unnatural.
+
+And suddenly—
+
+I looked normal again.
+
+Not mirror-normal.
+
+Actually normal.
+
+Average.
+
+Plain.
+
+Everyone else looked strange.
+
+Wrong.
+
+Distorted.
+
+My stomach dropped.
+
+No.
+
+No no no.
+
+That wasn’t possible.
+
+I rushed from mirror to mirror.
+
+Same thing.
+
+Same horrifying thing.
+
+I was now the ordinary one.
+
+The boring one.
+
+Because distortion had become the standard.
+
+My reflection stared back at me with the same face I’d spent my entire life hating.
+
+Except now…
+
+Compared to everyone else…
+
+I was nothing special.
+
+The realization hollowed me out instantly.
+
+All this time I thought I wanted acceptance.
+
+But acceptance only mattered because I was different.
+
+If everyone became distorted…
+
+Then I lost the thing that made me unique.
+
+My suffering.
+
+My identity.
+
+My reflection smiled again.
+
+Before I did.
+
+And finally I understood.
+
+The mirror never wanted to make me happy.
+
+It wanted company.
+
+That’s all misery ever wants.
+
+Company.
+
+I smashed the nearest mirror with a chair.
+
+Glass exploded everywhere.
+
+But every shard still reflected me.
+
+Perfectly normal.
+
+And for the first time in my life…
+
+That terrified me more than looking broken ever did.
