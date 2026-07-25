@@ -1,658 +1,202 @@
-# Mirror funhouse makes me look normal.
-The first time I saw the funhouse mirror, I laughed.
+# I thought there was a raccoon in my attic. The claw marks on my bedroom door say otherwise. [UPDATE]
+[Here's the original post](https://www.reddit.com/r/nosleep/comments/1u6i2cv/i_thought_there_was_a_raccoon_in_my_attic_the/)
 
-Not because it was funny.
+After the encounter with whatever was living in my attic, I had two choices. I could let it have access to the rest of the house. Or trap it up there.
 
-Because for the first time in my entire life, I looked right.
+The thing had already tried to get into my bedroom once. I wasn't about to let it wander around the house while I slept. So I decided to seal it in.
 
-The carnival had rolled into town overnight, swallowing the abandoned parking lot beside the old grocery store with rusted rides and cheap lights. I only went because my coworker Ethan begged me to. He said I “needed to get out more.” Said staying locked in my apartment all day after work wasn’t healthy.
+I ran downstairs to the basement and grabbed a couple of 2x4s, my cordless drill, and a box of long wood screws.
 
-I almost didn’t go.
+The entire time I worked, I couldn't stop looking at the attic panel. It sat there in the hallway ceiling exactly where it always had, looking harmless. If I hadn't seen it slide closed with my own eyes, I probably would have convinced myself none of this was real.
 
-Crowds made me nervous.
+But I had seen it.
 
-People always stared.
+Something had been looking down at me from that opening. And now I was about to lock it into my house.
 
-Even when they tried not to.
+I moved as quickly as I could. If the thing figured out what I was doing before I finished, it could push the panel open and come down into the house.
 
-Especially children.
+The first board had to go across the attic panel itself.
 
-Children never hide it.
+I climbed the ladder and held the 2x4 flat against the ceiling. It was awkward trying to balance the board, the drill, and a handful of screws while standing eight feet in the air. I shoved the extra screws into my mouth so I could work faster.
 
-I still remember being eight years old, standing in the cafeteria line while some boy named Marcus pointed at my face and shouted:
+The first screw bit into the wood immediately. The drill whined as it drove through the 2x4. Then resistance as it hit the rafter. “Good” I thought. The screw sank deeper.
 
-“Why does he look melted?”
+Above me I heard movement. A slow scrape. Something dragging itself across the attic floor. 
 
-The entire lunchroom laughed.
+I froze for a second. Then I forced myself to keep drilling as the sound continued. Growing closer.
 
-I remember touching my cheek, confused, because I hadn’t understood what was wrong with me yet.
+The first screw seated firmly into the rafter. I grabbed a second screw and immediately dropped it. It bounced off the ladder and disappeared somewhere below.
 
-Adults called it a birth defect.
+"Great."
 
-Kids called it monster face.
+I spat another screw into my hand and lined it up.
 
-One side of my jaw sat lower than the other. My nose curved oddly. My left eye drooped slightly. My shoulders were uneven. I wasn’t horrifying enough to make people scream, but I was strange enough that they always looked twice.
+The scraping above me continued. Closer.
 
-Always.
+I drove the second screw home. The board tightened against the ceiling. Now I just needed one through the attic panel itself so it couldn't slide open. I positioned the screw and started drilling.
 
-Even when they pretended they weren’t.
+The instant the screw punched through the panel, the entire attic hatch shook violently. I nearly dropped the drill. Something slammed into the other side. The panel jumped against the board. Another impact. Harder.
 
-Especially mirrors.
+The thing knew. It knew exactly what I was doing. I got the screw seated and climbed down the ladder as fast as I could. The pounding continued. The panel was starting to bow downward.
 
-God, I hated mirrors.
+The screws groaned under the immense pounding. Whatever was up there was a lot stronger than I wanted to think about.
 
-Bathroom mirrors. Store windows. Phone cameras. Polished metal. Every reflective surface felt cruel.
+I grabbed the second 2x4.
 
-Every morning was a reminder that something had gone wrong when I was made.
+The impacts kept coming.
 
-By high school I learned survival.
+Bang.
 
-Avoid eye contact.
+Bang.
 
-Keep conversations short.
+Bang.
 
-Sit in the back.
+The entire ceiling rattled. 
 
-Laugh at yourself before others can.
+I climbed back up. At that moment, I realized there was less than an inch of drywall separating me from whatever was trying to tear its way out. I could actually hear it breathing. Slow, heavy, wet.
 
-People are less vicious when you help them hurt you.
+I tried not to think about that.
 
-That became my whole personality.
+The first screw of the second board went in cleanly.
 
-So when Ethan dragged me into that carnival, I stayed quiet behind him while he wasted money throwing rings at bottles.
+The pounding intensified.
 
-Then I saw the funhouse.
+I grabbed my last screw. One chance. I lined it up and squeezed the trigger.
 
-Bright red letters buzzed overhead.
+The screw sailed through the 2x4. Through the drywall. Through empty space. No resistance. I missed the rafter.
 
-LAUGHING MIRRORS.
+Something screamed. The sound exploded from above me. I almost fell off the ladder.
 
-I almost walked past it.
+It wasn't a growl or a roar. It didn’t sound like an animal at all. It sounded exactly like the exterminator. The same exterminator who had been in my attic the day before.
 
-But something inside me twisted.
+The scream echoed through the attic. Then came frantic movement. Not toward me. Away from me. Something crashed across the attic at incredible speed. Did I just trap the exterminator in my attic?
 
-Maybe curiosity.
+I stared at the ceiling. My heart hammering. Slowly, I reversed the drill and backed the screw out. When it came free, something was hanging from the tip.
 
-Maybe self-hatred.
+Hair. Several strands of dark hair. And a small smear of fresh blood.
 
-Maybe both.
+I just stood there staring at it. The thing was flesh and blood and I had just stabbed it.
 
-Ethan grinned. “C’mon, man. You gotta see these.”
+For the first time since all of this started, the attic went completely silent.
 
-I told him no.
+I drove the screw in again, this time finding the rafter. The second board locked into place. Whatever was in my attic was trapped. At least I hoped it was.
 
-He grabbed my sleeve anyway.
+That night I slept with my bedroom door closed and locked. I didn't sleep much.
 
-The inside smelled like dust and wet wood. The floor creaked beneath us as colored lights blinked in every direction. Kids ran around laughing at stretched reflections.
+The next morning I drove to the local farm supply store. I needed a trap. A big one. The clerk looked confused when I asked for the largest animal trap they sold. He showed me something big enough for a raccoon. Maybe a medium-sized dog. Not even close.
 
-Tall mirrors.
+I explained that I needed something larger. Much larger. He studied me for a moment before leaning across the counter.
 
-Wide mirrors.
+"You should talk to Earl."
 
-Twisted mirrors.
+"Who's Earl?" I asked.
 
-I kept my head down.
+"Old trapper lives over in the trailer park off Highway Nine." The clerk lowered his voice. "If anybody around here knows how to catch something big, it's him."
 
-Then I accidentally looked up.
+I got his address and immediately drove the short distance to the trailer park.
 
-And froze.
+Earl's trailer looked exactly like the kind of place you'd expect a man named Earl who traps large animals to live. Animal skulls hung from the porch. Wind chimes made from bones rattled in the breeze. Inside, every available surface seemed occupied by taxidermy. Coyotes. Bobcats. Foxes. A black bear head mounted above the television.
 
-The mirror in front of me distorted everything around me.
+The old man listened without interrupting while I explained everything. The missing food. The stolen clothes. The noises. The attic panel. The scream. The blood on the screw. When I finally finished, he sat silently for nearly a minute.
 
-Except me.
+Then he nodded.
 
-Ethan looked warped beyond recognition beside me. His face sagged sideways. His limbs bent unnaturally.
+"Sounds like a juvenile Sasquatch."
 
-But me?
+I laughed. He didn't.
 
-I looked balanced.
+"I've trapped coyotes, mountain lions, black bears. Hell, once I caught an escaped circus chimp."
 
-Centered.
+He pointed a crooked finger at me.
 
-Normal.
+"Never trapped a Sasquatch before though."
 
-I stepped closer.
+The frightening part wasn't that he believed it. The frightening part was that he genuinely seemed to know what he was talking about.
 
-My breathing stopped.
+According to Earl, the stolen clothes made sense. The food made sense. The human like scream. Even the size of the attic made sense. By the time he finished explaining his theory, I was halfway convinced. Or maybe I was just desperate for an explanation.
 
-My face looked symmetrical.
+Either way, when he offered to remove the creature for free in exchange for keeping it, I agreed immediately.
 
-My shoulders even.
+As I drove away I saw in the back of Earl’s truck. Large traps, metal contraptions, and canisters filled with things I’m sure I didn’t want to know about. I hoped my house was still standing when Earl was done. I drove to some hotel on the outskirts of town and barely slept.
 
-My jaw straight.
+The next morning I bypassed my house and drove straight to Earl's trailer to see what he caught. I expected to find him celebrating. Maybe posing next to a giant cage. Maybe dragging a dead Sasquatch into his collection.
 
-For the first time in my life, I looked like everyone else.
+Instead, he was sitting alone in a rocking chair. A rifle rested across his lap. His eyes stared blankly across the yard.
 
-No.
+When I called his name, he jumped. Actually jumped. The man who hunted bears looked terrified.
 
-That’s not true.
+"Did you catch it?" I asked.
 
-For the first time in my life…
+For a long moment he didn't answer. Finally he shook his head.
 
-I looked beautiful.
+"No."
 
-Something cracked open inside my chest.
+"What was it?" I asked.
 
-I stared so long Ethan eventually laughed nervously.
+His grip tightened on the rifle.
 
-“Dude?”
+"I don't know."
 
-I didn’t answer.
+The words hit harder than I expected.
 
-I couldn’t.
+"You don't know?" I pondered. “Well, did you see it?”
 
-I touched the glass.
-
-The reflection touched back.
-
-My eyes started watering.
-
-Not crying.
-
-Just… overwhelmed.
-
-Like seeing someone you’ve missed your entire life.
-
-Myself.
-
-The real me.
-
-The way I was supposed to look.
-
-“You okay?” Ethan asked.
-
-I whispered:
-
-“That’s me.”
-
-He chuckled awkwardly. “Uh… yeah?”
-
-“No,” I said.
-
-I couldn’t stop staring.
-
-“That’s actually me.”
-
-—
-
-I went back the next night alone.
-
-Then the night after that.
-
-Then every single night that carnival stayed in town.
-
-The old man running the attraction started recognizing me.
-
-“Back again?” he asked once.
-
-I nodded silently and handed him cash.
-
-Sometimes I stayed for hours.
-
-Just standing there.
-
-Looking.
-
-Admiring.
-
-Studying every detail of the version of me inside the mirror.
-
-The normal version.
-
-I started talking to him eventually.
-
-Not out loud at first.
-
-Just in my head.
-
-You look confident.
-
-You look strong.
-
-People wouldn’t fear you if you looked like that.
-
-Women wouldn’t glance away so fast.
-
-Children wouldn’t whisper.
-
-You could exist without apologizing.
-
-At night I stopped avoiding mirrors in my apartment.
-
-Because now I knew the truth.
-
-The mirrors at home were wrong.
-
-The funhouse mirror was right.
-
-That realization infected me slowly.
-
-Like mold growing behind wallpaper.
-
-At work I began noticing everyone’s distortions.
-
-A woman’s eyes slightly uneven.
-
-A man’s crooked teeth.
-
-A teenager’s acne scars.
-
-Tiny flaws.
-
-Tiny ugliness.
-
-Everyone was distorted.
-
-The difference was society agreed theirs were “normal.”
-
-But mine wasn’t.
-
-Why?
-
-Because people voted on it.
-
-That’s all “normal” was.
-
-Majority rule.
-
-I started getting angry.
-
-Not sad anymore.
-
-Angry.
-
-Why should I suffer because people decided my face crossed some invisible line?
-
-Why should I feel ashamed?
-
-The mirror understood me.
-
-The mirror showed truth.
-
-One night I brought Ethan.
-
-I told him I wanted to show him something amazing.
-
-Inside the funhouse, I dragged him to my mirror eagerly.
-
-“Look,” I said.
-
-He laughed immediately.
-
-“Oh my god, this one makes me look horrifying.”
-
-“No,” I whispered. “It makes you honest.”
-
-He looked at me strangely.
-
-I pointed at my reflection.
-
-“Look at me.”
-
-“You look stretched weird too.”
-
-I stared at him.
-
-My stomach dropped.
-
-“No I don’t.”
-
-He frowned.
-
-That was the first moment fear touched me.
-
-Because I realized…
-
-Other people couldn’t see it.
-
-Only I could.
-
-That should’ve stopped me.
-
-Instead it obsessed me further.
-
-I started wondering if maybe the mirror wasn’t changing appearances.
-
-Maybe it revealed inner truth.
-
-Maybe everyone secretly looked wrong beneath the surface.
-
-Maybe I was simply ahead of them.
-
-Enlightened.
-
-The carnival eventually announced it was leaving town Sunday morning.
-
-The idea terrified me.
-
-I couldn’t lose the mirror.
-
-I couldn’t go back.
-
-Saturday night, I stayed until closing.
-
-The old operator finally approached me.
-
-“You really love that mirror, huh?”
-
-I asked him where they were taking it next.
-
-He shrugged.
-
-“Few states over.”
-
-My chest tightened.
-
-Desperation clawed through me.
-
-Then he smiled oddly.
-
-“You know… some people see what they need in there.”
-
-I looked at him sharply.
-
-“What does that mean?”
-
-He shrugged again.
-
-“Lonely people see friends. Sad people see happiness. Ugly people…”
-
-He didn’t finish.
-
-I snapped.
-
-“I’m not ugly.”
+"It ain't a raccoon." He whispered.
 
 Silence.
 
-Then quietly:
+"It ain't a mountain lion."
 
-“Of course not.”
+More silence.
 
-But I saw pity in his eyes.
+Then he looked directly at me.
 
-I hated him instantly.
+"It sure as hell ain't a Sasquatch."
 
-That night I broke into the carnival after hours.
+A chill ran through me.
 
-I don’t even remember deciding to do it.
+"Earl, what happened at my house?"
 
-I just remember climbing the fence.
+He stood up slowly. The rocking chair creaked behind him.
 
-Rain pouring.
+"I left."
 
-Lights dead.
+"What?" I nearly shouted.
 
-The funhouse standing alone in darkness like some sleeping creature.
+"I left." He swallowed. "I've spent fifty years tracking animals." His voice had become almost a whisper. "Animals don't act like that."
 
-Inside, everything creaked softly.
+He turned away from me. "I'm sorry about your house."
 
-My flashlight shook in my hand as I ran to the mirror.
+“What happened at my house?” I asked.
 
-And there I was.
+He ignored the question.
 
-Perfect.
+"Don't go back there." He said.
 
-Beautiful.
+"What?" It was my house, of course I would go back.
 
-Normal.
+"That thing doesn't want people in that house." He looked back over his shoulder. "And whatever you do..." His face had gone pale. "...don't let it know you're afraid of it."
 
-I pressed my forehead against the glass.
+That was all he would say. No matter how much I pressed him.
 
-“I can’t lose you,” I whispered.
+Eventually I got back in my car and drove home. I didn't want to. Every instinct told me to keep driving. But my wife was coming home from her work trip that day. I had gotten a text from her earlier saying how excited she was to be home. To see me. I had to make sure everything was okay. Make sure I still had a house.
 
-Then something horrible happened.
+As I turned into the driveway, my stomach dropped. My wife's car was already there. She wasn't supposed to be home yet.
 
-My reflection smiled before I did.
+I jumped out and ran toward the front door.
 
-I stumbled backward instantly.
+"Sarah!"
 
-The reflection stayed still.
+No answer. I ran inside.
 
-Smiling.
+"Sarah!"
 
-My blood turned cold.
+The house was silent. The leftovers I'd left on the kitchen counter were gone. The refrigerator door stood open, half the food inside had disappeared.
 
-I hadn’t imagined it.
+My pulse started racing. I searched the living room, the guest room. Nothing.
 
-I know I hadn’t.
+I ran down the hallway toward our bedroom. Then I looked up. The attic panel was open. The two 2x4s were stacked neatly against the hallway wall.
 
-Then it spoke.
+And hanging over the edge of the opening was one of my wife's dresses. The same dress she'd been wearing in the photo she texted me from the airport that morning.
 
-Not with sound.
-
-Its mouth simply moved.
-
-Bring them here.
-
-I couldn’t breathe.
-
-Show them truth.
-
-Its smile widened unnaturally.
-
-Make them like you.
-
-I ran.
-
-I ran all the way home through the rain like a terrified child.
-
-But even back in my apartment, I couldn’t escape the idea.
-
-Make them like you.
-
-For days afterward, the thought consumed me.
-
-What if everyone saw themselves differently?
-
-What if everyone could become free from shame?
-
-Why should the world keep pretending?
-
-Why should anyone hide?
-
-I began sketching mirrors obsessively.
-
-Researching optics.
-
-Distortion.
-
-Perception.
-
-Psychology.
-
-Eventually I started building my own mirrors in my apartment using warped reflective panels ordered online.
-
-None worked perfectly.
-
-But some came close.
-
-Very close.
-
-When guests visited, I guided them toward them casually.
-
-“Look at this.”
-
-“Funny, right?”
-
-Most laughed.
-
-Some looked uncomfortable.
-
-A few stared too long.
-
-Those were the important ones.
-
-The broken ones.
-
-The lonely ones.
-
-I told them what I discovered.
-
-“You don’t have to hate yourself.”
-
-“The world taught you to.”
-
-“Normal isn’t real.”
-
-Slowly, people listened.
-
-I found others online too.
-
-Communities of people obsessed with altered reflections.
-
-Disfigured people.
-
-Insecure people.
-
-People who felt wrong in their own skin.
-
-I invited them over.
-
-One by one.
-
-We stared into the mirrors together for hours.
-
-And for the first time in my life…
-
-I belonged somewhere.
-
-No judgment.
-
-No staring.
-
-No pity.
-
-Only understanding.
-
-The movement grew.
-
-More mirrors.
-
-More people.
-
-More truth.
-
-We rented an abandoned warehouse eventually.
-
-Filled it with warped reflections from floor to ceiling.
-
-People walked in ashamed and walked out transformed.
-
-Confident.
-
-Liberated.
-
-Free.
-
-And me?
-
-I became their leader.
-
-The man who helped them see themselves properly.
-
-The irony made me laugh sometimes.
-
-The boy everyone mocked became someone people followed.
-
-But then…
-
-One night…
-
-I walked through the warehouse alone after closing.
-
-Hundreds of distorted reflections surrounded me.
-
-Everyone looked warped now.
-
-Bent.
-
-Twisted.
-
-Unnatural.
-
-And suddenly—
-
-I looked normal again.
-
-Not mirror-normal.
-
-Actually normal.
-
-Average.
-
-Plain.
-
-Everyone else looked strange.
-
-Wrong.
-
-Distorted.
-
-My stomach dropped.
-
-No.
-
-No no no.
-
-That wasn’t possible.
-
-I rushed from mirror to mirror.
-
-Same thing.
-
-Same horrifying thing.
-
-I was now the ordinary one.
-
-The boring one.
-
-Because distortion had become the standard.
-
-My reflection stared back at me with the same face I’d spent my entire life hating.
-
-Except now…
-
-Compared to everyone else…
-
-I was nothing special.
-
-The realization hollowed me out instantly.
-
-All this time I thought I wanted acceptance.
-
-But acceptance only mattered because I was different.
-
-If everyone became distorted…
-
-Then I lost the thing that made me unique.
-
-My suffering.
-
-My identity.
-
-My reflection smiled again.
-
-Before I did.
-
-And finally I understood.
-
-The mirror never wanted to make me happy.
-
-It wanted company.
-
-That’s all misery ever wants.
-
-Company.
-
-I smashed the nearest mirror with a chair.
-
-Glass exploded everywhere.
-
-But every shard still reflected me.
-
-Perfectly normal.
-
-And for the first time in my life…
-
-That terrified me more than looking broken ever did.
+Then, slowly and silently, the dress disappeared into the attic. The panel slid closed. Wood sliding on wood.
