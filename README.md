@@ -1,202 +1,339 @@
-# I thought there was a raccoon in my attic. The claw marks on my bedroom door say otherwise. [UPDATE]
-[Here's the original post](https://www.reddit.com/r/nosleep/comments/1u6i2cv/i_thought_there_was_a_raccoon_in_my_attic_the/)
+# I Keep Finding Polaroids of Myself on Dead Patients
+People at work call me the ‘Ninja Nurse’.
 
-After the encounter with whatever was living in my attic, I had two choices. I could let it have access to the rest of the house. Or trap it up there.
+I didn't hate the nickname at first. There's something almost dignified about it. Ninjas are disciplined and precise. They’re quick, and they move without being seen. If you're going to be called something behind your back, you could do worse.
 
-The thing had already tried to get into my bedroom once. I wasn't about to let it wander around the house while I slept. So I decided to seal it in.
+But I know why they call me that. And it isn't a compliment. Not really.
 
-I ran downstairs to the basement and grabbed a couple of 2x4s, my cordless drill, and a box of long wood screws.
+I wear a scarf that covers the perimeter of my head and neck completely. Over that is a facemask, the kind that leaves only the eyes exposed. And over that, a pair of large, dark sunglasses. It ensures that even my eyes aren't visible, to anyone I pass in the corridor.
 
-The entire time I worked, I couldn't stop looking at the attic panel. It sat there in the hallway ceiling exactly where it always had, looking harmless. If I hadn't seen it slide closed with my own eyes, I probably would have convinced myself none of this was real.
+Some of the older staff members nod approvingly. They see me a devout woman who prioritizes modesty.
 
-But I had seen it.
+The other staff, the ones who know me long enough, don't nod approvingly.
 
-Something had been looking down at me from that opening. And now I was about to lock it into my house.
+They remember what I looked like six months ago. Full makeup to every shift- foundation, eyeliner, the works. Hair done properly, not just pulled back and hidden. Brows plucked to something I considered perfection.
 
-I moved as quickly as I could. If the thing figured out what I was doing before I finished, it could push the panel open and come down into the house.
+And I wasn’t shy to show it off. I had just under 15,000 followers on Instagram. I did post pictures somewhat regularly. Nothing scandalous, though. Just a person who liked the way she looked and wasn't shy about it. A person who turned toward cameras, not away from them.
 
-The first board had to go across the attic panel itself.
+In their defense, my transformation happened almost overnight, with no warning or explanation. I haven’t shown my face to another human being since.
 
-I climbed the ladder and held the 2x4 flat against the ceiling. It was awkward trying to balance the board, the drill, and a handful of screws while standing eight feet in the air. I shoved the extra screws into my mouth so I could work faster.
+My friends at work have been kind about it. They support me, or they try to. But even they get uncomfortable around my one absolute rule- **I never take photographs**.
 
-The first screw bit into the wood immediately. The drill whined as it drove through the 2x4. Then resistance as it hit the rafter. “Good” I thought. The screw sank deeper.
+Not group shots in the break room, not candid snaps, not the kind of harmless phone photo you take without really thinking. I see the camera come out and I am already moving, already raising a hand to cover what is already covered. They find it strange. And I don't blame them.
 
-Above me I heard movement. A slow scrape. Something dragging itself across the attic floor. 
+I am writing this because I need someone to understand. I can't say it out loud. Not to them, not for their sake and mine. The least I can do is tell the truth somewhere, even if that “somewhere” is the internet
 
-I froze for a second. Then I forced myself to keep drilling as the sound continued. Growing closer.
+I’ve been a night shift ER nurse at A&A Nightingale Hospital for seven years.
 
-The first screw seated firmly into the rafter. I grabbed a second screw and immediately dropped it. It bounced off the ladder and disappeared somewhere below.
+A&A stands for Aldermore and Associates, a multinational corporate consultancy firm. They fund the hospital as part of their Corporate Social Responsibility. The Nightingale part refers to Florence Nightingale, the legendary nurse herself. The administration invokes her image constantly. It is plastered on the walls, referenced in orientation, and woven into every conversation. It is written in guidelines regarding workload and duty and what it truly means to serve. I used to find it inspiring. I understand now that it was a management technique. You don't complain about extra duties when the ghost of Florence Nightingale is watching you from a framed poster by the door.
 
-"Great."
+The hospital charges its patients nothing. Not a single penny, regardless of treatment required. It sustains itself entirely on Aldermore's funding and external donations. As expected, it attracts the poorest and most desperate people in the city. People who have nowhere else to go and nothing to offer, apart from their suffering and their gratitude.
 
-I spat another screw into my hand and lined it up.
+It is, genuinely, a good place to work. The pay is better than any other hospital in the city. The sense of purpose is real. I believed in it for a long time.
 
-The scraping above me continued. Closer.
+The night shift has the lowest admissions and the highest deaths. You get used to that arithmetic. You also get used to the ‘other duties’ that the hospital assigns you with.
 
-I drove the second screw home. The board tightened against the ceiling. Now I just needed one through the attic panel itself so it couldn't slide open. I positioned the screw and started drilling.
+Yes, there are a number of ‘other duties’ that come with the job, duties that nurses usually aren’t supposed to do. One of those Florence Nightingale extras that no one agreed to, but everyone performs without question. I won’t give you the full list, but I’ll tell you about the one that matters.
 
-The instant the screw punched through the panel, the entire attic hatch shook violently. I nearly dropped the drill. Something slammed into the other side. The panel jumped against the board. Another impact. Harder.
+When an unclaimed patient dies, the ER nurses go through their belongings. It is done to establish identity and contact known relatives. It sounds compassionate. In theory, it actually is. In practice, it means going through the pockets of strangers who died alone at 5 in the morning. It means looking for a phone, an ID card, or a scrap of paper with a name on it.
 
-The thing knew. It knew exactly what I was doing. I got the screw seated and climbed down the ladder as fast as I could. The pounding continued. The panel was starting to bow downward.
+We’ve run out of placeholder names for those who remain unidentified. You know- John Doe and Jane Doe? We exhausted those long ago. The nurses have started using creative names instead. Like the man who was found carrying a book on Judo. The ER nurse named him ‘Joe Doe’. Joe Doe and Judo. Juvenile humor. The patient died at midnight. The joke lived on for a week.
 
-The screws groaned under the immense pounding. Whatever was up there was a lot stronger than I wanted to think about.
+I don't find it funny. But I understand it. The work gets overwhelming, so people cope however they can. Seven years has taught me not to judge the coping.
 
-I grabbed the second 2x4.
+It was on one of those ordinary nights that the first patient arrived.
 
-The impacts kept coming.
+Two young men carried him in. He was a man in his mid-forties, clearly malnourished. Bald head, long white beard. A torn jacket over a pair of dirty white trousers.
 
-Bang.
+His symptoms were unlike anything I had seen before.
 
-Bang.
+His chest had a bluish discoloration, spreading from the sternum outward. His eyes were bloodshot, but the hue was wrong. It wasn’t the red, but a deep, unsettling blue, like ink dropped into water. He was foaming at the mouth. His fingers were curled inward, all of them, both hands. When I tried to gently straighten them, they refused to move. Not from rigor, not from resistance. Just completely, impossibly fixed. He was gasping for air with his whole chest and throat working, but producing no sound whatsoever. And every thirty seconds or so, his entire body jolted. It was neither a seizure, nor a tremor. But a violent, jerking movement, that lasted two or three seconds before it released.
 
-Bang.
+I had never seen this combination before. Not once.
 
-The entire ceiling rattled. 
+I followed protocol and initiated symptomatic management. And within thirty minutes, Dr. Cyrus Mollah appeared.
 
-I climbed back up. At that moment, I realized there was less than an inch of drywall separating me from whatever was trying to tear its way out. I could actually hear it breathing. Slow, heavy, wet.
+I considered myself lucky. Dr. Mollah is our chief physician. He operates on a schedule- morning rounds and evening rounds. That is generally where his presence in the ER begins and ends. But that night he happened to be in the vicinity, he said, and thought he would look in. He stood at the foot of the bed with his small writing pad, completely still, completely composed. He directed us with a quiet sense of authority. I had always admired that about him. The way nothing ever seemed to rattle him.
 
-I tried not to think about that.
+The patient died in just under two hours.
 
-The first screw of the second board went in cleanly.
+Dr. Mollah graciously offered to prepare the death certificate himself, a task that normally falls to the junior doctors on duty. I observed him as he wrote down-
 
-The pounding intensified.
+***Cause of death:*** *cardiorespiratory failure due to idiopathic cyanotic heart disease.*
 
-I grabbed my last screw. One chance. I lined it up and squeezed the trigger.
+I told him the symptoms seemed unusual. The presentation had been unlike anything in my experience.
 
-The screw sailed through the 2x4. Through the drywall. Through empty space. No resistance. I missed the rafter.
+He took his time to explain it to me. Cyanosis is a lack of oxygen in the blood, which accounts for the blue discoloration. The associated symptoms are the body's response to prolonged oxygen deprivation. And poor nutrition, combined with years of inadequate hygiene, can produce presentations that look dramatic on the surface. The findings may look peculiar, he said, but they make complete sense. That is, once you know what you're looking at.
 
-Something screamed. The sound exploded from above me. I almost fell off the ladder.
+He was so knowledgeable, I thought. So composed. I thanked him and went back to work.
 
-It wasn't a growl or a roar. It didn’t sound like an animal at all. It sounded exactly like the exterminator. The same exterminator who had been in my attic the day before.
+The two men who had brought the patient knew nothing about him. They had simply found him collapsed and done the decent thing. No ID in his belongings. No phone. I was about to close the jacket when I noticed something in the inside pocket.
 
-The scream echoed through the attic. Then came frantic movement. Not toward me. Away from me. Something crashed across the attic at incredible speed. Did I just trap the exterminator in my attic?
+A crumpled polaroid.
 
-I stared at the ceiling. My heart hammering. Slowly, I reversed the drill and backed the screw out. When it came free, something was hanging from the tip.
+I unfolded it.
 
-Hair. Several strands of dark hair. And a small smear of fresh blood.
+It was a photograph of me.
 
-I just stood there staring at it. The thing was flesh and blood and I had just stabbed it.
+I was in my bathroom. Brushing my hair. The photograph had been taken through the window. I could see the edge of the frame, the angle of the glass. I was completely unaware of the camera. I was just standing there in my bathroom, at what looked like early morning, brushing my hair.
 
-For the first time since all of this started, the attic went completely silent.
+I turned it over.
 
-I drove the screw in again, this time finding the rafter. The second board locked into place. Whatever was in my attic was trapped. At least I hoped it was.
+Scrawled on the back, in handwriting that looked hurried and slightly uneven:  
+*"Looks different in reel and real. How come? Need answers..."*
 
-That night I slept with my bedroom door closed and locked. I didn't sleep much.
+My hands were shaking before I realized they were shaking. I looked up at the corridor. Patients, colleagues, the gurney being wheeled toward the morgue. All of it completely normal. All of it completely indifferent to the fact that I was standing there, holding a photograph of myself. Taken through a window I had never once thought about covering.
 
-The next morning I drove to the local farm supply store. I needed a trap. A big one. The clerk looked confused when I asked for the largest animal trap they sold. He showed me something big enough for a raccoon. Maybe a medium-sized dog. Not even close.
+I pocketed it. I told no one. I finished my shift.
 
-I explained that I needed something larger. Much larger. He studied me for a moment before leaning across the counter.
+I went home and sat on my bed with every light in the apartment blazing. I read those two lines over and over until my eyes burned.
 
-"You should talk to Earl."
+Not a threat. Not even an acknowledgment that I existed as a person, one with feelings and a life and a right to privacy. Just a question. Like I was a problem to be solved.
 
-"Who's Earl?" I asked.
+That was somehow the worst part…
 
-"Old trapper lives over in the trailer park off Highway Nine." The clerk lowered his voice. "If anybody around here knows how to catch something big, it's him."
+I know what you’re thinking. Why didn’t I go the police?
 
-I got his address and immediately drove the short distance to the trailer park.
+I live in a country where policing is, to put it kindly, a joke. A joke with a long history of punching down, of harassing the very people who come forward, of making the process of reporting a crime feel more shady that committing a crime itself. And even on my best day, what evidence do I have? A crumpled polaroid found in a dead man's pocket. A note on the back. No suspect. No name. No face.
 
-Earl's trailer looked exactly like the kind of place you'd expect a man named Earl who traps large animals to live. Animal skulls hung from the porch. Wind chimes made from bones rattled in the breeze. Inside, every available surface seemed occupied by taxidermy. Coyotes. Bobcats. Foxes. A black bear head mounted above the television.
+I also know what else you are thinking. Install cameras. Set up a security system. Move apartments.
 
-The old man listened without interrupting while I explained everything. The missing food. The stolen clothes. The noises. The attic panel. The scream. The blood on the screw. When I finally finished, he sat silently for nearly a minute.
+I want you to understand my reality before you finish that thought. I am well paid for my position, better than any other nurse in the city, and I am not ungrateful for that.
 
-Then he nodded.
+But I have a brother in college. I have a mother undergoing cancer treatment. I have a father who is quadriplegic and requires a full-time paid caregiver. All three of them are entirely dependent on me. Every penny of what I earn above basic survival goes toward keeping those three people alive and functional.
 
-"Sounds like a juvenile Sasquatch."
+So I couldn’t afford a security system. And I couldn’t afford to move.
 
-I laughed. He didn't.
+The best I could do was check every lock, every window latch, every corner of every cabinet, over and over. And try to catch a few hours of rest at the hospital, because paranoia had made sleeping at home something close to impossible.
 
-"I've trapped coyotes, mountain lions, black bears. Hell, once I caught an escaped circus chimp."
+Two nights later, there was another patient.
 
-He pointed a crooked finger at me.
+It was a woman, appearing around fifty. Clearly homeless. A restaurant waiter had found her collapsed on the pavement on his way home. Same symptoms- identical, in every detail. The blue chest. The blue eyes. The foam. The locked fingers. The silent gasping. The jolting.
 
-"Never trapped a Sasquatch before though."
+Dr. Mollah appeared. He’d been in the building for another patient, he mentioned, and thought he would look in on this one too.
 
-The frightening part wasn't that he believed it. The frightening part was that he genuinely seemed to know what he was talking about.
+I watched him more carefully this time. I saw him click off the stopwatch on his smartwatch when the monitors flatlined. The patient had been with us for one hour and fifty-three minutes.
 
-According to Earl, the stolen clothes made sense. The food made sense. The human like scream. Even the size of the attic made sense. By the time he finished explaining his theory, I was halfway convinced. Or maybe I was just desperate for an explanation.
+Same cause of death on the certificate. Same wording. He offered to prepare it himself again.
 
-Either way, when he offered to remove the creature for free in exchange for keeping it, I agreed immediately.
+I went through the woman's belongings. Tucked into the folds of her clothing, was a crumpled polaroid.
 
-As I drove away I saw in the back of Earl’s truck. Large traps, metal contraptions, and canisters filled with things I’m sure I didn’t want to know about. I hoped my house was still standing when Earl was done. I drove to some hotel on the outskirts of town and barely slept.
+This one was taken inside my apartment. I was in my kitchen. Facing away from the camera.
 
-The next morning I bypassed my house and drove straight to Earl's trailer to see what he caught. I expected to find him celebrating. Maybe posing next to a giant cage. Maybe dragging a dead Sasquatch into his collection.
+On the back, in the same bad handwriting:  
+*"The nose is the first one to catch attention. The nose looks smart. That nose knows stuff. Nose knows? Nose knows! Hahahahahahahahahhahahahaha"*
 
-Instead, he was sitting alone in a rocking chair. A rifle rested across his lap. His eyes stared blankly across the yard.
+I found the waiter who had brought her in. He was a young kid, clearly shaken, clearly there because he thought it was the right thing to do. I looked at him carefully for a long moment. He knew nothing. You could tell just by looking at him.
 
-When I called his name, he jumped. Actually jumped. The man who hunted bears looked terrified.
+I said nothing to anyone.
 
-"Did you catch it?" I asked.
+The pattern repeated every two to three days. Same symptoms. Same two-hour window. Same death. Same certificate. Dr. Mollah had stopped making excuses for his timing. I overheard him telling a junior doctor about a recent surge in cyanotic heart disease cases in the city, something he intended to research properly. He suggested that the ER nurses could serve as data collectors, possibly even co-investigators in the study. He glanced at me as he said it.
 
-For a long moment he didn't answer. Finally he shook his head.
+His gaze used to give me confidence. Now it made my skin crawl, in a way I couldn't articulate.
 
-"No."
+I tried to delegate the identity-checking to another nurse, but that wasn’t possible. I was the senior nurse on the block. Everyone else was already past capacity. It came back to me every time.
 
-"What was it?" I asked.
+The third polaroid showed me checking my front door. It was taken from outside, through the gap under the door or through the letterbox, I still don't know which. I was checking the lock for what must have been the fifth time that afternoon.
 
-His grip tightened on the rifle.
+On the back it said:  
+*"Have you seen how a man dies, for the sake of your pretty eyes? Yes you do. Yes you do... YES YOU DO!"*
 
-"I don't know."
+The fourth one was taken from across the street, while I waited for the hospital bus in the early evening. I was standing on the pavement in daylight, surrounded by people. My stalker was across the street, holding a camera, and I had no idea.
 
-The words hit harder than I expected.
+The note on that one read simply:  
+*"Lips. Lips. Lips...."*
 
-"You don't know?" I pondered. “Well, did you see it?”
+Repeated fourteen times. I counted.
 
-"It ain't a raccoon." He whispered.
+By the time the fifth patient died, I had been living in the hospital for two days. Sleeping in the nurses' room. Eating in the cafeteria. Never leaving the building. My colleagues didn't ask. They were too buried in their own work to question it. I think they assumed I was pulling extra shifts for the money. I let them think that.
 
-Silence.
+The fifth polaroid was taken in the ER. I was dozing in my chair between patients, head tipped back slightly, completely unaware.
 
-"It ain't a mountain lion."
+The back of this one said:  
+*"That face. Want to keep seeing that face. Will do anything for it. Anything. Anything... ANYTHING!"*
 
-More silence.
+He had been standing a few feet away from me while I slept. In the building I had retreated to, because I thought it was safe. He had stood there, in the middle of a working hospital, photographed me sleeping, and walked out without anyone noticing a thing.
 
-Then he looked directly at me.
+That was the one that broke me.
 
-"It sure as hell ain't a Sasquatch."
+I caught Dr. Mollah as he was leaving the ER that night. I started to explain. He didn't let me finish.
 
-A chill ran through me.
+Such matters were outside his jurisdiction, he said. He recommended I contact the hospital's Code of Conduct hotline. He gave me the number and walked away.
 
-"Earl, what happened at my house?"
+I called it from the nurses' room at half past two in the morning. A man answered. His voice was warm, measured, and professionally calm. The kind of voice that is specifically trained to make people feel heard. I don't remember everything I said. I know the call lasted sixteen minutes, because I checked afterward. I know most of it was me talking, barely coherent. I know that my tone probably wasn’t professional. And I know that I was getting everything out, in whatever order it came.
 
-He stood up slowly. The rocking chair creaked behind him.
+He didn't interrupt me. He didn't redirect me. He just listened.
 
-"I left."
+When I finally ran out of words, he said:
 
-"What?" I nearly shouted.
+*"HR block. Top floor. I'll be there in an hour."*
 
-"I left." He swallowed. "I've spent fifty years tracking animals." His voice had become almost a whisper. "Animals don't act like that."
+It was three in the morning.
 
-He turned away from me. "I'm sorry about your house."
+I went there anyway.
 
-“What happened at my house?” I asked.
+The HR block was empty. Dark corridors, locked offices, the particular silence of a building that isn't meant to be occupied at this hour. Except for one light at the far end of the corridor. And a voice I recognized from the phone, telling me to come in.
 
-He ignored the question.
+The man introduced himself as Rafiq. He wore a pale shirt with the sleeves rolled exactly twice. He looked barely thirty, but he carried himself with the settled authority of someone who knows his place. His Staff Pass looked different than mine. It identified him as an Aldermore employee, not a hospital one.
 
-"Don't go back there." He said.
+He told me to take a seat. He asked to see the polaroids. He examined them for five full minutes without speaking. Then he looked up.
 
-"What?" It was my house, of course I would go back.
+*"So the patients who carry these polaroids… they all present similarly, you say?"*
 
-"That thing doesn't want people in that house." He looked back over his shoulder. "And whatever you do..." His face had gone pale. "...don't let it know you're afraid of it."
+*"Not similarly. Identically. Symptoms unlike anything I've seen in seven years. The bluish chest, the blue eyes, and the fingers… "*
 
-That was all he would say. No matter how much I pressed him.
+*"Fingers curled inward? Foaming at the mouth? Gasping without sound? Full-body convulsions at irregular intervals?"*
 
-Eventually I got back in my car and drove home. I didn't want to. Every instinct told me to keep driving. But my wife was coming home from her work trip that day. I had gotten a text from her earlier saying how excited she was to be home. To see me. I had to make sure everything was okay. Make sure I still had a house.
+I stopped.
 
-As I turned into the driveway, my stomach dropped. My wife's car was already there. She wasn't supposed to be home yet.
+*"Yes, exactly ! But how did you…"*
 
-I jumped out and ran toward the front door.
+*"You didn't finish your thought, young lady. Was there something else you wanted to tell me? Something else about these patients?"*
 
-"Sarah!"
+I steadied myself.
 
-No answer. I ran inside.
+*"Well… umm… the gender varies. We’ve had three men and two women so far. All of them appear to be…"*
 
-"Sarah!"
+*"Aged between forty and fifty? All of them coming from the slum? The one in the northern part of the city?"*
 
-The house was silent. The leftovers I'd left on the kitchen counter were gone. The refrigerator door stood open, half the food inside had disappeared.
+The room felt very still.
 
-My pulse started racing. I searched the living room, the guest room. Nothing.
+*"Yes,"* I said. *"But I never told you…”*
 
-I ran down the hallway toward our bedroom. Then I looked up. The attic panel was open. The two 2x4s were stacked neatly against the hallway wall.
+Rafiq stood up.
 
-And hanging over the edge of the opening was one of my wife's dresses. The same dress she'd been wearing in the photo she texted me from the airport that morning.
+*"You've had a long night. Get some sleep. Your problem will be taken care of. You have my word."*
 
-Then, slowly and silently, the dress disappeared into the attic. The panel slid closed. Wood sliding on wood.
+He smiled. It was a warm, genuine smile. He then walked out of the cabin, at a pace that suggested he had somewhere more important to be.
+
+I sat there for a long time after he left. Something kept bothering me.
+
+Not that he knew the symptoms before I described them. Not that he knew the demographics before I mentioned them.
+
+But the fact that he knew where the patients were coming from. I never gave him that. I just couldn't do it, even if I wanted to. Because I never had that information. In fact, no one in the hospital has that information, as far as I know.
+
+Looking back, I didn’t know a lot of things…
+
+The month that followed was, genuinely, a breath of fresh air.
+
+No more polaroids. The patients with the strange symptoms kept arriving, but less frequently. We only had three in thirty days that followed. Dr. Mollah quietly ensured they were routed to a different block, one I was not responsible for. From a distance I could still see him, standing at the bedside with his writing pad and his stopwatch. But he no longer looked at me while he did it.
+
+I started sleeping at home again. I started feeling like myself again, or something close to it.
+
+I wish that was the end of the story.
+
+Instead, it lead to the part that I can’t share with people around me.
+
+It was the season of Eid. The hospital had given most of the staff an extended holiday, retaining only a skeleton crew for essential services. My roster fell on the second night.
+
+It was just me and a duty doctor, who had been yawning since the moment he arrived. My block was, for the first time in a long time, genuinely quiet. A few patients were in their beds, none in critical condition. The kind of night that feels like the hospital is exhaling.
+
+The doctor excused himself for a coffee break sometime after midnight. He soon disappeared through the double doors.
+
+I was considering a coffee break myself. The quiet was making me drowsy.
+
+That’s when the ER door slammed open.
+
+Something barely resembling a human stepped inside.
+
+It was a man, or at least it used to be one. He was bare from the waist up. His jeans were covered in dried blood, brown and stiff, not fresh. He was drooling from the corner of his mouth. His chest was indrawing sharply with every breath, the effort of it visible across the whole ribcage. He was making a sound in his throat. Not a groan, not a word, but something more animal than either.
+
+His eyes were bloodshot. But the color wasn't red. It was green. A deep, flat, impossible green.
+
+His chest had a large irregular patch of the same color, spreading from the sternum. Beneath the skin, I could see the outline of vessels- dark green and prominent, tracing a path toward a pulsating area at the center of his chest. I could see the outline of his heart through the surface of his skin. It was still beating, and everything surrounding it was the wrong color.
+
+His fingers curled and uncurled randomly with every step. His limbs were twitching, like a signal firing without a target.
+
+He staggered towards me. Every step looked like the last one he would manage, looking like he was about to fall.
+
+But he never fell.
+
+And through all of it, through the drool and the growling and the green, he was trying to smile at me.
+
+*"Reel and real,"* he said. *"Different indeed. Wanted answers. I just wanted some FUCKING answers."*
+
+I screamed. I don't remember deciding to. It just came out of me, sharp and involuntary. I was already on my feet, already stepping backward.
+
+He stopped.
+
+*"Is that fear?"* he said. *"Or is that care?"*
+
+My right hand picked up a scalpel from the nearest Mayo stand. I braced myself with the only weapon I could find.
+
+He placed his hand on his chest, over the pulsating outline.
+
+*"Don't worry. This one's different. Takes its time. Like a body decomposing while the mind is alive."* He laughed. It was sudden, genuine, and hysterical. *"What a joke."*
+
+My back had found the corner of the room before my mind realized it. I had nowhere to go. I clenched the scalpel as tightly as I could.
+
+*"The eyes,"* he said quietly. *"The ears. The nose. The lips…"*
+
+Then he vomited. A pool of dark red blood hit the floor and spread. He looked down at it, chuckled, and raised his eyes to mine. Blood still running from the corner of his mouth. Green eyes fixed entirely on me.
+
+*"THE FACE !"*
+
+He ran at me.
+
+Not staggering, but running. Frantic and lurching, twisted fingers reaching forward, green eyes wide, entirely focused on me. I pressed myself into the corner and screamed with everything I had.
+
+His body hit me with its full weight.
+
+I noticed it was less weight than I expected, and getting lighter. He slid against me and dropped down slowly, barely conscious, barely holding his eyes open. His breathing had changed. It was shallower, getting further apart.
+
+The weight made be crumble to my knees. He grabbed my elbow with his right hand, but the grip was much feebler than I expected. His body jolted for a couple of seconds.
+
+He looked up at me. At my face, to be exact. Just looked, for a long moment, with something in his expression. Something that I cannot name and do not want to.
+
+*He gasped.*
+
+*“Finish… it… please…”*
+
+In one movement, I drove the scalpel into the pulsating outline of his heart. I don’t know what came over me, and I don’t know where it came from.
+
+His eyes closed. A single tear ran down the side of his face.
+
+He was smiling…
+
+I only remember fragments of what came after.
+
+Staff flooding the block. Voices that I recognized. Dr. Mollah arriving within minutes, as though he’d been waiting nearby. Someone putting a hand on my shoulder. The floor tilting slightly. And then, as my vision began to narrow and darken at the edges, I saw Rafiq standing at the far end of the ER.
+
+Then there was nothing.
+
+The official account read something like this: a potentially schizophrenic patient, also suffering from cyanotic heart disease, arrived at the ER in a state of acute delirium. He attacked the duty nurse without provocation. The nurse defended herself. The patient died despite the hospital's best efforts.
+
+An external police investigation confirmed it. The security guard had been asleep on the job and was terminated. The duty doctor had stepped out for a coffee break and was therefore not present. The ER security cameras experienced a technical malfunction, beginning approximately four minutes before the patient's arrival. It was an open-and-shut case, which was closed in a week.
+
+I read through the clinical notes. There was no mention of green discoloration anywhere in the documentation. Description of the deceased read like a textbook presentation of cyanotic heart disease. **Possible undiagnosed psychiatric condition**, typed in bold. It also said that that a small amount of blood was vomited following the stab wound. The cause of death, signed by Dr. Cyrus Mollah, was precisely what you would expect it to be.
+
+A certain Mr. Rafiq had signed the document, as an *unbiased witness* to the events.
+
+There were patients in other blocks of the ER that night- the ones resting in beds in their beds, and the ones who had been awake. The ones who had seen the green and had rushed me after the attack. But I couldn’t find a single one of them, never again. They were poor people, possibly homeless. Unregistered and untraceable. Gone with the wind, as people from that part of the city tend to be.
+
+There were two nurses who had been staffing the adjacent blocks that night. I was told that they resigned within the week, citing unsafe working conditions. I tried calling them several times. Their phone numbers are no longer in service.
+
+I was given thirty days of paid leave, full salary, no questions asked. Not once in those thirty days did anyone contact me to take a statement.
+
+The hospital took care of it, I was told…
+
+That is why I cover my face. And that is why I don't take photographs.
+
+I have theories about all of it. About what was really happening in that hospital, about what the patients were dying from, about what Aldermore is actually using that building for, about what Rafiq's role in all of it truly is. I would like to discuss those theories with someone, I really do. Been carrying them alone for six months, and trust me, they are getting heavy.
+
+But I really have to go now. My shift starts soon, and the workload hasn’t gotten better.
+
+If anything, it has been increasing steadily over the past few weeks, ever since the epidemic of cyanotic heart disease has returned to the city.
+
+But this time, the patients are no longer presenting with blue discoloration.
+
+They are presenting with pitch black.
+
+And they are no longer taking two hours to die.
+
+The current average is twenty-two and a half minutes.
+
+I know the exact figure, thanks to Dr. Mollah. He still times every single one of them, right in front of me.
+
+He stopped hiding it a long time ago.
+
+ 
