@@ -1,12 +1,50 @@
-# I think it’s still watching me
-It was around midnight, and I had to go run some errands, which is strange, since I usually don’t have to run errands by that time, but I have forgotten to run that day’s errand. I went in my car and started driving, planning to go to my local 24/7 store, but as I’m driving down the neighbourhood, I started feel as if I was being watched. I quickly brushed it off since it is probably just my nerves, I tend to get pretty nervous around midnight. 
+# I found a voice memo on my phone recorded at 3:14 AM. I was fast asleep.
+​I live alone. Or at least, I thought I did.
 
-After a few minutes I arrived to the store, as I was getting out of my car, I saw a figure of a man who was about 5’10 standing in the parking lot, it was hard to see him in the dim light. I glanced at the man, thinking that he was probably just standing there for some reason, since people in my area tend to loiter. I quickly locked my car’s door and walked into the store. I grabbed a cart and I walked through some aisles to get my basic necessities, food, ingredients to make food, water, paper towels..
+​My apartment is on the third floor of an old brick building. Creaky floorboards, drafty windows, radiator heat that clanks like something trying to break out of the pipes.
 
-As I was walking out of the aisle that I was in, to get to the self checkouts, I saw that same man that I saw in the parking lot previously. I was able to take a quick glance at him, he had dark brown shaggy hair that almost black, pale skin, a black hoodie, dark jeans, and black shoes. He had a mask covering his entire face, which was weird, but whatever. I told myself that he was probably just shy and didn’t like showing his face.
+​This morning, I woke up around 7:00 AM. Everything seemed normal until I unlocked my phone to check my notifications and saw a badge on my Voice Memos app.
 
-I walked out of the store with my groceries, and put them in the back seat of my car. I got into my car and started driving home, there was nobody else on the road, I was the only one. It was midnight, who else would be up at this hour? I stopped at a stop light, and as I was waiting for the light to turn green, I heard three faint taps on my back windshield. I looked into my rear-view mirror, and I didn’t see anything out of the ordinary, I felt a bit scared, but my mind went back to the stop light that had just turned green. I continued to drive my way home, thinking about the tapping I had just heard before. Once I was in my neighbourhood, I heard the faint three taps on my back windshield again, I proceeded to look into my rear-view mirror. I saw nothing. I thought it was pretty weird, but I didn’t see anything out of the ordinary, so it must be nothing.
+​I almost never open that app. When I did, I saw a new file saved at 3:14 AM. The title was automatically generated: Bedroom – 18 minutes, 40 seconds.
 
-A few minutes later I arrived at my house, I stepped out of my car and grabbed my bags of groceries and locked my car doors. I grabbed the keys to my house from my pocket and unlocked the door. And that’s when I heard a faint whisper behind me, whispering, “You’ll regret being so oblivious.” In a masculine voice.
+​I figured I must have bumped the screen in my sleep or captured myself snoring. I plugged in my headphones, leaned back, and hit play.
 
-That was the last thing I heard before I fainted. When I woke up, I was on my couch, and the door to my house was still open. I checked the clock, and it read ‘6 AM’. I got up to close the door, but the door closed by itself, and suddenly, I heard noises coming from the basement.
+​The Recording
+
+​00:00 – 03:45: Just heavy, rhythmic breathing. My breathing.
+
+​03:47: The sound shifted. The rustle of my blanket stopped. A second, much lighter noise emerged from the darkness of my room—a wet, dragging sound, followed by the slow, deliberate click-clack of bone scraped against hardwood.
+
+​Click... drag... click... drag...
+
+​Whatever it was, it wasn't walking on two legs. It was crawling out from beneath the low frame of my bed.
+
+​07:10: The dragging stopped right at the edge of my mattress. A long, suffocating silence filled the audio. Then, a second breath started. It was shallow, rasping, and smelled—I know this sounds insane, but listening to it made my throat burn—like old copper and stagnant water. It was hovering mere inches from the microphone. Inches from my ear.
+
+​10:15: The sheets rustled softly. The audio picked up a wet, sickening peeling sound, like wet paper being pulled away from drywall. It was the sound of skin unsticking from the side of my face. Something had been leaning its head directly against mine while I slept.
+
+​13:00: The thing began to whisper. It wasn't a language I recognized—just a wet, clicking rattle from deep in a dry throat. It spoke continuously, inches from my ear, for five straight minutes. The rhythm was hypnotic, almost like a lullaby, but every few seconds, the pitch would drop into a ragged, silent laugh.
+
+​18:10: The whispering stopped abruptly. A tiny, metallic tap echoed as my phone was lifted slightly off the nightstand. Then, a voice spoke right into the microphone—loathsome, thick with saliva, and unnaturally close:
+
+​"Don't blink tonight. I like it better when the eyes are open."
+
+​This Morning
+
+​The audio cut off.
+
+​I sat at my desk, shivering so violently I couldn't hold my breath. I walked slowly back into my bedroom, knelt down, and looked under the bed.
+
+​The dust under the box spring was wiped completely clean in a wide, jagged path. Dragged across my floorboards were thin, black streaks of a grease-like residue that smelled faintly of iron.
+
+​And on my pillow, right next to where my head had rested... was a deep, wet depression in the shape of a tiny, hairless face.
+
+​I grabbed my keys, bolted out of the building, and ran to a brightly lit coffee shop three blocks away. I sat near the window, surrounded by people, trying to convince myself I was safe.
+
+​Then, five minutes ago, my phone vibrated in my hand.
+
+​A notification popped up from Voice Memos. A new 5-second audio file had just been created.
+
+​The title: Under Your Chair.
+
+​The waveform on the screen shows a silent flatline... except for the very last second, where a jagged, chaotic spike fills the frame. And as I sit here staring at it, I can feel a faint, icy draft brushing against the back of my ankles.
