@@ -1,112 +1,200 @@
-# I went back to my hometown after 15 years. I heard my dead mother inside the house
-I left Mouran fifteen years ago and promised myself I would never come back
+# A Table For Six For A Family Of Five
+It was supposed to be a perfectly normal family outing: my mum, my dad, my sister, my baby brother, and me.
 
-Most people outside northern Tunisia have never heard of the town, and honestly, I wish I was one of them
+We were a middle-class family living in Southern Manchester in the 90s, in a classic suburban home in the Heatons. I stayed with my parents and siblings, never really moving out of the house or neighbourhood while living with them. Usually, my mother woke my sister and me for school, we’d get breakfast, and walk to the nearest school district we were enrolled in.
 
-Mouran sits beside a forest so dense that sunlight barely reaches the ground. Even during the day, the trees look dark. Dead. The people there avoid the woods after sunset, and children are taught very young never to follow voices coming from between the trees....Especially familiar voices
+The routine was normal: wake, eat, school, and home. Seldom would we go out as a family to a shopping center, or the piers, where we’d have a relatively good meal of either fried food, fast food, street food, or mum would just propose to cook at home, to all our dismay.
 
-I learned that lesson too late
+But on one spring evening in February, my dad came home with a big grin; the man rushed to my mother, who was cooking in the kitchen with Troye sitting on a high chair, devouring colored blocks bigger than his mouth.
 
-My little sister Lara disappeared there when she was nine years old
+“We won! We won the free dinner!” Dad said,
 
-They never found her body
+“Oh my god—how is that possible?!”
 
-Only blood
+Dad shrugged, he chuckled to himself before shoving an envelope into Mum’s hands, “I don’t know either. I called them earlier, and they asked me a bunch of questions about our food preferences. He had a lot of questions about allergens, but I reassured him nobody was sensitive to anything.”
 
-After that night, the entire town changed. People stopped speaking openly around my family. Some looked at us with pity. Others with fear. And when I turned sixteen, several people came to our house and told me something I still remember word for word:
+“Oh goodness, this is great news! Orago is extremely exclusive, I hear those snooty shallots in the Revlon counter constantly talk about months-long bookings.”
 
-“Leave Mouran. Or disappear like the others.”
+Mum held the letter, reading the print on the page, as I tried to keep my attention solely focused on my homework on the dining table. Her grin faltered slightly as she read deeper into the print. “Oh, dinner is scheduled in April.” Her smile was plastered back on as she looked up at Dad before continuing to cook.
 
-So I left
+I had practically forgotten about that whole conversation until April of that year, when I got home from school disheveled from playing soccer with my schoolmates. Mum wasn’t pleased, saying I should’ve gone home earlier, and cleaner, before telling me to get into the bath and wear the outfit on my bed she picked out.
 
-I spent years trying to build a normal life far away from that town. I buried the memories as deeply as I could. I stopped talking about Lara. Stopped talking about the forest
+‘Allen, to the bath—now!’ Her voice lingered.
 
-But yesterday, I received a letter.
+The outfit looked brand new, or I just never wore it enough to notice, as vests weren’t really my thing even then, especially when I wore them over a shirt and under a coat.
 
-No address
+Time practically moved faster than it usually did when your family is in a frenzy, until we found ourselves in Dad’s car on the way to Spinningfields; that part of the city looked mesmerizing from inside the car, we only ever passed by only to get to another point before, but to really see the tall skyscrapers, and commercial buildings in its peak bustling hour feels different when you knew the destination was exactly there.
 
-No sender
+“You’d better be on your best behaviour when we get there,” Mum said,
 
-Inside was one sentence written in black ink:
+Claire sank into her seat, unhappy with how she looked in her frilly emerald dress. “Tell that to Ivan”
 
-“They’re still waiting for you.”
+“I only fight back when you start it.” I retorted, leading to Mum having to tell us both off while Troye sat happily in his car seat in a small but adorable suit.
 
-Six hours later, I was driving back toward Mouran with Lara’s necklace wrapped around my hand so tightly it hurt
+The car stopped in front of a garden-like driveway, where men in velvet blue uniforms waited by a golden revolving door near high paned windows.
 
-The town looked exactly the same when I arrived.
+After Dad handed the keys and claimed a ticket from the valets, we were led by an escort up to the restaurant, where my sister and I ogled at the entrance; you could see the giant aquarium from the outside, while the nearby wall lit up with the establishment’s name and logo—Orago’s
 
-Fog between the streets
+A waitress led us in after the maitre d’ had a brief exchange with my dad. Claire looked just as mesmerized at the restaurant as I was, never having seen anything like it before; we were used to the yellow and red, ketchup and mustard type of interior from fast food places, so to see a fancy restaurant was a brand new experience for us.
 
-Dark windows
+She led us to a darker spot in the restaurant, which had a Japanese screen keeping privacy between the tables. Our area had 5 five seats and a high chair surrounding a round table, topped with a tablecloth that had one too many layers forming swags around the table. I rushed to sit near the window, seeing the entirety of London’s skyline from the view. Claire was pissed she didn’t get to it first, but couldn’t do much about it; first-come, first-served, she knew the rules.
 
-Silent people watching me from a distance.
+“Please get comfortable, I will be back with refreshments and your food cards.” The waitress said,
 
-Nobody smiled when they recognized me.
+Mum was seated beside Dad, while Claire was seated beside me, and Troye was seated in his provided high chair beside Mum. Mum waited for the waitress to be fully gone before pulling out a digital camera to start taking photos of everyone and everything around her. “Meredith is going to fume seeing these photos.” She said, jeering behind the camera.
 
-An old woman near a grocery store actually whispered a prayer after seeing me step out of the car
+“One, two, three, four…five?” Dad mumbled to himself.
 
-I tried ignoring it
+“Honey, what are you doing?”
 
-I parked outside my childhood home just before sunset. The house looked abandoned even though I knew nobody had lived there in years
+“There are five seats.”
 
-For a long moment, I just stood there staring at it.
+“Yeah, because there are five of us.” Mum chortled.
 
-That’s when I heard laughter behind me.
+“No, I already told them Troye needed a highchair instead.”
 
-A little girl laughing somewhere inside the forest.
+“Well, this table was probably made for five.”
 
-My blood turned cold instantly because I recognized it
+Dad shrugged, letting Mum’s words brush off his thoughts as we all waited patiently for the waitress to come back. She did, not long after, with a cart full of drinks and menus. She asked Claire and me if we wanted sodas or juice. I had a Coke while she had sparkling apple juice; she gave Troye his own small cup of orange juice.
 
-Lara
+She turned to Mum and Dad, asking which wine they preferred; “We’ll have the red.” Dad said, as Mum nodded.
 
-I hadn’t heard that laugh in fifteen years, but I knew it immediately
+The waitress spoke a bunch of wine jargon, talking about how old the wine was before uncorking the bottle in front of us, causing Claire to jolt. “That’s scary. I don’t think I like wine.” She said,
 
-The sound came again
+“More for me, and Troye.”
 
-Closer this time
+She made a disgusted expression as the waitress began to fill the wine glasses on the table with wine, first Mum’s, then Dad’s, then the third wine glass by the vacant seat.
 
-Then I heard a voice whisper from between the trees:
+My parents paused, the drink barely touching their lips as they looked at her. “Um, sweetie, who’s—” My Mum chuckled before putting the drink down, “Who is that supposed to be for?”
 
-“Kath… come play with me.”
+The waitress glanced at them; her polite eyes hadn’t wavered. “Your guest, of course,” she said, smiling before walking away with the beverage cart.
 
-I dropped the necklace
+Mum and Dad stared at the extra wine glass.”I—I’ll drink it.” Mum said, brushing off the tension with an outstretched hand.
 
-Something moved in the darkness between the trees. Tall. Wrong. Not human
+“No, just leave it there,” Dad said,
 
-I backed away toward the house so quickly I nearly fell
+Claire was too engrossed in the menu, reading the names off the food card, while Troye suckled on the sippy cup full of orange juice. “Claire.” I held my sister’s arm as she brushed me off, annoyed.
 
-The laughter stopped immediately
+“What?”
 
-Everything stopped
+“Did you put the juice in his bottle?” I asked,
 
-Even the wind
+“What are you talking abou—” She paused as we both watched our baby brother, not noticing the fallen plastic cup that was once filled with orange juice roll under the table.
 
-Then I heard footsteps inside the house behind me.
+“What on earth did you two do?!” Mum said, seeing Troye’s baby bottle full of orange juice.
 
-Slow footsteps
+“It wasn’t me!” We said in unison,
 
-Dragging across the floor
+“Why would you do this? Who did this?!” Mum took Troye’s orange bottle as he began crying.
 
-At first, I thought someone had broken in.
+The table was a bustling cacophony of familial exchange; for a moment, we forgot we were in a fine dining establishment. Mum was scolding us, Troye was sobbing loudly, Dad drank Mum’s wine, while Claire and I tried to convince her we were innocent.
 
-But then a woman’s voice called my name softly from the other side of the front door
+“Enough!” She snapped, silencing Claire and me.
 
-“Kathrine…?”
+Mum took Troye from his chair to calm him from crying, but even within her arms, he bawled, until she paced walking around the table, whispering pleas for him to quiet down before we get kicked out of the establishment. People were beginning to stare, their darkened eyes glared at our table, before whispering to themselves, and the empty seats beside them. Dad sighed, taking another sip from Mum’s glass.
 
-I stopped breathing
+I furrowed my brows.
 
-Because I recognized that voice too
+All of the tables had one empty seat, one singular seat that no one occupied.
 
-My mother
+Troye stopped crying as Mum walked near the empty seat at our table; he laughed, his small hands motioning at the sixth seat. Mum was too relieved to even notice how odd the baby reacted, as she sat him back down in the highchair to rest her feet. Troye didn’t take his gaze away from the empty seat, clapping and laughing while kicking his feet.
 
-The problem is…
+“You drank all my wine?” Mum said, looking exasperated at Dad as her glass sat empty beside her plate.
 
-my mother has been dead for seventeen years
+“Yeah, there’s another glass right there anyway—” He paused,
 
-I should have left then
+The 3rd glass was empty too.
 
-Instead, I opened the door
+“You drank the other one too?!” Mum said, trying too hard not to raise her voice, but Dad couldn’t muster up a response to even defend himself as he looked at the 3rd empty glass.
 
-And I think that was the biggest mistake of my life
+“N—No, no I didn’t—” He said, barely forming a coherent sentence.
 
-Part 2 if anyone wants to know what I saw inside the house.
+Mum sighed, “You’d better pray that girl brings back the whole bottle.”
+
+The waitress returned, but not with the bottle. She carted in a whole bonsai tree in a tray before placing it in the middle of the table; the tree had small pockets of food dangling from the branches. Each of us tried it, taking a bite of the round, bubble-sealed food.
+
+It was fun, I wasn’t sure what to make of it, actually. The shell felt like a thin layer of sensitive plastic, and as I popped it into my mouth, a burst of flavor coated my tongue—floral, yet savory and sweet at the same time. Claire said hers tasted like lavender mint.
+
+“So like laundry soap? You’re eating soapy sacks, sis?” I asked, barely containing my laugh as she shoved me.
+
+The appetizers arrived one after another, each more ridiculous than the last. I couldn't understand why anyone would pay so much money for food that looked like science experiments, but every time I reluctantly tried the food, it somehow tasted exactly like something familiar. From peeled onions resembling a tapeworm on the plate, drizzled in olive oil and breadcrumbs, to deconstructed burgers, each component of a burger is turned into a ball before being pierced with a stick.
+
+The ‘Nugget’ was the strangest so far; the appetizer was a barely formed duck embryo housed inside thin crispy strings forming a nest, blanketed on a toasted wonton skin. Its eyes were pitch black, and from what you could make out was the head still barely separating from the rest of its body.
+
+Claire looked as though she was about to burst into tears when I turned to her. She looked at the duck embryo with pity. “I…I can’t eat this.” She mumbled.
+
+Mum looked perplexed before Dad spoke; “It’s good to try new things, Claire, you can’t appreciate what you don’t discover.”
+
+Dad ate a whole nest as Claire looked mortified. “Dad, don’t eat it!”
+
+“Honey, I… I think we should just return this; it doesn’t look appetizing.” Mum said,
+
+“Nonsense! It’s fine, I’ll eat it.”
+
+Dad practically finished the whole plate as we watched him eat all eight nests. The three of us sat in silence watching him eat before he gulped down the whole glass of water in one breath. Troye didn’t understand what was happening on the table, and quite frankly, we didn’t either; although he was more particularly occupied by the empty seat opposite to him, the empty plate with untouched utensils looked proper,
+
+Ready.
+
+Waiting.
+
+Troye giggled again, kicking his feet under the table, as the waitress came back, she took the used plates before setting down six different plates; Claire and I let out a sigh of relief, realizing the food finally looked normal. Mum had what looked like chicken alfredo, Claire’s plate was a plate of lasagna, Troye had a bowl of tepid mushroom soup, and mine was a classic spaghetti with a palm-sized meatball on the top.
+
+Dad had a plate of what looked like steak and potatoes; the potatoes looked mashed with gravy sauce on top, but the meat looked… red.
+
+“Richard, that’s too undercooked, we need to return—”
+
+Mum paused, as she watched Dad eat the undercooked steak; it bordered between rare and raw as each slice he took to put into his mouth juiced with red liquid, too sheer to be blood, but too red to be water. He happily ate his meal, pairing it occasionally with the mashed potatoes before turning to us.
+
+“Go on, it’ll get cold.” He gestured at our food before we too took bites of our own meals.
+
+Mum occupied herself with her food, slightly shifting on her seat to move away from Dad, while Claire helped Troye eat his soup, taking bites off of her own meal occasionally. I ate my own meal as well, though I was better off eating nothing at all, as my taste buds barely registered the food; my mind was occupied with the sixth plate between Dad and me.
+
+My fork balanced the giant ball of beef, as my eyes trailed towards the curling heat steaming from the plate a few feet away; the dish looked like a plump pouch of sheer flesh, resting on top of an orange sauce. I jolted back slightly, seeing a seam tear open—a clean, straight slice, before small intestines began to pool out along with a soup of thick cream liquid.
+
+I checked the food card I set aside, and right on the main course category, my eyes settled on ‘The Babe’; a pound of steamed milk-fed baby goat intestines cooked with mushroom roux, wrapped within the goat mother’s flavorful rumen, served with the in-house citrus sauce.
+
+“M-Mum…” I muttered under my breath. I wasn’t sure if my mother heard me the first time, as I was about to call attention to the sixth plate, but the meatball on my fork finally slipped off as it rolled down onto the floor. A wet slap hit the ground before the sphere disappeared beneath the table.
+
+I felt a heated glare against the skin of my nape, when I turned I saw Dad’s eyes towards me, blank—empty as his mouth opened to speak; I caught a glimpse of his bloody teeth, the once white teeth he meticulously maintained, and encouraged Claire and I to do the same; the man who emphasized on the importance of hygiene was a far cry to what I was seeing now.
+
+“Put it back on your plate. It’s rude to make a mess.” Dad said, as the red juices from his meal lined the edges of his mouth.
+
+I got off my chair reluctantly, before getting to my knees; lifting the layers of tablecloth, I was met with a darkness bordering on pitch black. I squinted, trying to make out where the ball of meat could have been until… I was staring right at it; in front of my face was the meatball clasped within an outstretched hand towards me.
+
+My throat practically clamped shut as my breathing halted, my own hand uncurled by itself right under it, as it handed it to me. My eyes never left the dark; it never left the sight of the aged, greyish-pale hand, with nails too long and dull. I felt my hand tremble as the meat slopped against my palm, the black shadow or outline I had been looking at for what felt like minutes had moved, and that’s when I finally saw light peek from the other side of the table.
+
+The heart in my chest dropped; through the small hole of torn fabric, I saw Troye’s feet dangling, wearing only one shoe, as the other had already fallen under the table; he was inching closer and closer; the only thing keeping him held onto the seat was the harness holding him to the chair.
+
+Dropping the meatball, I practically jumped from under the table before rushing towards Troye, unhooking the harness, and carrying him into my arms. The baby began to cry as I held him close. “There’s something under there, w-we have to leave!” I practically yelled out, I didn’t care if I was drawing attention from other diners.
+
+“What are you talking about? Allen, sit down!” Mum said,
+
+“No! We have to leave, we have to go now!” I said,
+
+Dad’s face hadn’t changed; he wasn’t even reacting to a thing I was saying. 
+
+Meanwhile, Claire was at my side as she cooed to calm Troye. Mum was trying to get a hold of the situation, but as she stood, the table began to shake, while Dad sat on his own, unmoving in his seat. Every unfinished food on the table began to topple to the floor as Mum backed against the wall, holding her purse.
+
+The waitress came back while the table shook violently, and she sighed.
+
+“I’m afraid you’ll be asked to leave. We’ve been receiving some complaints about the commotion from your table.” She said as I rushed past her with Claire following behind.
+
+Mum dragged Dad as we all rushed out of the restaurant and into the elevator. I watched as the waitress and maitre’d stood just outside by the glowing sign ‘Orago’s’ before the elevator door ultimately closed the barrier between our family and the restaurant.
+
+“W-What was…” Claire muttered, but her words barely made it out as she, too, could barely process what had happened.
+
+We waited in the lobby, where Mum demanded that the receptionists let her use the phones. 
+
+Shortly, Granddad came by taxi. Mum told Gran that Dad couldn’t drive, that he had too much to drink in the restaurant, to which he scolded him for on the hotel lobby’s couch for being ‘irresponsible’, but Dad barely listened; he just stared at the floor before Mum gave him the ticket from Dad's suit jacket to get the car from the chauffeurs.
+
+During the ride, Dad was shoved to the backseat while Mum sat on the passenger seat, and the three of us children were in our usual spots. Claire and Troye had fallen asleep while Mum spoke to Gran about what happened in the restaurant. Gran only listened as he drove, while my eyes trailed to Troye’s shoeless foot. I lay my head on him gently, thankful that my baby brother was safe, from… whatever it was under the table.
+
+Though it felt like the storm had passed, I could still feel the lingering stare, the feeling of eyes glaring towards me, at the back of my head, and on the skin of my nape.
+
+As weeks and months had gone by since that day, Dad… became an alcoholic, after work he would come home to drink more than three glasses of wine. I noticed the strain in Mum and Dad’s relationship; they no longer greeted each other with kisses before and after work. Mum would sometimes sleep in Claire’s room, and this became the new normal for us, even if… it never truly felt normal beneath the underlying feeling none of us could address.
+
+It had been years since that faithful dinner; Dad had passed from alcohol poisoning alone after I graduated college, Mum and Dad were already divorced by heart years before he passed, taking us with her to live with Granddad; Claire, Troye, and Mum still lived together in Manchester while I had to move to London for work.
+
+Although many years had passed, and sometimes I do find myself thinking it was… all just in my imagination, that maybe I really did just make up whatever was hiding under the table, but whether it was real or not, I still found myself checking and peeking beneath other tables from time to time.
+
+With a lingering thought that perhaps the vacant seats we ignore were already taken to begin with.
