@@ -1,200 +1,437 @@
-# A Table For Six For A Family Of Five
-It was supposed to be a perfectly normal family outing: my mum, my dad, my sister, my baby brother, and me.
+# Garden In The Dark
+I looked around the main room. It was still busy, but since it was later in the day, the crowd mostly consisted of students, employees, or old couples reading together. I was sorting returned books when Aiko asked if I could take her shift. I internally winced at the thought. I had never been in the library past closing and never planned to. Just the idea of being in the library when no one else was there made the feeling of dread wash over me. I looked at her, unsure. She could see my apprehension, and her expression changed to something I couldn’t read. 
 
-We were a middle-class family living in Southern Manchester in the 90s, in a classic suburban home in the Heatons. I stayed with my parents and siblings, never really moving out of the house or neighbourhood while living with them. Usually, my mother woke my sister and me for school, we’d get breakfast, and walk to the nearest school district we were enrolled in.
+“Would I be…alone?”
 
-The routine was normal: wake, eat, school, and home. Seldom would we go out as a family to a shopping center, or the piers, where we’d have a relatively good meal of either fried food, fast food, street food, or mum would just propose to cook at home, to all our dismay.
+Her mood changed almost instantly, realizing why I was hesitant. “No, of course not, dear; don’t you worry about that.”
 
-But on one spring evening in February, my dad came home with a big grin; the man rushed to my mother, who was cooking in the kitchen with Troye sitting on a high chair, devouring colored blocks bigger than his mouth.
+She asked me again if I would take her shift. Unable to stand the conversation, I promised I’d take it. “Oh, such a gentleman,” she said, tapping my hand. I smiled and turned back to the cart silently, praying she’d walk away. As her footsteps faded, I let out a long breath and cursed at myself for giving in so easily. All I had to say was no. 
 
-“We won! We won the free dinner!” Dad said,
+Hastily, I snuck a headphone in and wasted time slowly putting books back until I ran out and had to start my journey back to the front desk. I had just turned the corner when my eyes drifted to the far end, where a girl and her friends stood in the elevator ahead of me. Miyuki looked up at me, her demeanor instantly shifting into one of sadness and embarrassment. I looked down at my feet, sharing the feeling. I smiled disingenuously and waited until the elevator doors closed. My shoulders sank, and I went back to the stairs, trying to forget the whole incident. I emotionally readied myself to walk down the stairs with my cart when a hand landed on my shoulder.
 
-“Oh my god—how is that possible?!”
+I jumped back, looking around like a feral animal trapped in a corner. I ripped my headphones out, hearing complete silence. Clouds drifted over the sun, painting the room in darkness. I stared into the shadows; the empty room stared back. It felt like minutes until the sun shone brightly through the window again, allowing me to realize just how alone I was. My heavy breathing echoed across the floor, only serving to taunt me. Looking down the stairs, the path turned to shadow. Was it worse to go down or stay put? My blood turned to ice as the feeling of eyes on me crept up my spine. I thought I knew what I felt, but I convinced myself otherwise to calm down. 
 
-Dad shrugged, he chuckled to himself before shoving an envelope into Mum’s hands, “I don’t know either. I called them earlier, and they asked me a bunch of questions about our food preferences. He had a lot of questions about allergens, but I reassured him nobody was sensitive to anything.”
+“I’m just on edge,” I whispered to myself, my headphones inches from my ear.
 
-“Oh goodness, this is great news! Orago is extremely exclusive, I hear those snooty shallots in the Revlon counter constantly talk about months-long bookings.”
+Ring Ring
 
-Mum held the letter, reading the print on the page, as I tried to keep my attention solely focused on my homework on the dining table. Her grin faltered slightly as she read deeper into the print. “Oh, dinner is scheduled in April.” Her smile was plastered back on as she looked up at Dad before continuing to cook.
+The sounds of the bells faintly echoed through the room. I ran down the stairs, tripped over myself, and started to slip; I grabbed the railing next to me, letting go of my hold on the cart. My arm stretched out, but it was already too far. The cart violently rammed into the curved walls as it fell and quickly dropped out of sight. I panicked and pulled myself up. No matter how fast I ran, I couldn't quite reach it. The platform on the second floor was my only hope.
 
-I had practically forgotten about that whole conversation until April of that year, when I got home from school disheveled from playing soccer with my schoolmates. Mum wasn’t pleased, saying I should’ve gone home earlier, and cleaner, before telling me to get into the bath and wear the outfit on my bed she picked out.
+I turned the last corner but saw nothing. The silence in the stairwell came to my immediate attention. Craning my neck, I tried to look down past the platform, but the cart was nowhere in view. I braced myself slightly, looking around me, wondering where the cart could have gone. I spoke aloud in confusion and disbelief, wondering whether I had lost my mind. I continued running down the stairs to the bottom floor; the cart wasn’t here either. 
 
-‘Allen, to the bath—now!’ Her voice lingered.
+I was too out of breath. I leaned on my knees, trying to collect my thoughts, but my mind was racing, and I couldn't find an explanation. I couldn't think. Through my pounding heart, I heard banging from behind me. The cart crashed at the bottom of the stairs, echoing the clash of metal on metal through the library. I looked at the cart, my jaw hanging open slightly. Tomoko came up behind me, demanding an answer as to why a cart was flying down the stairs.
 
-The outfit looked brand new, or I just never wore it enough to notice, as vests weren’t really my thing even then, especially when I wore them over a shirt and under a coat.
+“I left it by the stairway; a guest must have accidentally bumped it.”
 
-Time practically moved faster than it usually did when your family is in a frenzy, until we found ourselves in Dad’s car on the way to Spinningfields; that part of the city looked mesmerizing from inside the car, we only ever passed by only to get to another point before, but to really see the tall skyscrapers, and commercial buildings in its peak bustling hour feels different when you knew the destination was exactly there.
+She took a deep breath before waving me away to the front desk as she went to find any damage on the cart. I watched people check out or return their books, though my mind was replaying my accident on the stairs. Did I pass the cart? No, I know I didn't. How could I have? But I had to; there was no other way for it to end up behind me. 
 
-“You’d better be on your best behaviour when we get there,” Mum said,
+The sun fell just above the building tops, sending long golden streaks of sunlight through the window and onto my face; it tore me from my thoughts. I realized how late it was. My mind felt like a broken record, which only made my head hurt. The sunlight warmed my skin until eventually it disappeared, and I was left in the manufactured white glow of the lights above me. 
 
-Claire sank into her seat, unhappy with how she looked in her frilly emerald dress. “Tell that to Ivan”
+Hoping to find something entertaining, I glanced outside. The street was empty and dark, but I could still faintly see the lights from the station not too far away. I pushed myself off the counter and slowly walked to the front doors. The night was clear, and the moon cast strong, dark shadows around me. I put my hand on the door; the metal was cold against my skin. Everything was so quiet, too quiet, so absent from life; no voices echoing through the rooms, no cars driving on the street. I felt so alone. I sat there for a few minutes, wondering if I had made a mistake. My eyelids grew heavy, and I knew if I stood there any longer, I would fall asleep. 
 
-“I only fight back when you start it.” I retorted, leading to Mum having to tell us both off while Troye sat happily in his car seat in a small but adorable suit.
+I sat in a small, squeaky chair at the front desk and put my headphones in, drowning out the absence of people. I didn’t know what I was supposed to do, so I was forced to wait for someone to come. Maybe no one else was? It was 8:00 pm; someone should have been there. I tucked my head between my hands and shut my eyes tightly when the loud bang of the back doors swinging open echoed through the library. Takato and a security guard walked in. Takato grabbed the closest chair next to him and sat. His gaze slowly lifted from his phone to me. His eyes widened with slight surprise.
 
-The car stopped in front of a garden-like driveway, where men in velvet blue uniforms waited by a golden revolving door near high paned windows.
+“Uh, hey…where’s Aiko?" he asked nonchalantly, though I could hear the sense of concern in his voice.
 
-After Dad handed the keys and claimed a ticket from the valets, we were led by an escort up to the restaurant, where my sister and I ogled at the entrance; you could see the giant aquarium from the outside, while the nearby wall lit up with the establishment’s name and logo—Orago’s
+“She’s out; she asked me to cover for her,” I said, pausing my music.
 
-A waitress led us in after the maitre d’ had a brief exchange with my dad. Claire looked just as mesmerized at the restaurant as I was, never having seen anything like it before; we were used to the yellow and red, ketchup and mustard type of interior from fast food places, so to see a fancy restaurant was a brand new experience for us.
+“Ah,” he said, leaning back in his chair.
 
-She led us to a darker spot in the restaurant, which had a Japanese screen keeping privacy between the tables. Our area had 5 five seats and a high chair surrounding a round table, topped with a tablecloth that had one too many layers forming swags around the table. I rushed to sit near the window, seeing the entirety of London’s skyline from the view. Claire was pissed she didn’t get to it first, but couldn’t do much about it; first-come, first-served, she knew the rules.
+"Ah." I repeated
 
-“Please get comfortable, I will be back with refreshments and your food cards.” The waitress said,
+He laughed nervously before looking back down at his phone and slipping it into his pocket. We sat silently for a short time before he spoke, asking me how my day was. I said it was fine, and he continued to ask me how I felt about some of the classes we share. I wasn’t sure why he was trying to talk so much; he always ignored me at school. I leaned forward in my seat and avoided eye contact. He talked for a while, but I tried to keep my answers short; he caught on to this and eventually shot up from his chair. I shifted my eyes from my phone to him; he ran his fingers through his black hair and grinned nervously.
 
-Mum was seated beside Dad, while Claire was seated beside me, and Troye was seated in his provided high chair beside Mum. Mum waited for the waitress to be fully gone before pulling out a digital camera to start taking photos of everyone and everything around her. “Meredith is going to fume seeing these photos.” She said, jeering behind the camera.
+“Yes?” I asked quietly.
 
-“One, two, three, four…five?” Dad mumbled to himself.
+“I’m just going to lock the basement; I’ll be right back.”
 
-“Honey, what are you doing?”
+He started to walk away before I softly jingled the keys he had left on the desk. He apologized, embarrassed, and took them before walking off. His footsteps slowly withered to faint taps until I was back in silence once again. My posture slumped, and I let my brain relax as I watched the lights sway slowly, drifting me further from consciousness. I rested my cheek on my palm, thinking to myself. I shouldn’t be up this late. I hardly got any sleep last night, but at least it was the weekend. I wish I had said no. I want to go home. I want a break.
 
-“There are five seats.”
+I leaned my head against the desk and looked down at my lap. Realizing I was subconsciously bouncing my leg, I pulled my headphones back out. My eyelids felt heavy, and I closed my eyes. I didn't even know he worked here, I thought. Talking to Takato was no easy task, but maybe he’s different outside of school. I mean, he did seem off. No matter how little we really knew each other, I'd much rather have a stranger around than be the only one here. Opening my eyes again, I found myself staring at my shoes below me. I must've nodded off, because when I looked up, Takato was sitting next to me, writing something down on a small piece of paper. 
 
-“Yeah, because there are five of us.” Mum chortled.
+“Tired?” He asked, poking me slightly. 
 
-“No, I already told them Troye needed a highchair instead.”
+I shrugged. He offered to let me sleep more, but I said it felt wrong making him do everything by himself. He smiled to himself and nodded before looking back down at some papers on the counter.
 
-“Well, this table was probably made for five.”
+“Since you're so persistent in helping, we can start returning books upstairs.”
 
-Dad shrugged, letting Mum’s words brush off his thoughts as we all waited patiently for the waitress to come back. She did, not long after, with a cart full of drinks and menus. She asked Claire and me if we wanted sodas or juice. I had a Coke while she had sparkling apple juice; she gave Troye his own small cup of orange juice.
+“Ok.”
 
-She turned to Mum and Dad, asking which wine they preferred; “We’ll have the red.” Dad said, as Mum nodded.
+He stuffed his phone in his pocket, and we walked to the elevator. I wanted to avoid that situation, but, unwilling to speak up, I walked in quietly and leaned back against the wall. I had never been in an elevator that slow; it felt like a minute had passed, and we were only reaching the top of the first floor. I looked back at Takato to see that he was already looking at me. I quickly averted my gaze to my shoes and tried to keep it there. 
 
-The waitress spoke a bunch of wine jargon, talking about how old the wine was before uncorking the bottle in front of us, causing Claire to jolt. “That’s scary. I don’t think I like wine.” She said,
+The smell of fresh flowers filled the elevator as we started to pass the third floor but faded as fast as it had appeared. When we reached the fourth floor, the elevator shook violently, and I lost my step a bit. The smell was much less pleasant here; usually it smelled somewhat nice, but then it just smelled like cardboard and copper. The air was thick and hot, which only made the stench worse. I looked at Takato, who shared my thoughts. The floor was so empty. It felt wrong to be in a place where people were meant to be. It was hot and quiet, the silence broken by our slow-paced footsteps. After some time putting books away, Takato came up beside me, striking up conversation.
 
-“More for me, and Troye.”
+“I heard something happened between you and Miyuki?” He said, leaning against the shelf beside us.
 
-She made a disgusted expression as the waitress began to fill the wine glasses on the table with wine, first Mum’s, then Dad’s, then the third wine glass by the vacant seat.
+"...Yeah, we haven’t talked in a while.”
 
-My parents paused, the drink barely touching their lips as they looked at her. “Um, sweetie, who’s—” My Mum chuckled before putting the drink down, “Who is that supposed to be for?”
+His expression changed. “I’m sorry, do you mind me asking why?”
 
-The waitress glanced at them; her polite eyes hadn’t wavered. “Your guest, of course,” she said, smiling before walking away with the beverage cart.
+“No, it's just, I don’t know, she—"
 
-Mum and Dad stared at the extra wine glass.”I—I’ll drink it.” Mum said, brushing off the tension with an outstretched hand.
+“You ask her out?”
 
-“No, just leave it there,” Dad said,
+“No, she did.”
 
-Claire was too engrossed in the menu, reading the names off the food card, while Troye suckled on the sippy cup full of orange juice. “Claire.” I held my sister’s arm as she brushed me off, annoyed.
+“And you rejected her?”
+
+“Yes.”
+
+“Why?”
+
+“I, I don’t know; it’s not like there's something wrong with her. It's not like…she's just a friend.”
+
+“I understand.”
+
+I nodded, embarrassed. He looked away before sitting at the table beside me.
+
+“It’s not the end of the world; I’ve rejected people before.”
+
+“Did she ignore you after?”  
+   
+“They did not.”                                                                                                                                                                                                                                                                                                                                                           
+
+He looked at me for a while, trying to read my countenance, waiting for a response, but when I didn’t give one, he changed the subject.
+
+"How’s the day shift?”
+
+“It's definitely better.”
+
+“It’s definitely not.”
+
+“Doesn't your schedule interfere with track?”
+
+“I make it work; I wish I had been able to work this late before our last year.”
+
+“Don’t you like people actually being in the library during the day?”
+
+He smiled. “I don't know; it’s nice not having people around.”
+
+“Really? I never took you as the introverted type; you seem so outgoing at school.”
+
+“No, I like being around people, but sometimes I need a break from everyone.”
+
+“Sorry for being in the way of that.” I joked.
+
+“No, I like your company.” His lips curled into a soft smile. He brushed his hair back before leaning on the cart I was holding. “I can say I admittedly miss seeing the sun during my shifts, though.” 
+
+He smiled as if he were saying something secretive, moving in closer to me as he spoke. I moved in closer in response. His eyes reflected the bright moon from the windows behind us. I couldn’t help but stare.
+
+“The moon's not so bad," I said.
+
+“No?” 
+
+He placed his hand next to mine. My muscles tensed, and I moved back quickly. Takato looked at me, confused. I opened my mouth to speak but was hit with a wave of dizziness. I tripped forward, grabbing the cart to hold myself up. The room seemed to spin. I shut my eyes, putting my hand to my head, hoping to prevent a headache. A sting underneath my skin came to my attention, which only grew stronger. Takato grabbed my shoulder.
+
+“Are you alright?” 
+
+His worried voice poked through my cluttered thoughts, but I couldn’t bring myself to look at him. He tried to pull me up. I looked at him between my fingers before lowering my hand to my side, realizing how stupid I must have looked. “Yeah, sorr—"
+
+A crunch under my shoe caught my attention. On the floor was a flower. I squinted, confused about how this possibly could have gotten here. In my hands, it seemed to crumble like it was dead, but it seemed so fresh; you would have thought it had just bloomed. I dropped it on the floor, realizing it left a strange residue on my hand. I wiped it off, disgusted, and sat up.
+
+Ring Ring
+
+The sound of a bell ringing echoed from the dark, louder than it had before. 
+
+“Weird.” He said.
+
+“Weird? That's all?”
+
+“Yeah, I mean that flower could have gotten here anytime.”
+
+“I mean, yeah, but what about the bell?”
+
+“Bell?”
+
+I looked at him, confused, but said nothing as I watched him walk off. I felt naked standing alone and quickly ran up next to him. Turning through the shelves, I couldn't help but notice how monochrome everything looked in the moonlight. We roamed through the halls of tiles, mindlessly returning books to their places. I watched my shoes hit the floor with every step, listening to the rolling of the cart. I wanted to unwind, to relax with this boring task, but every turn I took, I expected to see someone on the other side. I felt like he wanted to say something but didn’t. I stalled for a moment, waiting until he was beside me. He pulled a small slip of paper out of his pocket.
+
+“I figured you would need this if you wanted to keep talking.”
+
+Unfolding the paper revealed his phone number. A nervous smile crept on my face, and I felt my cheeks heat up. My stomach turned, and I shamefully shifted my gaze down to my hands.
+
+“I guess that's true,” I said, sliding the paper into my pocket.
+
+“What’s wrong?”
+
+“Huh?”
+
+“You look upset.”
+
+I shook my head. “It’s nothing; I just—are you sure you never heard a bell ringing? It was definitely loud enough for you to hear.”
+
+He looked at me, confused, shaking his head lightly. “Never heard it,” he said, half smiling.
+
+My face sank a little. “Oh…”
+
+“I think you’re letting this place get to you; did you get any sleep today?”
+
+“Not really… You’re right, I’m probably just tired.”
+
+“Do you want to sit for a while? Get a snack?”
+
+"Sure."
+
+A little disheartened, I followed him across the floor to one of the vending machines in the far corner. Takato quietly looked at the snacks in the vending machine before picking something, sitting on the floor, and resting on the coffee table between us. He slid a canned drink to me.
+
+“Besides the mystery noises, is the night shift as bad as you thought it was?”
+
+“It’s creepy.”
+
+“I said, besides the mystery noise."
+
+“It's still creepy.”
+
+I slid off the chair and sat at the coffee table, taking one of his chips.
+
+“Think you’ll ever work nights again?” He leaned forward, sliding the bag a little closer to me.
+
+“I’m not so sure; the night's been weird.”
+
+“That’s fine; maybe we can hang out somewhere else?”
+
+“Anywhere else would be better.”
+
+“Maybe a movie?”
+
+“I wouldn’t mind, just maybe not a horror movie, at least not for a while.”
+
+He smiled before something flipped, and he looked back down at his hands. “I’m sorry we never really got to know each other earlier.” He said, his voice nervously shaking.
+
+His words caught me off guard. “It’s fine; it's not your fault we weren’t friends.”
+
+There was a long pause after that. He took a deep breath. “I don’t just mean as friends.”
+
+“...I don’t understand.”
+
+“I like you… I like being around you. I like thinking about you; you're constantly on my mind. I nearly had a heart attack when I saw you sitting across from me tonight. I’ve been so worried about telling you to the point that I avoided you. I was so terrified of rejection that I never even tried, but tonight, talking to you, I think you feel the same—"
+
+“Why would you think that?” I interrupted defensively.
+
+Feel the same, feel the same? What had I done to make him think I had feelings for him? 
+
+What little confidence he had dwindled like a flame in water. He slowly lifted his eyes to meet mine. They were glossy, and his face was red. It felt wrong to say that, to make him feel like that; I felt bad, which only made me more defensive.
+
+“Why would I have feelings for you… You're delusional," I stuttered.
+
+He sat in silence before standing. “Just forget I said anything.” He said before walking past me. 
+
+I looked down at my shoes, telling myself I didn't care about his feelings. It’s not my fault he felt like that; it’s not my fault I was just being honest. What was I supposed to do, tell him I like him? But I didn't; I couldn’t. A throbbing pain in my head pulled me away from my thoughts. My stomach twisted, and my chest felt tight; I felt sick. I needed to sit down. I was sitting down. I covered my eyes, holding my head tightly. I heard a thud and looked up to see Takato sitting on the floor, crawling away from something around the corner. Rushing to his side, I picked him up and looked around the corner. On the other side of the wall was a staircase. One that had never been in this part of the library. The stairwell was curved, making anything above the twelfth step buried in shadows. 
+
+“What the fuck is that?”
+
+I took a few steps forward, leaning into its archway. A small breeze, accompanied by the floral scent from before, brushed past me. Flowers were stuck along the walls, but I couldn't see how far they went. The archway felt cold; the carving on the stones looked too intricate for something in a library like this. It seemed to be placed in one of the most inconvenient places, as if it had been added as a second thought. Every inch of my body told me this was wrong, and I stepped away from it instinctively. I ran back to the nearest pillar. Section 20-24A: We were exactly where I thought we were, but it felt completely unfamiliar. What the hell was going on? 
+
+Ring Ring
+
+I turned back and saw Takato facing the staircase, his posture stiff. I walked closer; he took a step forward onto the staircase. I ran up and grabbed his arm, pulling him back much harsher than I should have.
+
+“We don’t know what the fuck that is; don’t go up there.”
+
+His eyes lingered on the stairs for a few seconds before they turned to me. “What?”
+
+I pulled my hand back quickly, noticing his underlying, irritated demeanor. “I’m not letting you go up there.” I finally blurted out.
+
+“No, I wasn’t going to; I didn't want to follow you.”
+
+I squinted my eyes. “Follow me?”
+
+“You went up the stairs; at least I thought you did. I swear I watched you walk up it.”
+
+I looked back up the staircase, into complete darkness.
+
+“Do you hear that?” I asked, the sound of bells getting louder.
+
+He shook his head, unsure of what he was listening for. He took out his phone and pointed my flashlight up but wasn’t able to see its end. I leaned in next to him. I stared into the darkness until I got a glimpse of someone else staring back at me. I thought it was in my head until they pulled their head back quickly. I grabbed Takato and pushed him away, behind the nearest shelf. terrified.
+
+“There is something up there.”
 
 “What?”
 
-“Did you put the juice in his bottle?” I asked,
+“I’m not sure.”
 
-“What are you talking abou—” She paused as we both watched our baby brother, not noticing the fallen plastic cup that was once filled with orange juice roll under the table.
+He leaned his head against the wall, holding his breath.
 
-“What on earth did you two do?!” Mum said, seeing Troye’s baby bottle full of orange juice.
+Ring Ring
 
-“It wasn’t me!” We said in unison,
+Slow, deep ringing—I felt it through my whole body, but I heard it above us. I knew I should have kept my eyes closed; I knew I shouldn’t have looked up, but I did it anyway. She looked at me with a still expression; the top of the shelf completely hid her shoulders, but her neck stretched far, poking her head out above us. Long black hair draped like curtains around me. Her wide, round eyes fixated on me until, slowly, she smiled, revealing rows of blackened teeth. She pulled her hands away from the shelf, covering her eyes. Then she wailed, her mouth not moving. Her cries grew louder until she screamed, as if unable to contain her pain. She slithered back behind the shelf, her wailing continuing. Takato pulled me away and ran, nearly dragging me along the floor.
 
-“Why would you do this? Who did this?!” Mum took Troye’s orange bottle as he began crying.
+She fell behind us quickly, smacking against the tiles, against the shelves, then on the ceiling. I noticed the elevator and pulled him back, but that thing was too close and grabbed him. I slipped to my knees and turned back. That's when I saw her. At least I thought I saw her. It was strange. I felt that one eye was seeing one thing while the other saw the complete opposite. In one moment, I saw a horrible monster, but in the other, I saw a young woman. Her hair was long, and her pale skin and uchikake seemed to glow in the moonlight. I was amazed.
 
-The table was a bustling cacophony of familial exchange; for a moment, we forgot we were in a fine dining establishment. Mum was scolding us, Troye was sobbing loudly, Dad drank Mum’s wine, while Claire and I tried to convince her we were innocent.
+She turned back to Takato, who fought back violently; she seemed to be taken aback by his resistance, as if not expecting it. He slapped her across the face and cried in pain. I stepped forward but knew I was ultimately powerless. Carefully, she swiped her hands across his face, and his entire demeanor seemed to change. He looked confused, but she didn’t seem to care. She sat beside him, her eyes darting from him to me, and leaned in close and whispered something into his ear. He looked up at her, mesmerized by what he saw, though I know it wasn’t her. She slowly stood and looked down at him for a moment before facing me.
 
-“Enough!” She snapped, silencing Claire and me.
+Her eyes widened. I blinked, and she was standing in front of me. I stepped back, bumping into the shelf behind me, but recoiled as I looked at what I had touched: a dark, wet vine seeped out from between the books. The vines spread fast, and everything they touched seemed to rot away. She leaned forward; the scent of fresh flowers grew stronger. I could tell by the look in her eyes that she was looking for something, but I was unsure what. Sweat built up on my skin, and I lost my breath. She began to turn away, looking back at Takato. I panicked.
 
-Mum took Troye from his chair to calm him from crying, but even within her arms, he bawled, until she paced walking around the table, whispering pleas for him to quiet down before we get kicked out of the establishment. People were beginning to stare, their darkened eyes glared at our table, before whispering to themselves, and the empty seats beside them. Dad sighed, taking another sip from Mum’s glass.
+“Wait, please don’t hurt him!”
 
-I furrowed my brows.
+She paused; I took this as an invitation and got to my knees, pressing my head to the floor. I apologized for Takato hurting her and begged for forgiveness, hoping she would understand our fear. The floor was so cold, it almost stung my skin, but I stayed still, waiting for her response. She stayed quiet, and I began to question myself. I looked up to see shoes inches from my face. My hands began to shake, and I hoped I had made the right choice. She bent down, and I hesitantly looked up, but it was Takato who stood before me, a warm smile on his face. He took my hands and guided me back up. I wanted to speak, but I couldn't think of anything to say.
 
-All of the tables had one empty seat, one singular seat that no one occupied.
+I waited for something, anything to happen, but he just stood there looking at me. I looked down at our hands and saw we were still holding one another. I loosened my grip, but he did not. He looked at me for a minute, thinking, before pulling his hands away and stepping back. A sad expression washed over his face; the room seemed to darken.
 
-Troye stopped crying as Mum walked near the empty seat at our table; he laughed, his small hands motioning at the sixth seat. Mum was too relieved to even notice how odd the baby reacted, as she sat him back down in the highchair to rest her feet. Troye didn’t take his gaze away from the empty seat, clapping and laughing while kicking his feet.
+“Is this wrong?” He asked
 
-“You drank all my wine?” Mum said, looking exasperated at Dad as her glass sat empty beside her plate.
+I stepped back, shaking my head slightly. The air felt cold, the vines grew viciously, and flowers burst through the tile floor. He grabbed my shirt before pushing me away harshly. I hit the shelf behind me, and pain radiated up my back. He looked at me blankly before wiping his hand across his face. Miyuki stood before me, quietly watching.
 
-“Yeah, there’s another glass right there anyway—” He paused,
+“You don’t want the truth; you want to hear someone feed you the lies you've been told all your life. I can tell you, and he can tell you, but you listen to her. You know what you really want."
 
-The 3rd glass was empty too.
+“That’s not true,” I shouted, pushing her away.
 
-“You drank the other one too?!” Mum said, trying too hard not to raise her voice, but Dad couldn’t muster up a response to even defend himself as he looked at the 3rd empty glass.
+Takato grabbed my face, forcing me to look at him. “Really?”
 
-“N—No, no I didn’t—” He said, barely forming a coherent sentence.
+I clawed at his hands, trying to free myself. His eyes searched through mine, and a small smile grew on his face.
 
-Mum sighed, “You’d better pray that girl brings back the whole bottle.”
+“Am I not what you see?”
 
-The waitress returned, but not with the bottle. She carted in a whole bonsai tree in a tray before placing it in the middle of the table; the tree had small pockets of food dangling from the branches. Each of us tried it, taking a bite of the round, bubble-sealed food.
+“Stop, please,” I begged, tears forming in my eyes. 
 
-It was fun, I wasn’t sure what to make of it, actually. The shell felt like a thin layer of sensitive plastic, and as I popped it into my mouth, a burst of flavor coated my tongue—floral, yet savory and sweet at the same time. Claire said hers tasted like lavender mint.
+I shoved him away, covering my ears. Books rotted away in front of me and spread to the floor. I tried to take a step back, but I couldn't move. My eyes darted around me, and I fearfully looked at my hands as a stinging pain struck my nerves. I winced; something was moving under my skin. A dark substance spread from my forearm to my shoulder, then my chest. I opened my mouth to scream, but nothing came out. I began clawing at my throat and dropping to my hands and knees, desperate for air. The feeling of needles bursting from my skin shot through my body. Buds sprouted from my skin and bloomed into brightly colored flowers. I frantically began to tear them out of me, but more and more kept growing.
 
-“So like laundry soap? You’re eating soapy sacks, sis?” I asked, barely containing my laugh as she shoved me.
+It felt like I was ripping my veins out, but I kept tearing. My tears fell to the floor. I begged for the pain to go away; I couldn’t take it anymore. My vision blurred, but I could vaguely see the spirit standing before me. I felt a force push me away, and I fell back. When I opened my eyes, I was somewhere else entirely; my lungs choked on the sudden air, and I felt lightheaded. Takato sat above me, his hands on my chest. 
 
-The appetizers arrived one after another, each more ridiculous than the last. I couldn't understand why anyone would pay so much money for food that looked like science experiments, but every time I reluctantly tried the food, it somehow tasted exactly like something familiar. From peeled onions resembling a tapeworm on the plate, drizzled in olive oil and breadcrumbs, to deconstructed burgers, each component of a burger is turned into a ball before being pierced with a stick.
+“Are you ok? What happened? I thought you were dead."
 
-The ‘Nugget’ was the strangest so far; the appetizer was a barely formed duck embryo housed inside thin crispy strings forming a nest, blanketed on a toasted wonton skin. Its eyes were pitch black, and from what you could make out was the head still barely separating from the rest of its body.
+I didn’t respond. The ringing in my ear grew louder and louder. It was getting harder for me to breathe; maybe that was in my head. I'm not sure. I tried to speak but couldn’t muster any words. Takato sat me up and held my shoulder tightly, trying to get my focus on him. A heavy weight on my chest pressed down on me. I didn’t feel right; my gut twisted, and I felt a tug in my stomach. I knew I was safe, but I couldn’t tell my body to relax. Why was everything so confusing? Why couldn’t I think? 
 
-Claire looked as though she was about to burst into tears when I turned to her. She looked at the duck embryo with pity. “I…I can’t eat this.” She mumbled.
+I curled forward in pain before there was another violent tug deep in my stomach. He gently put his hand on my back, begging me to tell him what was wrong. I felt something rise in my throat. I sat up, choking. I gagged until I felt it in my mouth and turned away before throwing up. I got a hold of it and pulled it out. As I did, I realized what I was pulling: a vine. I tried to force it out, but my muscles only contracted, causing my throat to pinch against it, only pushing me to gag again and again. 
 
-Mum looked perplexed before Dad spoke; “It’s good to try new things, Claire, you can’t appreciate what you don’t discover.”
+Takato yelled in fear and disgust before grabbing the vine and pulling it out quickly. I curled into a ball and coughed up bits of flowers and leaves before I felt I could finally breathe again. Overwhelmed, I held my stomach tightly and stared down at the ground, too embarrassed to look up. My body was completely exhausted. I wanted to lie down; I wanted to be in my bed; I wanted to go home; I just wanted to leave. I was tired, hungry, and in pain. What did I possibly do? Why was I being punished? 
 
-Dad ate a whole nest as Claire looked mortified. “Dad, don’t eat it!”
+My hands sank into the soft dirt below me, and I took a double-take, realizing our surroundings. We were in a garden; moonlight shone through the trees, birds chirped in the distance, and countless wildflowers swayed in the breeze. Takato let go of me and quickly brought his hands to his sides. I rested on the trunk of a nearby tree and sat for a while longer. Takato's face was still, but I could see his eyes move as his mind jumped from one thought to the next. I built up the courage to speak, ignoring my burning throat.
 
-“Honey, I… I think we should just return this; it doesn’t look appetizing.” Mum said,
+“What did she say to you?” I asked.
 
-“Nonsense! It’s fine, I’ll eat it.”
+He looked up at me. I could tell he was deciding whether he wanted to tell me. “She didn’t say anything.”
 
-Dad practically finished the whole plate as we watched him eat all eight nests. The three of us sat in silence watching him eat before he gulped down the whole glass of water in one breath. Troye didn’t understand what was happening on the table, and quite frankly, we didn’t either; although he was more particularly occupied by the empty seat opposite to him, the empty plate with untouched utensils looked proper,
+“I saw her say something.”
 
-Ready.
+“Really,” he replied, unamused.
 
-Waiting.
+“What did she tell you?” 
 
-Troye giggled again, kicking his feet under the table, as the waitress came back, she took the used plates before setting down six different plates; Claire and I let out a sigh of relief, realizing the food finally looked normal. Mum had what looked like chicken alfredo, Claire’s plate was a plate of lasagna, Troye had a bowl of tepid mushroom soup, and mine was a classic spaghetti with a palm-sized meatball on the top.
+“Why do you care?” His voice was quiet and shaky
 
-Dad had a plate of what looked like steak and potatoes; the potatoes looked mashed with gravy sauce on top, but the meat looked… red.
+“I just want to know.” 
 
-“Richard, that’s too undercooked, we need to return—”
+“Did she say something about me?”
 
-Mum paused, as she watched Dad eat the undercooked steak; it bordered between rare and raw as each slice he took to put into his mouth juiced with red liquid, too sheer to be blood, but too red to be water. He happily ate his meal, pairing it occasionally with the mashed potatoes before turning to us.
+“I think so.” 
 
-“Go on, it’ll get cold.” He gestured at our food before we too took bites of our own meals.
+“You think she said something about you?”
 
-Mum occupied herself with her food, slightly shifting on her seat to move away from Dad, while Claire helped Troye eat his soup, taking bites off of her own meal occasionally. I ate my own meal as well, though I was better off eating nothing at all, as my taste buds barely registered the food; my mind was occupied with the sixth plate between Dad and me.
+“Am I right?”
 
-My fork balanced the giant ball of beef, as my eyes trailed towards the curling heat steaming from the plate a few feet away; the dish looked like a plump pouch of sheer flesh, resting on top of an orange sauce. I jolted back slightly, seeing a seam tear open—a clean, straight slice, before small intestines began to pool out along with a soup of thick cream liquid.
+“Yes.”
 
-I checked the food card I set aside, and right on the main course category, my eyes settled on ‘The Babe’; a pound of steamed milk-fed baby goat intestines cooked with mushroom roux, wrapped within the goat mother’s flavorful rumen, served with the in-house citrus sauce.
+“What did she say?”
 
-“M-Mum…” I muttered under my breath. I wasn’t sure if my mother heard me the first time, as I was about to call attention to the sixth plate, but the meatball on my fork finally slipped off as it rolled down onto the floor. A wet slap hit the ground before the sphere disappeared beneath the table.
+“I don’t have the answer you’re looking for.”
 
-I felt a heated glare against the skin of my nape, when I turned I saw Dad’s eyes towards me, blank—empty as his mouth opened to speak; I caught a glimpse of his bloody teeth, the once white teeth he meticulously maintained, and encouraged Claire and I to do the same; the man who emphasized on the importance of hygiene was a far cry to what I was seeing now.
+I leaned forward and looked up towards the 'moon,' picturing what was above us. Was it the library? The sky? Were we ever going to leave? I wanted to leave, but did it even matter if we did? What could she have said? Maybe it was about my rejection. If that's what it was, what did she say? What my feelings were? I mean, he knew already, didn't he? I told him my feelings. I replayed her words over and over in my head. I know how I feel about… I know. She didn't know what she was saying; she was messing with me.
 
-“Put it back on your plate. It’s rude to make a mess.” Dad said, as the red juices from his meal lined the edges of his mouth.
+“Am I not what you see?”
 
-I got off my chair reluctantly, before getting to my knees; lifting the layers of tablecloth, I was met with a darkness bordering on pitch black. I squinted, trying to make out where the ball of meat could have been until… I was staring right at it; in front of my face was the meatball clasped within an outstretched hand towards me.
+“What?”
 
-My throat practically clamped shut as my breathing halted, my own hand uncurled by itself right under it, as it handed it to me. My eyes never left the dark; it never left the sight of the aged, greyish-pale hand, with nails too long and dull. I felt my hand tremble as the meat slopped against my palm, the black shadow or outline I had been looking at for what felt like minutes had moved, and that’s when I finally saw light peek from the other side of the table.
+“Did she say something upsetting?” he repeated.
 
-The heart in my chest dropped; through the small hole of torn fabric, I saw Troye’s feet dangling, wearing only one shoe, as the other had already fallen under the table; he was inching closer and closer; the only thing keeping him held onto the seat was the harness holding him to the chair.
+“N-no, she—I'm not sure.”
 
-Dropping the meatball, I practically jumped from under the table before rushing towards Troye, unhooking the harness, and carrying him into my arms. The baby began to cry as I held him close. “There’s something under there, w-we have to leave!” I practically yelled out, I didn’t care if I was drawing attention from other diners.
+“You said she said something about me?”
 
-“What are you talking about? Allen, sit down!” Mum said,
+"Yes."
 
-“No! We have to leave, we have to go now!” I said,
+“What did she say?”
 
-Dad’s face hadn’t changed; he wasn’t even reacting to a thing I was saying. 
+“Nothing.”
 
-Meanwhile, Claire was at my side as she cooed to calm Troye. Mum was trying to get a hold of the situation, but as she stood, the table began to shake, while Dad sat on his own, unmoving in his seat. Every unfinished food on the table began to topple to the floor as Mum backed against the wall, holding her purse.
+“Really?”
 
-The waitress came back while the table shook violently, and she sighed.
+“Really.”
 
-“I’m afraid you’ll be asked to leave. We’ve been receiving some complaints about the commotion from your table.” She said as I rushed past her with Claire following behind.
+“Why can’t you just tell me?”
 
-Mum dragged Dad as we all rushed out of the restaurant and into the elevator. I watched as the waitress and maitre’d stood just outside by the glowing sign ‘Orago’s’ before the elevator door ultimately closed the barrier between our family and the restaurant.
+“Because it was nothing; she was just trying to scare me.”
 
-“W-What was…” Claire muttered, but her words barely made it out as she, too, could barely process what had happened.
+“She didn’t say anything like that to me.”
 
-We waited in the lobby, where Mum demanded that the receptionists let her use the phones. 
+"And you believe her?” 
 
-Shortly, Granddad came by taxi. Mum told Gran that Dad couldn’t drive, that he had too much to drink in the restaurant, to which he scolded him for on the hotel lobby’s couch for being ‘irresponsible’, but Dad barely listened; he just stared at the floor before Mum gave him the ticket from Dad's suit jacket to get the car from the chauffeurs.
+“I do." 
 
-During the ride, Dad was shoved to the backseat while Mum sat on the passenger seat, and the three of us children were in our usual spots. Claire and Troye had fallen asleep while Mum spoke to Gran about what happened in the restaurant. Gran only listened as he drove, while my eyes trailed to Troye’s shoeless foot. I lay my head on him gently, thankful that my baby brother was safe, from… whatever it was under the table.
+He searched my eyes for a long while before his look changed slightly and he stood, walking a few feet away. Unable to see much, he quickly pulled out his phone before something caught his eye. He craned his neck to see something in the distance before turning back to me.
 
-Though it felt like the storm had passed, I could still feel the lingering stare, the feeling of eyes glaring towards me, at the back of my head, and on the skin of my nape.
+“What? What is it?”
 
-As weeks and months had gone by since that day, Dad… became an alcoholic, after work he would come home to drink more than three glasses of wine. I noticed the strain in Mum and Dad’s relationship; they no longer greeted each other with kisses before and after work. Mum would sometimes sleep in Claire’s room, and this became the new normal for us, even if… it never truly felt normal beneath the underlying feeling none of us could address.
+“There's something over there.”
 
-It had been years since that faithful dinner; Dad had passed from alcohol poisoning alone after I graduated college, Mum and Dad were already divorced by heart years before he passed, taking us with her to live with Granddad; Claire, Troye, and Mum still lived together in Manchester while I had to move to London for work.
+He pointed to some trees in the distance, and I leaned over as far as I could but wasn’t able to see much of anything. I shook my head, and he frowned slightly. Not saying anything, he started walking off.
 
-Although many years had passed, and sometimes I do find myself thinking it was… all just in my imagination, that maybe I really did just make up whatever was hiding under the table, but whether it was real or not, I still found myself checking and peeking beneath other tables from time to time.
+“Where are you going?”
 
-With a lingering thought that perhaps the vacant seats we ignore were already taken to begin with.
+“To check it out."
+
+I stood up slowly, the deep ache in my stomach persisting. When I reached him, he was crouched over something partially buried in the dirt under a tree root. He moved over slightly, revealing a small white tile. He stood slowly, looking around for anything else out of the ordinary. We wandered off for a few more minutes until we started to see more tiles buried in the dirt or stuck under roots. We cautiously made our way through fields of flowers, patches of grass, bushes, and trees, finding bits and pieces of shelves, walls, and flooring scattered through the garden. Occasionally, one of us would check our phones, but no matter how long we walked, time seemed to stop. I looked out at the field, processing the situation we were forced into. 
+
+Why were we here? I walked myself through the day over and over. What did I do differently? Was it something Takato did? No, I heard the bell earlier today; it was my cart that disappeared. It was my fault. We were here, but why? I thought of her words. She knew what she was doing; she was deliberate with her message. My heart began to beat faster. Would we die here? Time didn’t move, but we were hungry, so we would eventually starve. I thought about all the people I wouldn't see: my friends, my family, and my mother. Maybe I’m a bad person, but I smiled at the thought. If we were stuck here, we were both stuck here. My gaze wandered to Takato. Why did I say those things to him? Why would I say that? 
+
+I was unbelievably cruel to him. My words circled in my mind; I felt embarrassed, but it was too late for that. Why was I so awful? I didn’t mean those things; I didn’t think there was anything wrong with Takato. I just wanted to hurt him, to make myself feel like I wasn’t guilty, like I didn’t feel terrible for what I was saying, but I did. I did feel shitty; I don’t know why I tried to tell myself otherwise.
+
+After an hour of repeating my thoughts, we found a clearing, a large rock in the middle. Takato suggested we mark it, since he'd had a suspicion we were passing the same rock. Although skeptical, I agreed, and we used a small rock to mark the boulder with a large circle. We went back to awkward silence and walked east. I could tell he was getting frustrated; I was, too, but I guess I was more scared than upset. The moons shone down brightly, giving us visibility in the endless fields and forests beyond us. With still no sign of escape, our bodies were completely exhausted. After only thirty minutes, we walked back to a familiar clearing with a familiar rock. Takato stopped and looked at it in total despair.
+
+“I don’t think there’s an exit.”
+
+“There has to be.”
+
+“Look around us; we've been walking for who knows how long; we've circled again and again, and you still think there's an exit?” His voice rose as his frustration turned to anger. He yelled, throwing a nearby book at a tree next to us. His panic overtook him, and he fell to the ground. “I don’t know what’s going on," he cried, defeated. I sat beside him, but he turned away and held himself tightly before muttering an apology.
+
+“We’re going to get out of here. We got in here somehow; there has to be a way out.”
+
+“We’ve been walking for hours; we would have seen an exit.”
+
+“But why should we give up? We can’t just rot here.”
+
+He looked at me, his eyes filled with tears. “I’m just tired,” he said, defeated.
+
+The wind blew past us harshly, the floral stench taunting us. He ruffled his hair, revealing his visibly shaking hands. I could see in his face that he had already given up. I was still on the fence about whether I should have, too. Were we really stuck here? I didn’t want to believe it, but with the amount of time that had passed, it got harder to believe there was a way out. 
+
+“Takato,” I said quietly.
+
+“Yes?”
+
+“I’m sorry.”
+
+"Sorry?"  
+“For what I said earlier.”
+
+"Oh, why are you telling me this?"
+
+I didn’t answer
+
+“Did you mean what you said?”
+
+I looked at my hands for a while, searching for the right words. “I… I don’t know. I told myself I was sure, but maybe I lied, hoping you’d believe it, hoping I’d believe it… I’m sorry; I thought hurting you would make my rejection, I don’t know, more real. It’s so stupid.”
+
+“It’s not stupid.”
+
+“But it is; it is stupid. I did exactly what my—I pushed you away, pretending it was what was best, but it wasn't. It's not what I want.”
+
+"And what do you want?”
+
+I shook my head. “I don’t know.”
+
+The wind had grown stronger, and the moon was just visible through the trees. Takato slumped forward, his arms crossed across his knees. I felt the tightness in my chest and tried to slow my breathing, but the heavy weight persisted. I wanted to leave, but I still felt hesitant about finding an exit. Why? Why was I so indecisive about this? 
+
+“I don’t want to be alone,” I said.
+
+“But you're not?”
+
+“I feel so alone. I always do; it’s exhausting. I hate the emptiness I feel when I'm alone; I hate my thoughts, and I hate having to avoid them because I know I have to deal with them myself. I am so confused and tired; I’m terrified of staying yet paralyzed by what waits for me at home.”
+
+I wiped my tears away, trying to contain myself. 
+
+“I understand how you feel.” He took a deep breath before speaking again. “My friends never really seemed to understand me; I felt separated from them. I told myself I was broken, that something was wrong with me, so I lied to myself to convince others I meant what I was saying and did whatever I could to be who they thought I was. But I still felt it, this emptiness, so I stopped. Some of my close friends understood; most did not, at least at the time.”
+
+“You never felt alone?”
+
+“The loneliest time of my life was the time I pretended to be someone I wasn't."
+
+His words sank deep into my chest; his message was clear. It felt like he knew just what to say. He looked at me with a soft expression. How, how could he still be so comforting and kind to me after what I said? I wanted to look away, embarrassed, but I knew that closing myself off again wouldn't do anything. Tears filled my eyes, and I attempted to wipe them away discreetly, but he noticed and took my shoulder gently, pulling me into a hug. I felt no hesitation to wrap my arms around him. His breath was heavy, and his heartbeat was fast. I sank my face into his shoulder and held him tight. I felt so comforted by his embrace. The breeze paused, and the air seemed cool. I didn’t want him to let go of me and open my eyes and see we were still stuck or back in the library. The sound of bells became distant whispers, and I opened my eyes.
