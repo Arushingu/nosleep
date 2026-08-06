@@ -1,22 +1,208 @@
-# My joints are cracking and they just won't stop
-My life’s been really stressful lately. I do R&D at a… Well, let’s just say it’s a pharmaceutical company, what they make isn't really relevant. I do a lot of drug testing, and sometimes things go well, but usually they don't. And when they don’t, the people above me start getting antsy, they start asking me questions, start slapping me with deadlines as if that’s going to magically make things better. They take away my break time, they have people watch me work to make sure I’m not making any mistakes, they limit my bathroom trips to five minutes max before they start deducting my pay. So, that’s how things have been. Lots of work, no progress. And as most people do when they’re under a lot of pressure, I developed a bit of a nervous tic, I started cracking my knuckles.
+# My mother held my sister underwater to 'teach her how to breathe.' Now she's coughing up black mud.
+My sister is currently sleeping in the bed next to me. We are hiding inside a cheap motel room located just off the interstate. Nobody in the medical field can figure out what is wrong with her. She just spent the last hour leaning over the bathroom sink, coughing up clumps of thick black mud. Her skin is starting to peel away along her forearms, and underneath the dead tissue, pale scales are growing. We need someone who understands the occult, who knows how to reverse whatever is happening to her.
 
-Historically I haven't been much of a cracker, I just sort of started doing it one day at work, it felt almost… therapeutic. Scientifically speaking it’s not harmful or anything, so I didn't give it much thought. I mean, some people chew their hair when they're under stress, and then they end up either throwing up a hairball or dying due to sepsis when their intestines become totally clogged with hair. Anyway, what I’m saying is that I didn't do anything to curtail the knuckle cracking, so it very quickly became something of a compulsion for me. I was cracking at work, I was cracking during meetings, I was cracking on the damn toilet. And look, we could get into the psychology of what drives people to do these things, but that’s not really the problem here. No, the problem was what came later.
+To explain how we ended up in this situation, you need to understand our family history. My parents always told us the outside world was entirely too dangerous for children. Long before my sister and I were born, our parents lived in a bustling major city. They had another child back then. He was killed in a hit-and-run car accident when he was only five years old, and the grief from that tragic event completely broke their minds. They immediately packed up their lives and moved to an isolated village situated on the edge of a massive black-water lake surrounded by a dense forest.
 
-It had been a couple of weeks, I think, since I’d acquired the tic. Without warning, my knuckles began to crack on their own. For example, I would grab a coffee mug, and as I did I would hear that distinct popping sound, feel something shift in my fingers. At first, I wasn't really worried. As you get older, all sorts of strange things happen to your body. Then it began to spread, like a disease. I could feel a clear… stiffening in my joints any time I sat down for a while or laid in bed. And when I got up, said movement would be accompanied by a series of audible cracks from my shoulders, my knees, my back. As if work wasn't bad enough, I began to worry that I was developing some sort of early-onset arthritis. But there was no pain, and when I visited the doctor they couldn't find anything wrong with my body.
+They always claimed the village had extraordinary healing powers, and told us the water and the tight-knit community brought them peace after their devastating loss. Shortly after moving into our lakeside house, my mother got pregnant with me, and a few years later, my sister was born.
 
-With time, the cracking and the clicking became more frequent. My coworkers began to take notice. I’d walk into the lab in the morning, creaking like the Tin Man, and be met with these strange looks of fear and confusion, like Europeans that had just learned about air conditioning. “What the hell was that noise?” they would say, and all I could do was try to laugh it off. The higher ups were the ones I had to be careful around. During meetings, I tried my best not to move a single muscle, else I might draw the gaze of Sauron. I was, after all, still on thin ice. But, as often happens, I was ratted out by my own. I was a distraction to others, HR said, and by putting me on temporary leave they were just giving me time to sort things out in my personal life.
+Growing up in the village felt incredibly suffocating. Our parents were fiercely overprotective. They refused to let us travel to the nearest town, monitored our schoolwork, controlled who we spoke to, and forbade us from going near the deeper parts of the lake. The other adults in the village shared this exact same parenting style. Every child in the community was kept under constant, suffocating surveillance.
 
-With that, I suddenly had a lot of free time on my hands. Time to think. Time to worry. What I was going through, of course, was far from normal. I couldn't even walk into a grocery store and buy a carton of eggs without drawing stares. Children and small animals feared me. I visited the doctor again, but they were totally puzzled. I went through all their tests, all their scans, but in the end all they could do was shrug their shoulders and tell me to get more fiber. Even my friends seemed uncomfortable when I was around. I began to go out less and less, all the while afraid that a day might come when the cracking turns to breaking and my joints simply cease to function.
+I am eighteen years old now. Up until yesterday, I was only days away from leaving for college. Getting accepted into a university hours away from the village was my only escape plan, but My sister is fourteen, and leaving her behind was the hardest decision of my life, so we spent the last few weeks secretly discussing how she could eventually join me once she graduated high school.
 
-The days in my apartment felt like torture. It was that sound, that horrible creaking, every time I so much as moved a muscle. I couldn't escape it, and now that I was alone it was hard to just laugh it off. Plugging my ears did nothing since the sound came from within, like one’s own heartbeat. Instead, I tried to drown it out with noise, specifically harsh noise via the works of the musical visionary Masami Akita. Of course, that didn’t work when I was trying to sleep. Once I’d found a comfortable position I would try my best not to move out of it, but even then I’d often wake up to a loud cracking, look at the clock, and realize that it was two in the morning. My quality of sleep was poor, to say the least.
+And of course, my parents hated the idea of me leaving. They tried everything to keep me at home. They offered to buy me a new car if I stayed in the village, cried endlessly and begged me to reconsider my plans. My dad would sit in the living room in the dark, staring blankly at the walls whenever my departure date was mentioned, and my mother would leave passive-aggressive notes on my bedroom door, reminding me about the dangers of city life, and above all of that the entire village seemed to mourn my upcoming departure. Neighbors would stop me on the dirt roads and tell me I was making a terrible mistake.
 
-Eventually it reached the point where I was only sleeping, well, maybe two or three hours per night. The cracking woke me up, the lack of sleep made me more sensitive to the cracking, the cracking woke me up more often than before, and so it created this feedback loop that seemed like it could only end in disaster. As a person who works with pharmaceuticals I knew that trying to medicate myself into a good night’s sleep was a terrible idea. Instead, I decided, I would tire myself out through exercise.
+A few nights ago, the strange behavior escalated into something genuinely terrifying.
 
-There's a lake near my apartment, and at night the place is totally deserted. That seemed like a good place to go. And go I went, each night out to that lake. I ran and I ran, around and around until I felt like I was going to pass out. When I got back to my apartment, sometimes I would just collapse on the floor then and there, but what mattered was that I slept soundly and without interruption. With each passing day I could feel my sanity returning, and the creaking of my joints bothered me just a bit less than the day before. In fact, I soon came to a certain realization. The cracking and the popping, there was something… beautiful about it. Maybe it was because the acoustics were better out near that lake, being all open and shit, but each of my joints made a slightly different sound. The pitch, the timbre of the joint at my left elbow was not the same as that of my left shoulder, and neither of these was identical to that of my right hip. And together, with all of my joints working with their comrades, they formed a symphony. The simple act of walking - no, my very existence - was musical.
+The house was completely quiet after midnight. I was sitting on my bedroom floor, carefully packing my clothes into a suitcase. My sister gently knocked on my door and quickly slipped inside. She was trembling uncontrollably and completely soaking wet, wrapped tightly in a bath towel. She was crying so hysterically she could barely form a coherent sentence.
 
-That realization marked the end of my self-imposed exile. Even if others stared, it didn’t really bother me. They simply didn’t understand, is what I told myself. Some forms of music are an acquired taste. And as I’ve explored the melodies my body can produce, I’ve found a new appreciation for the small things. Putting on a pair of pants, opening a door, walking up stairs, movements that would mean nothing to the average person all carry with them a unique tune, a unique texture that I now find myself looking forward to hearing every single time. Getting into bed and trying to find a comfortable position, an act that nearly drove me insane a month ago, now sounds to my ears as though it were a lullaby.
+I asked her what had happened, guiding her to sit on the edge of my bed. She took a shuddering breath and explained that our mother had drawn a bath for her earlier in the evening, and while my sister was washing her hair, our mother walked into the bathroom and calmly pushed her head completely underwater. My sister thought it was a joke at first, but the grip on her neck tightened. She fought and thrashed against the porcelain tub, but our mother held her down with terrifying strength until she actually passed out from lack of oxygen.
 
-Only, there’s one other thing. I noticed it the night before last, as I was lying in bed. I was wiggling around, of course. Once I’d found the right position I closed my eyes and began to drift away. And yet, in that silence, I heard something far, far away. A familiar sound, the sound of cracking and creaking, a melody not unlike the one I’d produced moments ago. It continued for a few seconds, then stopped. I was curious, to say the least. Maybe I was imagining things. So, I shifted around some more. And, as if in response, I heard that sound again, so distant yet so…  focused? Directed? Whatever it was, it was clearly aimed at me. The exchange continued for a while after that, and as it did I could feel my stomach sinking lower and lower. At last I laid still, but that sound, whatever it was, repeated a few times before seeming to give up.
+When my sister finally regained consciousness on the bathroom tiles, she found our mother stroking her wet hair, then our mother smiled sweetly and told her she was simply teaching her how to breathe at home.
 
-I got a call yesterday from my employer, they said they hoped I’d used my time well and that they were ready to give me another “chance”. I wasn’t really paying attention. The sounds that I’d heard the night before - not from me, but from whatever else was out there - that was all I could really think about. The day, though, it’s far too noisy. People, cars, birds. All I could do was wait. And as soon as night fell and all became silent, I leapt into bed and waited. Sure enough, in response to my own creaking there was a creaking from somewhere distant. Except, it wasn’t quite as distant as it had been the night before, that much I’m sure of. And so, as I tried to sleep, my mind was left to race. The noises that are coming out of my body - the pitches, the patterns - perhaps they’re some kind of signal. Or maybe they make up a language, something impossible for you or me to truly understand. If that’s the case, then, what am I saying, and to whom? The very thought is enough to paralyze me with fear. But maybe that’s for the better, as long as I’m not moving.
+Rage blinded me the moment she finished the story. I marched straight down the hallway and confronted my parents immediately.
+
+My dad was sitting calmly in his armchair reading a book, and my mother was standing by the window looking out at the dark water. They both looked entirely unbothered by my sudden intrusion. I shouted at them, demanding to know what happened in the bathroom, and threatened to call the police and report the abuse.
+
+My mother slowly turned away from the window with a serene smile on her face. She claimed my sister was exaggerating the situation completely. She told me they were simply doing a specialized breathing exercise to help calm my sister's anxiety about my upcoming departure.
+
+"You do not need to worry about your sister anymore," my mother said softly.
+
+ "She is finally learning how to adapt to our environment. We are making sure she never has to face the cruel world that took your brother."
+
+"You drowned her until she passed out," 
+
+I yelled, stepping closer to her. 
+
+"You are completely out of your minds. I am taking her with me when I leave."
+
+My dad closed his book and looked up at me. His expression was completely void of any emotion. 
+
+"Nobody is leaving this house,"
+
+ he stated firmly.
+
+ "The outside world is a slaughterhouse. We found peace here. You will both learn to appreciate the gifts this lake provides."
+
+Their chilling lack of emotion scared me more than their actual words. Arguing with them felt completely useless. I returned to my room and told my sister to lock her door tightly. We quietly agreed that we would both run away together the moment my departure day arrived, so 2e just had to survive a few more days in that house.
+
+The very next night, my perspective on the entire village shattered.
+
+Midnight had just passed when a strange noise woke me from a restless sleep. Hearing the front door click shut, I slipped out of bed and peered through my bedroom window. The sight of my parents walking toward the water sent a deep chill down my spine. They were wearing their normal daytime clothes, walking perfectly in sync down the dirt path leading to the lake.
+
+I knew they were hiding something terrible. Grabbing a flashlight from my desk, I kept it turned off and quietly followed them outside into the cold night air.
+
+The forest was freezing and entirely devoid of light. The wind rustled loudly through the pine branches, masking the sound of my footsteps. As I crept closer to the shoreline, a bizarre splashing sound echoed from the water. It sounded like dozens of people wading through the shallows.
+
+I moved carefully through the dense woods and hid behind a thick patch of tall reeds near the edge of the shore. Peering through the vegetation, my blood ran completely cold.
+
+My parents were standing chest-deep in the freezing black water. They were definitely not alone. Every single adult from the village was out there in the lake with them. The villagers were all standing in a massive semicircle, facing the deeper section of the water. The moonlight illuminated their pale faces. They were hacking and coughing violently, their bodies convulsing with sickening force.
+
+One by one, the adults started vomiting thick black mud directly into the pristine water. The sound of the sludge hitting the surface was absolutely nauseating. My parents joined in, expelling massive amounts of the dark substance from their mouths.
+
+The surface of the lake began to bubble wildly just beyond the semicircle of villagers.
+
+A colossal, bloated creature breached the surface with a deafening splash. The monster was massive, towering over the adults in the water. Its pale, gelatinous skin glistened under the moonlight, covered in thick veins that pulsed rapidly. The creature possessed a huge, milky eye that darted frantically around the shoreline. It opened a gaping; circular mouth lined with rows of jagged cartilage.
+
+The monster lowered its head and began consuming the black mud the villagers were expelling. It sucked the sludge from the water with horrifying desperation.
+
+Standing on a wooden dock nearby was the village priest. He was dressed in his usual Sunday robes, completely dry and observing the horrifying spectacle. He raised his hands toward the sky and began shouting a sermon over the churning water.
+
+"The God of the Lake demands a toll!" 
+
+the priest bellowed, his voice echoing off the surrounding trees.
+
+"The outside world takes our precious blood. The concrete cities crush our innocent joy. We came to the water for healing, and the water provided its terms. The God demands the children who attempt to leave the water's edge. He demands the ones who reject the sanctuary of the deep."
+
+The villagers moaned in response, continuing to feed the massive entity with the foul mud from their lungs.
+
+"In return for your loyal offerings,"
+
+ the priest continued, pointing directly at the bloated monster, 
+
+"The God of the Lake will grant you eternal children. The sacrifice of their human frailty will bring forth offspring who will never grow up. They will never leave your side. They will remain in the safety of the black water forever."
+
+I realized with horror that they were talking about me and my sister. Panic overtook my senses. Backing away from the reeds, I turned and sprinted blindly through the dark woods. Branches whipped against my face and tore at my clothes, but I did not stop until I reached the back door of our house.
+
+I ran straight down the hallway to my sister's room and shook her awake. She sat up groggily, rubbing her eyes.
+
+"We have to leave right now,"
+
+ I whispered frantically, pulling her out of bed. 
+
+"Put your shoes on. Do not pack anything. We are leaving the village tonight."
+
+She saw the sheer terror in my eyes and immediately obeyed. While she was tying her sneakers, the front door of the house creaked open.
+
+My heart pounded furiously. We walked out into the hallway and saw our parents standing near the living room entrance. They were soaking wet and completely covered in the foul black mud from the lake.
+
+They had brought things into the house with them.
+
+Standing directly behind my parents were several humanoid creatures. The entities were translucent, allowing me to see their internal organs shifting beneath their slimy skin. They possessed webbed hands with elongated fingers. Deep, red gills pulsated rapidly on the sides of their necks. The creatures stared at us with unblinking, milky eyes that looked exactly like the giant monster in the lake.
+
+"Do not be afraid of them," 
+
+my dad said, gesturing calmly toward the translucent beings in the hallway. He smiled at them with genuine affection.
+
+ "These are the drowned ancestors. They came up from the deep water tonight to help you both with your transition."
+
+“What? are you insane?”
+
+I screamed at him
+
+"The departure date is canceled,"
+
+ my dad said smoothly, wiping a streak of black mud from his forehead.
+
+ "You are not going to any college. The outside world is too unpredictable. You will stay here with us, safe and perfect forever."
+
+My mother pointed a trembling finger toward the bathroom door.
+
+ "Get into the tub,"
+
+ she demanded. Her voice held a sinister edge that I had never heard before. 
+
+"It is time for both of you to undergo the change. The ancestors will show you how to breathe the black water."
+
+The translucent creatures took a synchronized step forward. Their wet feet slapped loudly against the hardwood floor.
+
+"We are not doing this," 
+
+I stated, pushing my sister behind me to shield her.
+
+ "You are completely insane. We are leaving."
+
+"You cannot fight the water," 
+
+the priest's voice suddenly called out from the front porch. He stepped into the doorway, blocking our only clear exit.
+
+ "The parents have made their offering. The God has accepted the terms. Submit to the change, children."
+
+The creatures lunged toward us with startling speed.
+
+Acting entirely on instinct, I grabbed a solid brass lamp from the hallway table and swung it violently. The heavy base connected with the nearest creature's head, sending it crashing into the wall with a sickening squelch.
+
+Without hesitating, I hurled the lamp through the large window at the end of the corridor. The glass shattered outward into the yard. I grabbed my sister by the waist and pushed her roughly through the broken frame. She tumbled onto the damp grass outside. I climbed out immediately after her, ignoring the shards of glass tearing at my jeans.
+
+"Run to the docks!"
+
+ I yelled at her, grabbing her hand and pulling her toward the water.
+
+The forest road leading out of the village was several miles long and went directly past the homes of every adult involved in the ritual. I knew our only chance of escaping was crossing the lake to reach the state highway on the opposite shore.
+
+We sprinted through the dark yards, hearing the angry shouts of my parents and the priest echoing behind us. The village adults started emerging from the woods, running toward us from the shoreline.
+
+We reached the main wooden dock where several boats were moored. I spotted a motorized fishing boat tied to the furthest post. I shoved my sister toward the vessel and frantically began untying the thick mooring ropes.
+
+"They are coming!" 
+
+my sister screamed, pointing back at the shoreline.
+
+Dozens of villagers were sprinting down the wooden planks of the dock. My parents were leading the charge, flanked by the translucent creatures. Their faces were twisted in furious desperation.
+
+I threw the ropes aside and jumped into the boat, then grabbed the pull cord for the outboard motor and yanked it. The engine sputtered but refused to start.
+
+The villagers were closing the distance rapidly. My dad reached the end of the dock and leaped toward our boat, his hands outstretched to grab the fiberglass hull.
+
+I yanked the cord a second time. The engine roared to life, so I slammed the throttle forward, spinning the steering wheel aggressively. The propeller churned the water, shooting the boat forward just as my dad's fingers grazed the side. He splashed into the lake, screaming my name as we sped away into the darkness.
+
+The cold wind whipped against our faces as the boat bounced over the choppy surface. I kept the throttle pushed to the maximum limit, steering directly toward the faint lights of the highway in the far distance.
+
+My sister huddled on the floor of the boat, crying into her knees. I told her to hold on tight, praying the fuel tank would last until we reached the opposite shore.
+
+We made it roughly halfway across the lake when the water beneath us began to behave unnaturally.
+
+The surface of the lake started to swell in a massive dome directly in front of our path. The boat pitched violently upward as the water displaced.
+
+The colossal, bloated creature was attempting to surface directly beneath us.
+
+The sheer size of the monster became horrifyingly apparent as its pale, gelatinous back broke the surface. The hull of our small fishing boat scraped against the creature's slick flesh. The boat tipped dangerously to the left, threatening to capsize us into the freezing depths.
+
+The monster raised its massive head, bringing its gaping, circular mouth dangerously close to the starboard side. 
+
+I desperately searched the small cabin for anything useful. Tucked underneath the driver's seat was a bright orange emergency kit. I ripped the plastic box open and pulled out a standard marine flare gun.
+
+The creature shifted its massive bulk, turning its head to look directly down at our boat. Its huge, milky eye locked onto my sister. The gelatinous flesh around its mouth twitched as it prepared to strike.
+
+I stood up, balancing against the severe tilt of the deck, aimed the plastic flare gun directly into the center of the creature's massive eye and pulled the trigger.
+
+The bright red flare shot out with a loud pop. The burning projectile embedded itself deeply into the monster's soft eye.
+
+The creature thrashed wildly in agonizing pain. The intense chemical fire hissed against the wet flesh, illuminating the dark lake with a blinding crimson glow. The monster released a deafening, vibrating shriek that rattled the metal fittings of the boat. It rolled aggressively away from us, sinking rapidly back into the depths to extinguish the burning flare.
+
+The boat slammed back down onto the surface of the water with a bone-jarring impact. I immediately corrected the steering and pushed the throttle forward again.
+
+We did not look back. We sped across the remaining distance as fast as the small engine allowed. The boat eventually crashed hard into the muddy bank of the opposite shore.
+
+I grabbed my sister and we scrambled out of the vessel. We abandoned the boat in the shallows and ran relentlessly through the dense trees until we finally broke through the tree line and hit the paved asphalt of the state highway.
+
+We managed to flag down a passing commercial trucker who took pity on two soaking wet teenagers. He drove us several towns over and dropped us off near this cheap motel. We used the emergency cash I had saved for college to rent a room for the week.
+
+We thought we were finally safe. We thought leaving the village meant leaving the nightmare behind.
+
+But the change my mother talked about has clearly already started inside my sister. 
+
+I am writing this detailed account because I am completely out of options. I don’t think Traditional doctors cannot fix this, and a hospital will just ask questions I cannot reasonably answer without being locked in a psychiatric ward.
+
+If anyone reading this forum studies the occult, or recognizes the ritual I described, please send me a message immediately. 
+
+I promised I would protect her from our parents, but I do not know how to protect her from what is happening to her.
