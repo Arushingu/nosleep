@@ -1,208 +1,108 @@
-# My mother held my sister underwater to 'teach her how to breathe.' Now she's coughing up black mud.
-My sister is currently sleeping in the bed next to me. We are hiding inside a cheap motel room located just off the interstate. Nobody in the medical field can figure out what is wrong with her. She just spent the last hour leaning over the bathroom sink, coughing up clumps of thick black mud. Her skin is starting to peel away along her forearms, and underneath the dead tissue, pale scales are growing. We need someone who understands the occult, who knows how to reverse whatever is happening to her.
+# Does anyone remember a game called Valley of Undergrove?
+I'm Jenny and I've just recently started playing Valley of Undergrove. It's a game about a white squirrel traveling the forest preparing for winter. I've been playing it for weeks now. There's so much you're able to do, like improve your relationships with the animals nearby or build up your home kinda like Stardew Valley.
 
-To explain how we ended up in this situation, you need to understand our family history. My parents always told us the outside world was entirely too dangerous for children. Long before my sister and I were born, our parents lived in a bustling major city. They had another child back then. He was killed in a hit-and-run car accident when he was only five years old, and the grief from that tragic event completely broke their minds. They immediately packed up their lives and moved to an isolated village situated on the edge of a massive black-water lake surrounded by a dense forest.
+The character I'm playing as is Quirel and every morning she writes in her journal to either start the day or to save the game. It's a relaxing game. Well, at least it was.
 
-They always claimed the village had extraordinary healing powers, and told us the water and the tight-knit community brought them peace after their devastating loss. Shortly after moving into our lakeside house, my mother got pregnant with me, and a few years later, my sister was born.
+It started having save error issues and I definitely wasn't a genius at computers. I tried to troubleshoot most of it by deleting logs within the game save history. Then I tried removing storage to make space on my computer with no luck. Eventually I had to call an old friend which I haven't seen in years. He was pretty decent at computers. "Your PC is running like shit .. when was the last time you updated it?" When he arrived the application wouldn't even open. "You remember JJ right? He gave it to me before he left..so..I guess never.." JJ is my older brother he put his knowledge to use and made the big jump into college.
 
-Growing up in the village felt incredibly suffocating. Our parents were fiercely overprotective. They refused to let us travel to the nearest town, monitored our schoolwork, controlled who we spoke to, and forbade us from going near the deeper parts of the lake. The other adults in the village shared this exact same parenting style. Every child in the community was kept under constant, suffocating surveillance.
+"Yea I remember...damn.. it's been awhile hasn't it?" Finne and JJ were two peas in a pod never one without the other. Just before JJ left for college the two didn't leave off on good terms. I didn't bother to ask why.
 
-I am eighteen years old now. Up until yesterday, I was only days away from leaving for college. Getting accepted into a university hours away from the village was my only escape plan, but My sister is fourteen, and leaving her behind was the hardest decision of my life, so we spent the last few weeks secretly discussing how she could eventually join me once she graduated high school.
+"So..can you fix it?"
 
-And of course, my parents hated the idea of me leaving. They tried everything to keep me at home. They offered to buy me a new car if I stayed in the village, cried endlessly and begged me to reconsider my plans. My dad would sit in the living room in the dark, staring blankly at the walls whenever my departure date was mentioned, and my mother would leave passive-aggressive notes on my bedroom door, reminding me about the dangers of city life, and above all of that the entire village seemed to mourn my upcoming departure. Neighbors would stop me on the dirt roads and tell me I was making a terrible mistake.
+"I think so, I might have to take it apart actually"
 
-A few nights ago, the strange behavior escalated into something genuinely terrifying.
+"Take it apart? Why?"
 
-The house was completely quiet after midnight. I was sitting on my bedroom floor, carefully packing my clothes into a suitcase. My sister gently knocked on my door and quickly slipped inside. She was trembling uncontrollably and completely soaking wet, wrapped tightly in a bath towel. She was crying so hysterically she could barely form a coherent sentence.
+"To get a better look Jenny" Finne started walking towards the door that led out of my bedroom. "I'll need to grab some of my tools.. Wait here." He was gone for awhile until I heard footsteps heading upstairs. With him was a small tool kit.
 
-I asked her what had happened, guiding her to sit on the edge of my bed. She took a shuddering breath and explained that our mother had drawn a bath for her earlier in the evening, and while my sister was washing her hair, our mother walked into the bathroom and calmly pushed her head completely underwater. My sister thought it was a joke at first, but the grip on her neck tightened. She fought and thrashed against the porcelain tub, but our mother held her down with terrifying strength until she actually passed out from lack of oxygen.
+"Why didn't you bring this upstairs in the first place?"
 
-When my sister finally regained consciousness on the bathroom tiles, she found our mother stroking her wet hair, then our mother smiled sweetly and told her she was simply teaching her how to breathe at home.
+"Didn't think I'll need it, usually it's always something simple to fix that people overlook." He shrugged while making his way over to the computer preparing to take it apart. I waited patiently for a couple of minutes as he powered down the computer and carefully pulled off the casing. "I think you might just need another SSD or an upgraded Hard Drive.."
 
-Rage blinded me the moment she finished the story. I marched straight down the hallway and confronted my parents immediately.
+"A SSD?"
 
-My dad was sitting calmly in his armchair reading a book, and my mother was standing by the window looking out at the dark water. They both looked entirely unbothered by my sudden intrusion. I shouted at them, demanding to know what happened in the bathroom, and threatened to call the police and report the abuse.
+"It's storage.."
 
-My mother slowly turned away from the window with a serene smile on her face. She claimed my sister was exaggerating the situation completely. She told me they were simply doing a specialized breathing exercise to help calm my sister's anxiety about my upcoming departure.
+"Storage? How does that work?"
 
-"You do not need to worry about your sister anymore," my mother said softly.
+"Look, you just need to buy another SSD..Then you'll be able to play your game" Finne had already started putting together the computer making sure it was still working. "Okay.." I didn't have much of an opinion, so complaining wouldn't have helped. Just before Finne finished putting away his tools I noticed his attention was elsewhere. His eyes were locked on the computer screen as if actually looking at the applications that were there.
 
- "She is finally learning how to adapt to our environment. We are making sure she never has to face the cruel world that took your brother."
+"Hey.. what game are you trying to play again? It's VOU right?" He stood up leaving his tool kit against the desk never breaking eye contact with the screen. "Yea, JJ said it was his favorite game. I thought since I'm between jobs right now I'll have a good time playing it." There was a long pause before he finally faced me fully. His face scrunched up slightly as if I did something horrible to him. His fingers wrapped around into a fist at his side. I could tell he wanted to say something, but the only thing that came out was "I see.." Finne cleared his throat grabbing his tools. " Let me know if anything changes.. good seeing you Jenny.." I didn't think to ask why he reacted in such a way, maybe I should have.
 
-"You drowned her until she passed out," 
+The next few days were difficult, I just wanted to play the game, but because I couldn't just use my computer it motivated me to actually get a job. Once my paycheck was deposited into my account I immediately placed in my order for a new Hard Drive. The smile I had when my eyes landed on the Amazon truck passing by was stupidly pathetic. Of course I had texted Finne before it actually was delivered. He didn't answer me and I wasn't going to wait for him. It took me a couple of hours to understand how to take the casing off without breaking the whole computer. I was fortunate enough that the Hard Drive had its own tool kit.
 
-I yelled, stepping closer to her. 
+When I finally turned on the computer after trial and error it was working better than ever. Valley of Undergrove loaded up fine, but my save files were gone. I didn't mind. There were multiple endings so I didn't lose out too much.
 
-"You are completely out of your minds. I am taking her with me when I leave."
+"Dear Diary, Winter is coming soon! I'm so excited. Chuck Chuck Jr wants help at Town Hall. There's so much to prepare for, The festival is coming in two days." Words faded in as the intro showed bright green leaves and yellow flowers across Undergrove. Then the screen stopped at a window before zooming in. Quirel closed her book, placed it away, and moved to the middle of her treehouse.
 
-My dad closed his book and looked up at me. His expression was completely void of any emotion. 
+"Finally.." I breathed out before speed running the tutorial. I did the basic task such as helping Chuck Chuck Jr with setting up festival decorations. Completing tasks with Marybeth, gathering berries for her very berry pie. Then playing a mini game at the pond with Farry The Hairy Bear. I played for hours until the sun had set for the day.
 
-"Nobody is leaving this house,"
+"Dear Diary, Yesterday was a blast! Marybeth was very thankful for the help...but..I didn't give my offering. Will I be punished?"
 
- he stated firmly.
+I had paused the game for a moment a bit confused "offering? I wasn't told about an offering..did I miss an interaction?" I figured that I would eventually find out what I missed by playing through the day 2. This time I was being very thorough. The Town Hall was pretty much the same, as well as the Barry Bakery AKA the Berry Patch, and the pond had the same fishing poles I couldn't interact with. "Maybe there's a hidden pathway?" Just as I started pushing my character alongside the borders of the game. I heard a ring. It was my phone. I didn't bother to see who it was. 
 
- "The outside world is a slaughterhouse. We found peace here. You will both learn to appreciate the gifts this lake provides."
+"Hello?"
 
-Their chilling lack of emotion scared me more than their actual words. Arguing with them felt completely useless. I returned to my room and told my sister to lock her door tightly. We quietly agreed that we would both run away together the moment my departure day arrived, so 2e just had to survive a few more days in that house.
+"What. The FUCK . JENNY!"
 
-The very next night, my perspective on the entire village shattered.
+"Whoa, Finne? What's up?.."
 
-Midnight had just passed when a strange noise woke me from a restless sleep. Hearing the front door click shut, I slipped out of bed and peered through my bedroom window. The sight of my parents walking toward the water sent a deep chill down my spine. They were wearing their normal daytime clothes, walking perfectly in sync down the dirt path leading to the lake.
+"I've been texting you all night!"
 
-I knew they were hiding something terrible. Grabbing a flashlight from my desk, I kept it turned off and quietly followed them outside into the cold night air.
+"Sorry, I've been playing the game. What do you need?"
 
-The forest was freezing and entirely devoid of light. The wind rustled loudly through the pine branches, masking the sound of my footsteps. As I crept closer to the shoreline, a bizarre splashing sound echoed from the water. It sounded like dozens of people wading through the shallows.
+"Do you realize what time it is?"
 
-I moved carefully through the dense woods and hid behind a thick patch of tall reeds near the edge of the shore. Peering through the vegetation, my blood ran completely cold.
+"Yea, it's 8:35pm" While I had Finne on the other end of the phone. I glanced at the clock shown on the top right corner of the computer screen. "I don't understand why you're freaking out..is it because you didn't get to use your baby tools on my computer?" 
 
-My parents were standing chest-deep in the freezing black water. They were definitely not alone. Every single adult from the village was out there in the lake with them. The villagers were all standing in a massive semicircle, facing the deeper section of the water. The moonlight illuminated their pale faces. They were hacking and coughing violently, their bodies convulsing with sickening force.
+"Jennifer.." his voice was hoarse "It's 3am right now.."
 
-One by one, the adults started vomiting thick black mud directly into the pristine water. The sound of the sludge hitting the surface was absolutely nauseating. My parents joined in, expelling massive amounts of the dark substance from their mouths.
+I thought he was joking at first until I looked outside my window. It was pitch black. I didn't understand how.
 
-The surface of the lake began to bubble wildly just beyond the semicircle of villagers.
+"I guess it slipped by me.." Valley of Undergrove was still playing in the background before I finally saved and exited out of the game. There was a warning.
 
-A colossal, bloated creature breached the surface with a deafening splash. The monster was massive, towering over the adults in the water. Its pale, gelatinous skin glistened under the moonlight, covered in thick veins that pulsed rapidly. The creature possessed a huge, milky eye that darted frantically around the shoreline. It opened a gaping; circular mouth lined with rows of jagged cartilage.
+"Caution: Without giving an offering before 11am Central standard Time tomorrow there would be consequences" 
 
-The monster lowered its head and began consuming the black mud the villagers were expelling. It sucked the sludge from the water with horrifying desperation.
+"Hel#..are you sti# there?...did we lo# con#ction?" Finne was breaking up on the other end. "If y#u're still there go to bed, I'll see y#u in the mo#ning." Then the phone hung up.
 
-Standing on a wooden dock nearby was the village priest. He was dressed in his usual Sunday robes, completely dry and observing the horrifying spectacle. He raised his hands toward the sky and began shouting a sermon over the churning water.
+I decided it was best to call it a night and turn off the computer. When I finally woke up to what was left of that morning my room felt cold. The computer screen was still turned off and for once I didn't want to play VOU. The day went as normal I brewed some coffee before Finne arrived through the front door."Sorry for missing your texts last nigh-" before I could even finish my sentence Finne walked upstairs towards my room. Coffee cup still in hand I followed him upstairs. I nudged the door slightly with my foot looking at the back of his head sitting directly in my chair. He was deadly focused on the computer screen. It scared me. It took me a minute to build up the courage to walk further into the room to look over his shoulders. He was coding? Or that's what it looked like anyway.
 
-"The God of the Lake demands a toll!" 
+"Um..Finne?"
 
-the priest bellowed, his voice echoing off the surrounding trees.
+He said nothing.
 
-"The outside world takes our precious blood. The concrete cities crush our innocent joy. We came to the water for healing, and the water provided its terms. The God demands the children who attempt to leave the water's edge. He demands the ones who reject the sanctuary of the deep."
+"Hey.."
 
-The villagers moaned in response, continuing to feed the massive entity with the foul mud from their lungs.
+He didn't respond..
 
-"In return for your loyal offerings,"
+"Will you just tell me what's going on??" I snapped at him slamming my coffee cup against the desk by the computer. "Watch it!?" Was the only thing that came out of his mouth grabbing the cup. "I'm just updating your computer.. okay.." He finished. Pushing himself away from the computer screen. I was pissed, angry at the fact that he wasn't telling me the full truth. The worst part was that he knew I didn't believe him and he still was keeping something from me.
 
- the priest continued, pointing directly at the bloated monster, 
+"Is this the reason why JJ and you stop being friends? Were you keeping something from him too?" Maybe I shouldn't have spoken to him that way. 
 
-"The God of the Lake will grant you eternal children. The sacrifice of their human frailty will bring forth offspring who will never grow up. They will never leave your side. They will remain in the safety of the black water forever."
+"Don't.."
 
-I realized with horror that they were talking about me and my sister. Panic overtook my senses. Backing away from the reeds, I turned and sprinted blindly through the dark woods. Branches whipped against my face and tore at my clothes, but I did not stop until I reached the back door of our house.
+"Don't want? Because it seems to me that's exactly what happened" 
 
-I ran straight down the hallway to my sister's room and shook her awake. She sat up groggily, rubbing her eyes.
+"You know what, the only reason I'm sticking around is because you're his sister.... Uninstall Valley of Undergrove tonight.." he didn't say anything else. He just left. 
 
-"We have to leave right now,"
+The rest of the day I went to work thinking that maybe I pushed him too far. I tried to distract myself with conversation with my co-workers. Then I answered inbound calls and handled billing tickets as well as rescheduling clients. When it was time to go home the inside of the house felt foreign to me. I placed my keys on the hanger and put away my bag before heading upstairs. There was a blue light emanating from my bedroom. "What the.." I walked inside the room expecting the computer screen to be in rest mode, but instead there it was Valley of Undergrove open to its main menu. 'I should uninstall it..' I thought for a moment which definitely didn't stay for long. Why? Because I was sitting at the desk playing the game.
 
- I whispered frantically, pulling her out of bed. 
+"Dear Diary, I'm running out of time for my offering! I need to find something suitable to put on the tribute at Town Hall! Oh no!"
 
-"Put your shoes on. Do not pack anything. We are leaving the village tonight."
+There it was, a hint. It was just enough for me to get hooked again. While searching through the map I found three items, a flower, some berry pie, and a note. The note reads " Reminder: Remember to bring a candle next time you see Marybeth!" I quickly tried all the items at the Town Hall tribute. 
 
-She saw the sheer terror in my eyes and immediately obeyed. While she was tying her sneakers, the front door of the house creaked open.
+Nothing happened..
 
-My heart pounded furiously. We walked out into the hallway and saw our parents standing near the living room entrance. They were soaking wet and completely covered in the foul black mud from the lake.
+"What the hell am I supposed to do!" 
 
-They had brought things into the house with them.
+"Hell is a bad wooord!!"
 
-Standing directly behind my parents were several humanoid creatures. The entities were translucent, allowing me to see their internal organs shifting beneath their slimy skin. They possessed webbed hands with elongated fingers. Deep, red gills pulsated rapidly on the sides of their necks. The creatures stared at us with unblinking, milky eyes that looked exactly like the giant monster in the lake.
+Through my speakers there was a voice, it sounded like a little girl or a chipmunk. At first I thought I was hallucinating. I wasn't. Quirel started moving around the screen by herself taking my computer mouse with it. 
 
-"Do not be afraid of them," 
+"Quick! I must find an offering! Jennife-!"
 
-my dad said, gesturing calmly toward the translucent beings in the hallway. He smiled at them with genuine affection.
+Without any hesitation I quickly exit out of the game entirely. Then I uninstalled it before turning off my computer and unplugging it fully. 
 
- "These are the drowned ancestors. They came up from the deep water tonight to help you both with your transition."
+Has anyone experienced anything like this with Valley of Undergrove? 
 
-“What? are you insane?”
-
-I screamed at him
-
-"The departure date is canceled,"
-
- my dad said smoothly, wiping a streak of black mud from his forehead.
-
- "You are not going to any college. The outside world is too unpredictable. You will stay here with us, safe and perfect forever."
-
-My mother pointed a trembling finger toward the bathroom door.
-
- "Get into the tub,"
-
- she demanded. Her voice held a sinister edge that I had never heard before. 
-
-"It is time for both of you to undergo the change. The ancestors will show you how to breathe the black water."
-
-The translucent creatures took a synchronized step forward. Their wet feet slapped loudly against the hardwood floor.
-
-"We are not doing this," 
-
-I stated, pushing my sister behind me to shield her.
-
- "You are completely insane. We are leaving."
-
-"You cannot fight the water," 
-
-the priest's voice suddenly called out from the front porch. He stepped into the doorway, blocking our only clear exit.
-
- "The parents have made their offering. The God has accepted the terms. Submit to the change, children."
-
-The creatures lunged toward us with startling speed.
-
-Acting entirely on instinct, I grabbed a solid brass lamp from the hallway table and swung it violently. The heavy base connected with the nearest creature's head, sending it crashing into the wall with a sickening squelch.
-
-Without hesitating, I hurled the lamp through the large window at the end of the corridor. The glass shattered outward into the yard. I grabbed my sister by the waist and pushed her roughly through the broken frame. She tumbled onto the damp grass outside. I climbed out immediately after her, ignoring the shards of glass tearing at my jeans.
-
-"Run to the docks!"
-
- I yelled at her, grabbing her hand and pulling her toward the water.
-
-The forest road leading out of the village was several miles long and went directly past the homes of every adult involved in the ritual. I knew our only chance of escaping was crossing the lake to reach the state highway on the opposite shore.
-
-We sprinted through the dark yards, hearing the angry shouts of my parents and the priest echoing behind us. The village adults started emerging from the woods, running toward us from the shoreline.
-
-We reached the main wooden dock where several boats were moored. I spotted a motorized fishing boat tied to the furthest post. I shoved my sister toward the vessel and frantically began untying the thick mooring ropes.
-
-"They are coming!" 
-
-my sister screamed, pointing back at the shoreline.
-
-Dozens of villagers were sprinting down the wooden planks of the dock. My parents were leading the charge, flanked by the translucent creatures. Their faces were twisted in furious desperation.
-
-I threw the ropes aside and jumped into the boat, then grabbed the pull cord for the outboard motor and yanked it. The engine sputtered but refused to start.
-
-The villagers were closing the distance rapidly. My dad reached the end of the dock and leaped toward our boat, his hands outstretched to grab the fiberglass hull.
-
-I yanked the cord a second time. The engine roared to life, so I slammed the throttle forward, spinning the steering wheel aggressively. The propeller churned the water, shooting the boat forward just as my dad's fingers grazed the side. He splashed into the lake, screaming my name as we sped away into the darkness.
-
-The cold wind whipped against our faces as the boat bounced over the choppy surface. I kept the throttle pushed to the maximum limit, steering directly toward the faint lights of the highway in the far distance.
-
-My sister huddled on the floor of the boat, crying into her knees. I told her to hold on tight, praying the fuel tank would last until we reached the opposite shore.
-
-We made it roughly halfway across the lake when the water beneath us began to behave unnaturally.
-
-The surface of the lake started to swell in a massive dome directly in front of our path. The boat pitched violently upward as the water displaced.
-
-The colossal, bloated creature was attempting to surface directly beneath us.
-
-The sheer size of the monster became horrifyingly apparent as its pale, gelatinous back broke the surface. The hull of our small fishing boat scraped against the creature's slick flesh. The boat tipped dangerously to the left, threatening to capsize us into the freezing depths.
-
-The monster raised its massive head, bringing its gaping, circular mouth dangerously close to the starboard side. 
-
-I desperately searched the small cabin for anything useful. Tucked underneath the driver's seat was a bright orange emergency kit. I ripped the plastic box open and pulled out a standard marine flare gun.
-
-The creature shifted its massive bulk, turning its head to look directly down at our boat. Its huge, milky eye locked onto my sister. The gelatinous flesh around its mouth twitched as it prepared to strike.
-
-I stood up, balancing against the severe tilt of the deck, aimed the plastic flare gun directly into the center of the creature's massive eye and pulled the trigger.
-
-The bright red flare shot out with a loud pop. The burning projectile embedded itself deeply into the monster's soft eye.
-
-The creature thrashed wildly in agonizing pain. The intense chemical fire hissed against the wet flesh, illuminating the dark lake with a blinding crimson glow. The monster released a deafening, vibrating shriek that rattled the metal fittings of the boat. It rolled aggressively away from us, sinking rapidly back into the depths to extinguish the burning flare.
-
-The boat slammed back down onto the surface of the water with a bone-jarring impact. I immediately corrected the steering and pushed the throttle forward again.
-
-We did not look back. We sped across the remaining distance as fast as the small engine allowed. The boat eventually crashed hard into the muddy bank of the opposite shore.
-
-I grabbed my sister and we scrambled out of the vessel. We abandoned the boat in the shallows and ran relentlessly through the dense trees until we finally broke through the tree line and hit the paved asphalt of the state highway.
-
-We managed to flag down a passing commercial trucker who took pity on two soaking wet teenagers. He drove us several towns over and dropped us off near this cheap motel. We used the emergency cash I had saved for college to rent a room for the week.
-
-We thought we were finally safe. We thought leaving the village meant leaving the nightmare behind.
-
-But the change my mother talked about has clearly already started inside my sister. 
-
-I am writing this detailed account because I am completely out of options. I don’t think Traditional doctors cannot fix this, and a hospital will just ask questions I cannot reasonably answer without being locked in a psychiatric ward.
-
-If anyone reading this forum studies the occult, or recognizes the ritual I described, please send me a message immediately. 
-
-I promised I would protect her from our parents, but I do not know how to protect her from what is happening to her.
+I think Finne could be messing with me...I never knew he was this good with computers. I've tried calling my brother to see if he knew anything about VOU. He didn't answer. I guess it's to be expected especially with exams coming up. I also tried texting Finne, but he's also not responding.. probably still upset with me.
