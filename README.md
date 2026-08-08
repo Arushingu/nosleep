@@ -1,108 +1,80 @@
-# Does anyone remember a game called Valley of Undergrove?
-I'm Jenny and I've just recently started playing Valley of Undergrove. It's a game about a white squirrel traveling the forest preparing for winter. I've been playing it for weeks now. There's so much you're able to do, like improve your relationships with the animals nearby or build up your home kinda like Stardew Valley.
+# They told us not to look down. I did it anyway. Now it's climbing toward me.
+We were a group of urban explorers in the Carpathians - the kind of idiots who break into abandoned uranium mines from the 1980s. Places the army seals off with warnings: "Access Forbidden - Risk of Collapse and Radiation." We had cheap Geiger counters and the courage of drunk men.
 
-The character I'm playing as is Quirel and every morning she writes in her journal to either start the day or to save the game. It's a relaxing game. Well, at least it was.
+Our leader, a guy who had served in the French Foreign Legion before returning home, warned us right before we climbed down the rusted iron ladder into the main shaft:
 
-It started having save error issues and I definitely wasn't a genius at computers. I tried to troubleshoot most of it by deleting logs within the game save history. Then I tried removing storage to make space on my computer with no luck. Eventually I had to call an old friend which I haven't seen in years. He was pretty decent at computers. "Your PC is running like shit .. when was the last time you updated it?" When he arrived the application wouldn't even open. "You remember JJ right? He gave it to me before he left..so..I guess never.." JJ is my older brother he put his knowledge to use and made the big jump into college.
+"Whatever you do, don't look down. There's only darkness and echoes down there. If you look, something will look back."
 
-"Yea I remember...damn.. it's been awhile hasn't it?" Finne and JJ were two peas in a pod never one without the other. Just before JJ left for college the two didn't leave off on good terms. I didn't bother to ask why.
+We laughed. Everyone laughed. He didn't.
 
-"So..can you fix it?"
+We'd been descending for about 40 minutes. The ladder seemed endless. Our headlamps cast weak circles on the damp stone walls covered in a black moss that seemed to twitch if you stared at it too long. The air smelled of old metal and something sickly sweet, like meat left out in the sun. At one point, Mihai - the youngest - started breathing hard.
 
-"I think so, I might have to take it apart actually"
+"Guys... does it feel like something is watching us?"
 
-"Take it apart? Why?"
+"Shut the fuck up," the ex-Legionnaire snapped. "And don't look down."
 
-"To get a better look Jenny" Finne started walking towards the door that led out of my bedroom. "I'll need to grab some of my tools.. Wait here." He was gone for awhile until I heard footsteps heading upstairs. With him was a small tool kit.
+I was third on the ladder. Below me was pure blackness. My light hadn't reached the bottom in a long time. It was like the shaft swallowed the beam. That stupid curiosity started gnawing at me. "What if I look for just a split second? Just to see how deep it really is."
 
-"Why didn't you bring this upstairs in the first place?"
+I leaned slightly and pointed my lamp straight down.
 
-"Didn't think I'll need it, usually it's always something simple to fix that people overlook." He shrugged while making his way over to the computer preparing to take it apart. I waited patiently for a couple of minutes as he powered down the computer and carefully pulled off the casing. "I think you might just need another SSD or an upgraded Hard Drive.."
+For a moment, I saw nothing. Just void.
 
-"A SSD?"
+Then it moved.
 
-"It's storage.."
+Something massive and pale, like a jointless arm far too long, jerked back out of the light. It wasn't human. It wasn't animal. It was as if living flesh had twisted itself into a shape that should never exist. And in the middle of that mass, I saw eyes. Too many. Some still opening.
 
-"Storage? How does that work?"
+I froze. My heart slammed against my ribs. A cold feeling crawled up my spine.
 
-"Look, you just need to buy another SSD..Then you'll be able to play your game" Finne had already started putting together the computer making sure it was still working. "Okay.." I didn't have much of an opinion, so complaining wouldn't have helped. Just before Finne finished putting away his tools I noticed his attention was elsewhere. His eyes were locked on the computer screen as if actually looking at the applications that were there.
+"What did you see?" the Legionnaire whispered from above, his voice suddenly different.
 
-"Hey.. what game are you trying to play again? It's VOU right?" He stood up leaving his tool kit against the desk never breaking eye contact with the screen. "Yea, JJ said it was his favorite game. I thought since I'm between jobs right now I'll have a good time playing it." There was a long pause before he finally faced me fully. His face scrunched up slightly as if I did something horrible to him. His fingers wrapped around into a fist at his side. I could tell he wanted to say something, but the only thing that came out was "I see.." Finne cleared his throat grabbing his tools. " Let me know if anything changes.. good seeing you Jenny.." I didn't think to ask why he reacted in such a way, maybe I should have.
+"N-nothing," I lied. But it was already too late.
 
-The next few days were difficult, I just wanted to play the game, but because I couldn't just use my computer it motivated me to actually get a job. Once my paycheck was deposited into my account I immediately placed in my order for a new Hard Drive. The smile I had when my eyes landed on the Amazon truck passing by was stupidly pathetic. Of course I had texted Finne before it actually was delivered. He didn't answer me and I wasn't going to wait for him. It took me a couple of hours to understand how to take the casing off without breaking the whole computer. I was fortunate enough that the Hard Drive had its own tool kit.
+From below came the first sound - a slow, wet scraping, like nails on a chalkboard but moist. Like something huge dragging itself up the stone. The ladder vibrated faintly. Not like an earthquake. Like a pulse.
 
-When I finally turned on the computer after trial and error it was working better than ever. Valley of Undergrove loaded up fine, but my save files were gone. I didn't mind. There were multiple endings so I didn't lose out too much.
+We started climbing faster. No one spoke. Just heavy breathing and the clang of boots on metal. The sound from below grew clearer. Closer. Sometimes it stopped. Then it continued, faster.
 
-"Dear Diary, Winter is coming soon! I'm so excited. Chuck Chuck Jr wants help at Town Hall. There's so much to prepare for, The festival is coming in two days." Words faded in as the intro showed bright green leaves and yellow flowers across Undergrove. Then the screen stopped at a window before zooming in. Quirel closed her book, placed it away, and moved to the middle of her treehouse.
+At one point, Mihai's lamp slipped. It bounced off the walls and went dark somewhere far below. We heard a soft, wet sound - like something swallowing. Then the crack of bones.
 
-"Finally.." I breathed out before speed running the tutorial. I did the basic task such as helping Chuck Chuck Jr with setting up festival decorations. Completing tasks with Marybeth, gathering berries for her very berry pie. Then playing a mini game at the pond with Farry The Hairy Bear. I played for hours until the sun had set for the day.
+Mihai screamed. Not a normal scream. The scream of a man who feels something being ripped out from inside him. He looked down. I watched his pupils dilate until they swallowed his eyes.
 
-"Dear Diary, Yesterday was a blast! Marybeth was very thankful for the help...but..I didn't give my offering. Will I be punished?"
+"It's at my feet... Jesus... it has my face... but it's smiling too wide..."
 
-I had paused the game for a moment a bit confused "offering? I wasn't told about an offering..did I miss an interaction?" I figured that I would eventually find out what I missed by playing through the day 2. This time I was being very thorough. The Town Hall was pretty much the same, as well as the Barry Bakery AKA the Berry Patch, and the pond had the same fishing poles I couldn't interact with. "Maybe there's a hidden pathway?" Just as I started pushing my character alongside the borders of the game. I heard a ring. It was my phone. I didn't bother to see who it was. 
+He fell. Or was pulled. I don't know. He vanished into the darkness with a wet thud of flesh against rock, then... nothing. Just slow, deliberate chewing.
 
-"Hello?"
+We climbed like madmen. The ladder was shaking constantly now. Whatever was down there was rising fast. Too fast.
 
-"What. The FUCK . JENNY!"
+The Legionnaire was above me. I heard him muttering a prayer in French I'd never heard before. Then he stopped.
 
-"Whoa, Finne? What's up?.."
+"Don't stop, man!" I yelled.
 
-"I've been texting you all night!"
+He turned toward me. His face... wasn't his anymore. The skin hung loose, like something was pulling it from below. His eyes were sinking into their sockets.
 
-"Sorry, I've been playing the game. What do you need?"
+"Too late," he whispered in a voice that wasn't his. "It saw you. Now it knows what you look like."
 
-"Do you realize what time it is?"
+Then he let go. Just like that. As if he wanted to go to it.
 
-"Yea, it's 8:35pm" While I had Finne on the other end of the phone. I glanced at the clock shown on the top right corner of the computer screen. "I don't understand why you're freaking out..is it because you didn't get to use your baby tools on my computer?" 
+I was alone on the ladder.
 
-"Jennifer.." his voice was hoarse "It's 3am right now.."
+I climbed with the last of my strength. My hands bled on the rusted metal. The sound was right beneath me now. I could smell it - sweet, rotten, intimate, like my own scent after death.
 
-I thought he was joking at first until I looked outside my window. It was pitch black. I didn't understand how.
+I reached the top of the shaft. I crawled out screaming. Cold rain hit my face. I ran through the abandoned gallery, jumped the fences, and sprinted through the forest until my lungs burned.
 
-"I guess it slipped by me.." Valley of Undergrove was still playing in the background before I finally saved and exited out of the game. There was a warning.
+I made it home the next day. I locked myself in. I drank. I cried.
 
-"Caution: Without giving an offering before 11am Central standard Time tomorrow there would be consequences" 
+But since then...
 
-"Hel#..are you sti# there?...did we lo# con#ction?" Finne was breaking up on the other end. "If y#u're still there go to bed, I'll see y#u in the mo#ning." Then the phone hung up.
+When I stand on my fourth-floor balcony at night and look down at the parking lot, I feel the same thing. The feeling that something is staring back.
 
-I decided it was best to call it a night and turn off the computer. When I finally woke up to what was left of that morning my room felt cold. The computer screen was still turned off and for once I didn't want to play VOU. The day went as normal I brewed some coffee before Finne arrived through the front door."Sorry for missing your texts last nigh-" before I could even finish my sentence Finne walked upstairs towards my room. Coffee cup still in hand I followed him upstairs. I nudged the door slightly with my foot looking at the back of his head sitting directly in my chair. He was deadly focused on the computer screen. It scared me. It took me a minute to build up the courage to walk further into the room to look over his shoulders. He was coding? Or that's what it looked like anyway.
+When I go down the building stairs and reach the basement, I hear the scraping. Faint. Distant. But getting closer.
 
-"Um..Finne?"
+Last night I woke up standing at the window, staring straight down into the darkness between the blocks. I don't remember getting out of bed.
 
-He said nothing.
+And something whispered in my own voice, but deeper:
 
-"Hey.."
+"Curiosity won again."
 
-He didn't respond..
+I don't sleep anymore. I don't go on the balcony. But I know it doesn't matter.
 
-"Will you just tell me what's going on??" I snapped at him slamming my coffee cup against the desk by the computer. "Watch it!?" Was the only thing that came out of his mouth grabbing the cup. "I'm just updating your computer.. okay.." He finished. Pushing himself away from the computer screen. I was pissed, angry at the fact that he wasn't telling me the full truth. The worst part was that he knew I didn't believe him and he still was keeping something from me.
+Because now it knows what I look like.
 
-"Is this the reason why JJ and you stop being friends? Were you keeping something from him too?" Maybe I shouldn't have spoken to him that way. 
-
-"Don't.."
-
-"Don't want? Because it seems to me that's exactly what happened" 
-
-"You know what, the only reason I'm sticking around is because you're his sister.... Uninstall Valley of Undergrove tonight.." he didn't say anything else. He just left. 
-
-The rest of the day I went to work thinking that maybe I pushed him too far. I tried to distract myself with conversation with my co-workers. Then I answered inbound calls and handled billing tickets as well as rescheduling clients. When it was time to go home the inside of the house felt foreign to me. I placed my keys on the hanger and put away my bag before heading upstairs. There was a blue light emanating from my bedroom. "What the.." I walked inside the room expecting the computer screen to be in rest mode, but instead there it was Valley of Undergrove open to its main menu. 'I should uninstall it..' I thought for a moment which definitely didn't stay for long. Why? Because I was sitting at the desk playing the game.
-
-"Dear Diary, I'm running out of time for my offering! I need to find something suitable to put on the tribute at Town Hall! Oh no!"
-
-There it was, a hint. It was just enough for me to get hooked again. While searching through the map I found three items, a flower, some berry pie, and a note. The note reads " Reminder: Remember to bring a candle next time you see Marybeth!" I quickly tried all the items at the Town Hall tribute. 
-
-Nothing happened..
-
-"What the hell am I supposed to do!" 
-
-"Hell is a bad wooord!!"
-
-Through my speakers there was a voice, it sounded like a little girl or a chipmunk. At first I thought I was hallucinating. I wasn't. Quirel started moving around the screen by herself taking my computer mouse with it. 
-
-"Quick! I must find an offering! Jennife-!"
-
-Without any hesitation I quickly exit out of the game entirely. Then I uninstalled it before turning off my computer and unplugging it fully. 
-
-Has anyone experienced anything like this with Valley of Undergrove? 
-
-I think Finne could be messing with me...I never knew he was this good with computers. I've tried calling my brother to see if he knew anything about VOU. He didn't answer. I guess it's to be expected especially with exams coming up. I also tried texting Finne, but he's also not responding.. probably still upset with me.
+And it's climbing.
