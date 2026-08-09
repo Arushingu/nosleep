@@ -1,80 +1,40 @@
-# They told us not to look down. I did it anyway. Now it's climbing toward me.
-We were a group of urban explorers in the Carpathians - the kind of idiots who break into abandoned uranium mines from the 1980s. Places the army seals off with warnings: "Access Forbidden - Risk of Collapse and Radiation." We had cheap Geiger counters and the courage of drunk men.
+# There’s a detail in these missing person cases no one is talking about
+I didn’t notice it all at once, and if I’m being honest, I probably wouldn’t have noticed it at all if I hadn’t started seeing the same flyers over and over again in the same places. The first one was taped to a light pole near the gas station I stop at on my way home from work, the kind of pole covered in layers of old tape and paper where people just stick things without thinking about how many are already there. I remember standing there with the pump running, the smell of gas in the air, glancing at it just long enough to register the photo and the word “MISSING” in bold before looking away and checking how much I had left to pay.
 
-Our leader, a guy who had served in the French Foreign Legion before returning home, warned us right before we climbed down the rusted iron ladder into the main shaft:
+A few days later, I saw another one on the same pole, just slightly lower, like someone had tried to make room instead of covering the first. Different person, different name, but the layout was almost identical. Same kind of photo, same formatting, same block of text underneath. I remember pausing a little longer that time, reading through more of it while the receipt printer clicked behind me, trying to figure out why it felt familiar in a way I couldn’t place right away.
 
-"Whatever you do, don't look down. There's only darkness and echoes down there. If you look, something will look back."
+After that, I started noticing them more, not because they suddenly appeared everywhere, but because I had seen enough that they started standing out. One on a stop sign near the grocery store, another taped to the side of a bus stop I pass sometimes, one partially torn on a wooden post near the park. They weren’t all in the same spot, but they weren’t far enough apart to feel random either. It was like they were all coming from the same general area, even if I couldn’t draw a clear line around it.
 
-We laughed. Everyone laughed. He didn't.
+I didn’t connect anything at first. People go missing, it happens, and most of the time you don’t hear anything beyond the initial post. But something about seeing them that often, that close together, made me start reading them more carefully without meaning to. I found myself slowing down when I passed them, taking a second longer than necessary to read the names, the dates, the last seen locations, like I was trying to find something specific without knowing what it was.
 
-We'd been descending for about 40 minutes. The ladder seemed endless. Our headlamps cast weak circles on the damp stone walls covered in a black moss that seemed to twitch if you stared at it too long. The air smelled of old metal and something sickly sweet, like meat left out in the sun. At one point, Mihai - the youngest - started breathing hard.
+That’s when I started noticing the detail. It wasn’t obvious, and it wasn’t highlighted like it was important. It was just part of the description, the kind of sentence you’d skim past if you weren’t paying attention. “Last seen near…” followed by a location, and then sometimes, not always, but enough times that it stuck, a second part added at the end. “Last seen speaking with a man.” The first time I noticed it, I didn’t think much of it because that’s normal, since people are usually seen with someone before they go missing, but then I saw it again on another flyer with different wording that meant the same thing, like “last seen talking to an unknown male” or “last seen in the company of a man,” and that was when it stayed in my head longer than it should have.
 
-"Guys... does it feel like something is watching us?"
+At that point it still felt like coincidence, but I started checking the older flyers too, going back to places I knew they were posted just to read them again. Some didn’t mention anyone else at all, but enough of them did that it stopped feeling random. It was always vague, never a name, never a clear description, just “a man,” and sometimes they’d add something small like approximate height or clothing, but never enough to actually identify anyone, just enough to confirm someone had been there.
 
-"Shut the fuck up," the ex-Legionnaire snapped. "And don't look down."
+I don’t know when it shifted from noticing to actually looking, but at some point I started paying attention to the people around those areas more than I normally would. Not in an obvious way, just quick glances while standing in line, or walking past someone on the sidewalk, or waiting at a crosswalk a second longer than needed, trying to see if anyone stood out in a way that matched what I kept reading. No one really did, and that should have been the end of it.
 
-I was third on the ladder. Below me was pure blackness. My light hadn't reached the bottom in a long time. It was like the shaft swallowed the beam. That stupid curiosity started gnawing at me. "What if I look for just a split second? Just to see how deep it really is."
+But then I saw him.
 
-I leaned slightly and pointed my lamp straight down.
+I didn’t realize it right away. He was just another person in line at the gas station, a few spots ahead of me, holding a drink and something small from the counter. Nothing about him stood out. Average height, maybe mid-30s, dark clothes that didn’t draw attention, the kind of person you wouldn’t remember if you weren’t already looking for something. What made me notice him was the cashier, who gave him a quick “hey” like she recognized him, not friendly enough to mean anything, just familiar enough to register, and he didn’t really respond, just set his things down and waited.
 
-For a moment, I saw nothing. Just void.
+I remember shifting my weight from one foot to the other, glancing up at the price screen, then back at him again without really meaning to, and that was when it clicked that I had seen him before, not once but multiple times, in different places around town. Near the grocery store entrance, walking past the park, standing near that same bus stop where one of the flyers had been posted. None of those moments had meant anything on their own, but together they felt connected in a way I couldn’t explain.
 
-Then it moved.
+I told myself it didn’t mean anything because it’s a small town and you see the same people all the time, but the next time I saw one of the flyers, I read it differently. I stood there longer than I needed to, reading that line again and then looking up at the street around me without realizing I was doing it, and after that I started noticing him more, not because he was suddenly everywhere, but because I was paying attention now.
 
-Something massive and pale, like a jointless arm far too long, jerked back out of the light. It wasn't human. It wasn't animal. It was as if living flesh had twisted itself into a shape that should never exist. And in the middle of that mass, I saw eyes. Too many. Some still opening.
+He showed up in the same kinds of places the flyers were posted, never doing anything unusual, never drawing attention, and if anything, he blended in too well, like he knew exactly how to move through a space without being remembered. That’s what made it worse, because I never saw him with anyone from the flyers directly, but there were moments where it felt like I had just missed something, like I’d pass him leaving a place and then notice a flyer there a day or two later, or I’d walk past him on the sidewalk and realize there was a missing person notice posted just a few feet away that I hadn’t seen before.
 
-I froze. My heart slammed against my ribs. A cold feeling crawled up my spine.
+It never lined up cleanly enough to prove anything, just enough to sit wrong, and I tried to ignore it after a while by stopping myself from reading the flyers as closely, but once you notice something like that, it doesn’t really go away. It just sits there, waiting for something to confirm it, and that confirmation came a few nights ago.
 
-"What did you see?" the Legionnaire whispered from above, his voice suddenly different.
+I was leaving work later than usual, and the streets were quieter than normal, not completely empty, but quiet enough that you notice your own footsteps more than usual, and I remember adjusting my grip on my phone and checking the time without really needing to, just to have something to focus on while I walked. That’s when I heard footsteps behind me, not close enough to feel immediate panic, just there, steady, matching the pace of someone walking in the same direction, and when I turned slightly without fully looking back, I saw him.
 
-"N-nothing," I lied. But it was already too late.
+He was walking at the same pace with the same neutral expression, like he was just heading somewhere and I happened to be in front of him, and I looked forward again and kept walking, but I could feel that same tightness in my chest starting to build. I crossed the street at the next opening without making it obvious, and he crossed too, and that was when I swallowed and realized how dry my mouth had gotten. I slowed down slightly, pretending to check my phone again, and his footsteps adjusted behind me, matching the change in pace.
 
-From below came the first sound - a slow, wet scraping, like nails on a chalkboard but moist. Like something huge dragging itself up the stone. The ladder vibrated faintly. Not like an earthquake. Like a pulse.
+I didn’t turn around that time, and instead I picked up my pace and kept walking until I reached a more populated street, somewhere with enough people that I didn’t feel as exposed, and when I finally looked back, he was gone. I stood there for a second longer than I should have, scanning the street, but there was no clear direction he could have gone without me seeing him, and I told myself I was overreacting, that it didn’t prove anything, that I had connected things that weren’t actually connected.
 
-We started climbing faster. No one spoke. Just heavy breathing and the clang of boots on metal. The sound from below grew clearer. Closer. Sometimes it stopped. Then it continued, faster.
+That worked for about a day.
 
-At one point, Mihai's lamp slipped. It bounced off the walls and went dark somewhere far below. We heard a soft, wet sound - like something swallowing. Then the crack of bones.
+Then I saw the newest flyer.
 
-Mihai screamed. Not a normal scream. The scream of a man who feels something being ripped out from inside him. He looked down. I watched his pupils dilate until they swallowed his eyes.
+It was posted on the same pole near the gas station, placed over one of the older ones that had started to peel at the edges, and I stopped without meaning to and read it, already knowing what I was looking for before I got to that part. “Last seen speaking with a man,” and this time there was a description underneath that said “mid-30s, average height, dark clothing, no identifying features,” and I stood there longer than I should have reading it again and again until it stopped feeling like coincidence and started feeling like something I should have said something about earlier.
 
-"It's at my feet... Jesus... it has my face... but it's smiling too wide..."
-
-He fell. Or was pulled. I don't know. He vanished into the darkness with a wet thud of flesh against rock, then... nothing. Just slow, deliberate chewing.
-
-We climbed like madmen. The ladder was shaking constantly now. Whatever was down there was rising fast. Too fast.
-
-The Legionnaire was above me. I heard him muttering a prayer in French I'd never heard before. Then he stopped.
-
-"Don't stop, man!" I yelled.
-
-He turned toward me. His face... wasn't his anymore. The skin hung loose, like something was pulling it from below. His eyes were sinking into their sockets.
-
-"Too late," he whispered in a voice that wasn't his. "It saw you. Now it knows what you look like."
-
-Then he let go. Just like that. As if he wanted to go to it.
-
-I was alone on the ladder.
-
-I climbed with the last of my strength. My hands bled on the rusted metal. The sound was right beneath me now. I could smell it - sweet, rotten, intimate, like my own scent after death.
-
-I reached the top of the shaft. I crawled out screaming. Cold rain hit my face. I ran through the abandoned gallery, jumped the fences, and sprinted through the forest until my lungs burned.
-
-I made it home the next day. I locked myself in. I drank. I cried.
-
-But since then...
-
-When I stand on my fourth-floor balcony at night and look down at the parking lot, I feel the same thing. The feeling that something is staring back.
-
-When I go down the building stairs and reach the basement, I hear the scraping. Faint. Distant. But getting closer.
-
-Last night I woke up standing at the window, staring straight down into the darkness between the blocks. I don't remember getting out of bed.
-
-And something whispered in my own voice, but deeper:
-
-"Curiosity won again."
-
-I don't sleep anymore. I don't go on the balcony. But I know it doesn't matter.
-
-Because now it knows what I look like.
-
-And it's climbing.
+When I looked up, he was standing across the street, not moving, not pretending to be busy, just looking directly at me like he had been waiting for me to notice, and for the first time it didn’t feel like I had figured something out, it felt like I had been noticed back.
