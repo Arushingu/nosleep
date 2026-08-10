@@ -1,40 +1,74 @@
-# There’s a detail in these missing person cases no one is talking about
-I didn’t notice it all at once, and if I’m being honest, I probably wouldn’t have noticed it at all if I hadn’t started seeing the same flyers over and over again in the same places. The first one was taped to a light pole near the gas station I stop at on my way home from work, the kind of pole covered in layers of old tape and paper where people just stick things without thinking about how many are already there. I remember standing there with the pump running, the smell of gas in the air, glancing at it just long enough to register the photo and the word “MISSING” in bold before looking away and checking how much I had left to pay.
+# The Dead Man in my Trunk Won't Shut Up
+I’ve never killed a man who didn’t deserve it. Working for a casino out in Nevada you tend to encounter a lot of cheaters, and when the casino finds one of the cheaters, I make him regret being born, and if the cheater is bad enough of a problem I take him outside of town and plant a 45 in his skull. I’ve been doing this for the last some thirty years, back when I was around twenty or so. I’ve broke so many fingers, cut off so many thumbs, and shot so many idiots in the head that it all blends together, save for that one incident…
 
-A few days later, I saw another one on the same pole, just slightly lower, like someone had tried to make room instead of covering the first. Different person, different name, but the layout was almost identical. Same kind of photo, same formatting, same block of text underneath. I remember pausing a little longer that time, reading through more of it while the receipt printer clicked behind me, trying to figure out why it felt familiar in a way I couldn’t place right away.
+That’s beside the point. What I am trying to say is that killing and maiming idiots who think they can cheat the system has been a regular thing for me for a while now, which is why each detail leading up to my current predicament has unnerved me so badly, and why I’m certain that what I am hearing in the back of my trunk is no hallucination.
 
-After that, I started noticing them more, not because they suddenly appeared everywhere, but because I had seen enough that they started standing out. One on a stop sign near the grocery store, another taped to the side of a bus stop I pass sometimes, one partially torn on a wooden post near the park. They weren’t all in the same spot, but they weren’t far enough apart to feel random either. It was like they were all coming from the same general area, even if I couldn’t draw a clear line around it.
+The boss had signaled me off the busy casino floor to the back with a simple wave of his hand. I had seen the same gesture many times over the years and knew it meant I was getting my hands dirty. I followed him where no one could hear us.
 
-I didn’t connect anything at first. People go missing, it happens, and most of the time you don’t hear anything beyond the initial post. But something about seeing them that often, that close together, made me start reading them more carefully without meaning to. I found myself slowing down when I passed them, taking a second longer than necessary to read the names, the dates, the last seen locations, like I was trying to find something specific without knowing what it was.
+"Eugene, I got a guy in the trunk of the car parked out back,” the boss said quietly.
 
-That’s when I started noticing the detail. It wasn’t obvious, and it wasn’t highlighted like it was important. It was just part of the description, the kind of sentence you’d skim past if you weren’t paying attention. “Last seen near…” followed by a location, and then sometimes, not always, but enough times that it stuck, a second part added at the end. “Last seen speaking with a man.” The first time I noticed it, I didn’t think much of it because that’s normal, since people are usually seen with someone before they go missing, but then I saw it again on another flyer with different wording that meant the same thing, like “last seen talking to an unknown male” or “last seen in the company of a man,” and that was when it stayed in my head longer than it should have.
+“Am I killing him or breaking some bones?” I said, straight to business.
 
-At that point it still felt like coincidence, but I started checking the older flyers too, going back to places I knew they were posted just to read them again. Some didn’t mention anyone else at all, but enough of them did that it stopped feeling random. It was always vague, never a name, never a clear description, just “a man,” and sometimes they’d add something small like approximate height or clothing, but never enough to actually identify anyone, just enough to confirm someone had been there.
+“Shoot him through the head and drive him down to Mexico to bury him.”
 
-I don’t know when it shifted from noticing to actually looking, but at some point I started paying attention to the people around those areas more than I normally would. Not in an obvious way, just quick glances while standing in line, or walking past someone on the sidewalk, or waiting at a crosswalk a second longer than needed, trying to see if anyone stood out in a way that matched what I kept reading. No one really did, and that should have been the end of it.
+Not my first job like this, but it always piqued a level of curiosity that I couldn’t pursue while keeping up with the profession. The sorry sap was probably just important enough that the body had to vanish. Usually, I’d bring the body to some smugglers down near the border though. This was far from normal. I wasn’t paid to ask questions though.
 
-But then I saw him.
+I drove out to a hill in the middle of nowhere, my favorite spot, with a lovely view of the Mohave wilderness. Not a bad place to die. More mercy than most of these fools deserved, but usually not something they appreciate. They always went out crying, sniffling, and begging. It made me sick. Shouldn’t be much of a surprise that those who live without dignity die without dignity.
 
-I didn’t realize it right away. He was just another person in line at the gas station, a few spots ahead of me, holding a drink and something small from the counter. Nothing about him stood out. Average height, maybe mid-30s, dark clothes that didn’t draw attention, the kind of person you wouldn’t remember if you weren’t already looking for something. What made me notice him was the cashier, who gave him a quick “hey” like she recognized him, not friendly enough to mean anything, just familiar enough to register, and he didn’t really respond, just set his things down and waited.
+That’s why, when I opened the trunk, alarm bells in my head started ringing. He wasn’t even tied up. I jumped back as he crawled out of the trunk of the black sports car. He was an older fellow, Latino, and had this huge shit-eating grin. “This the spot?” he asked. “Real pretty. You professionals sure know how to pick em’.”
 
-I remember shifting my weight from one foot to the other, glancing up at the price screen, then back at him again without really meaning to, and that was when it clicked that I had seen him before, not once but multiple times, in different places around town. Near the grocery store entrance, walking past the park, standing near that same bus stop where one of the flyers had been posted. None of those moments had meant anything on their own, but together they felt connected in a way I couldn’t explain.
+“I… wha—”
 
-I told myself it didn’t mean anything because it’s a small town and you see the same people all the time, but the next time I saw one of the flyers, I read it differently. I stood there longer than I needed to, reading that line again and then looking up at the street around me without realizing I was doing it, and after that I started noticing him more, not because he was suddenly everywhere, but because I was paying attention now.
+“Hey, boss. Let’s do this.” He knelt down right in the spot I would have placed him. “Don’t got all day. We do this now, or we’ll be in deep shit.”
 
-He showed up in the same kinds of places the flyers were posted, never doing anything unusual, never drawing attention, and if anything, he blended in too well, like he knew exactly how to move through a space without being remembered. That’s what made it worse, because I never saw him with anyone from the flyers directly, but there were moments where it felt like I had just missed something, like I’d pass him leaving a place and then notice a flyer there a day or two later, or I’d walk past him on the sidewalk and realize there was a missing person notice posted just a few feet away that I hadn’t seen before.
+There was a cloud forming in the distance, probably a dust storm. It looked bad. They call them haboobs, a wall of dust and sand so big that it’ll swallow everything in its path. There was a loud echoing sound in it, probably thunder.
 
-It never lined up cleanly enough to prove anything, just enough to sit wrong, and I tried to ignore it after a while by stopping myself from reading the flyers as closely, but once you notice something like that, it doesn’t really go away. It just sits there, waiting for something to confirm it, and that confirmation came a few nights ago.
+I turned back the man who knelt there smiling. He wouldn’t blink. It was unsettling, and I don’t ever feel unsettled. Annoyed, pissed, incensed, but not unsettled.
 
-I was leaving work later than usual, and the streets were quieter than normal, not completely empty, but quiet enough that you notice your own footsteps more than usual, and I remember adjusting my grip on my phone and checking the time without really needing to, just to have something to focus on while I walked. That’s when I heard footsteps behind me, not close enough to feel immediate panic, just there, steady, matching the pace of someone walking in the same direction, and when I turned slightly without fully looking back, I saw him.
+I unholstered my 1911. Better to just get it over with. He leaned into the barrel as I pointed it at his forehead. He wouldn’t stop staring at me, wouldn’t stop smiling, and when I blew his brains into the small rocks and sand of the hill, I could have sworn that those eyes stayed trained on me. He didn’t stop smiling either. He kept that same shit-eating grin even as I shoved the whole body in a trash bag, and I couldn’t help but imaging him staring through the plastic at me with that same smile as I shut the trunk.
 
-He was walking at the same pace with the same neutral expression, like he was just heading somewhere and I happened to be in front of him, and I looked forward again and kept walking, but I could feel that same tightness in my chest starting to build. I crossed the street at the next opening without making it obvious, and he crossed too, and that was when I swallowed and realized how dry my mouth had gotten. I slowed down slightly, pretending to check my phone again, and his footsteps adjusted behind me, matching the change in pace.
+The storm was coming from the north, and the road lead clear south. It was still a while off. I must have been really losing it, because the winds of the storm almost sounded like voices, screaming and screeching in contempt.
 
-I didn’t turn around that time, and instead I picked up my pace and kept walking until I reached a more populated street, somewhere with enough people that I didn’t feel as exposed, and when I finally looked back, he was gone. I stood there for a second longer than I should have, scanning the street, but there was no clear direction he could have gone without me seeing him, and I told myself I was overreacting, that it didn’t prove anything, that I had connected things that weren’t actually connected.
+About a mile in, I heard something from the back trunk. Dead bodies do weird things. Muscles spasm. There’re the death rattles. The bodies will defecate. It was easy to blow it off as any of these things, but there was an off feeling about it all. I heard a gurgling.
 
-That worked for about a day.
+Could he be alive? Not likely. 45ACP through the frontal lobe bisecting the brain isn’t really something you walk off. I looked in my rearview. The dust cloud was coming closer. It was huge, like it stretched all the way to the sky, a giant pillar that swallowed every droplet of light.
 
-Then I saw the newest flyer.
+“They’re coming,” came the voice of the man from the trunk. I jerked so hard that the car damn near flipped off the road. I started slowing down to stop. “Don’t do that ikniutli,” the voice said.
 
-It was posted on the same pole near the gas station, placed over one of the older ones that had started to peel at the edges, and I stopped without meaning to and read it, already knowing what I was looking for before I got to that part. “Last seen speaking with a man,” and this time there was a description underneath that said “mid-30s, average height, dark clothing, no identifying features,” and I stood there longer than I should have reading it again and again until it stopped feeling like coincidence and started feeling like something I should have said something about earlier.
+“You talk a lot for someone without brains,” I said, trying to ignore the insanity of the situation.
 
-When I looked up, he was standing across the street, not moving, not pretending to be busy, just looking directly at me like he had been waiting for me to notice, and for the first time it didn’t feel like I had figured something out, it felt like I had been noticed back.
+“Been due to die a long time, got a lotta chatter left in me I suppose.”
+
+I felt that I was going insane. It was the only reasonable explanation. I glanced in my rearview mirror and saw the cloud of dust was keeping pace with the car. The noises that came from it were more succinct. It was a wall of noise, voices wailing in anguish.
+
+“I don’t think all those are for me,” the man in the back of my trunk chimed in. My palms started to sweat. I hadn’t felt the sensation since I put my first man in the ground.
+
+“What’s that supposed to mean?”
+
+“That storm behind us, it’s a wall of souls I have wronged since I made a deal many years ago. I remember every voice, so I can say with certainty that they aren’t all here for me. You’ve wronged a lot of people for one lifetime ikniutli.”
+
+“Bullshit,” I replied coarsely as I depressed the gas pedal and sped us a good hundred miles per hour down the empty interstate. It looked different than I was accustomed to. There were no other cars or buildings, and I had gone far enough that I should have at least passed a gas station.
+
+“As many people as you’ve killed, you can’t pretend your hands are clean.”
+
+“They are. I never wronged any of them, they wronged my boss and I took care of them.”
+
+The voices mixed in a cascade of anguish. Their ages, sexes, and tones varied greatly.
+
+“I hear a lot of women and children in the mix. I’ve done a lot of things, but I don’t recognize any of them,” the man at the back of the car said. I could sense that same shit-eating grin. I wanted to pull over, drag him out, and beat his face with a shovel until he didn’t have a mouth left to make the gesture.
+
+“I don’t kill women and children.”
+
+“Who said anything about killing them?”
+
+I saw a figure up ahead, a small silhouette dotting the horizon. It was approaching rapidly, and I feared that I would run the poor sap over. As I came closer, I could see that the figure was small, only a child. Her long hair concealed her face. She was turned away from me. She looked up, hair falling away as I swerved past her. I looked into her cold dead eyes and saw pain and hatred that a child so young should not be familiar with. I recognized her face from the papers.
+
+“Shit,” I said under my breath.
+
+“Believe me now,” snorted the dead man.
+
+“I believe I’m going crazy. It wasn’t my fault that he was a lousy father. That’s what I believe. I don’t regret killing her daddy. I don’t regret it a damn bit.”
+
+“That’s why she’s angry at you, I imagine. I’ve lived for almost five hundred years, and you’ve equaled the number of angered souls as me in a tenth the time.”
+
+I kept my eyes forward and prepared myself for what I assumed would be a none-too-pleasant drive. I’m a few miles in now. The gas hasn’t gone down a notch. There isn’t a building in sight.
