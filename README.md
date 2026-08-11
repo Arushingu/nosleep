@@ -1,74 +1,186 @@
-# The Dead Man in my Trunk Won't Shut Up
-I’ve never killed a man who didn’t deserve it. Working for a casino out in Nevada you tend to encounter a lot of cheaters, and when the casino finds one of the cheaters, I make him regret being born, and if the cheater is bad enough of a problem I take him outside of town and plant a 45 in his skull. I’ve been doing this for the last some thirty years, back when I was around twenty or so. I’ve broke so many fingers, cut off so many thumbs, and shot so many idiots in the head that it all blends together, save for that one incident…
+# Microplastics Are Good For You
+“Microplastics are good for you, actually.”
 
-That’s beside the point. What I am trying to say is that killing and maiming idiots who think they can cheat the system has been a regular thing for me for a while now, which is why each detail leading up to my current predicament has unnerved me so badly, and why I’m certain that what I am hearing in the back of my trunk is no hallucination.
+She blinks once. Twice.
 
-The boss had signaled me off the busy casino floor to the back with a simple wave of his hand. I had seen the same gesture many times over the years and knew it meant I was getting my hands dirty. I followed him where no one could hear us.
+“Excuse me?” is all she manages to say.
 
-"Eugene, I got a guy in the trunk of the car parked out back,” the boss said quietly.
+“I said,” Dominic leans over the table. “Microplastics are good for you, actually.”
 
-“Am I killing him or breaking some bones?” I said, straight to business.
+“Says who?”
 
-“Shoot him through the head and drive him down to Mexico to bury him.”
+“My new roommate.”
 
-Not my first job like this, but it always piqued a level of curiosity that I couldn’t pursue while keeping up with the profession. The sorry sap was probably just important enough that the body had to vanish. Usually, I’d bring the body to some smugglers down near the border though. This was far from normal. I wasn’t paid to ask questions though.
+“Oh, and he’s a scientist?”
 
-I drove out to a hill in the middle of nowhere, my favorite spot, with a lovely view of the Mohave wilderness. Not a bad place to die. More mercy than most of these fools deserved, but usually not something they appreciate. They always went out crying, sniffling, and begging. It made me sick. Shouldn’t be much of a surprise that those who live without dignity die without dignity.
+“He is, actually. Really smart. Mesiarik University School of Environmental sciences.” He takes a long victorious sip out of his plastic straw. “I trust the science. Jan knows what he’s talking about.”
 
-That’s why, when I opened the trunk, alarm bells in my head started ringing. He wasn’t even tied up. I jumped back as he crawled out of the trunk of the black sports car. He was an older fellow, Latino, and had this huge shit-eating grin. “This the spot?” he asked. “Real pretty. You professionals sure know how to pick em’.”
+“Okay,” Lenka says, after a long exhale. “So what exactly is *good* about our food and water supply being irreversibly polluted with plastic?”
 
-“I… wha—”
+“They’re forever,” he says.
 
-“Hey, boss. Let’s do this.” He knelt down right in the spot I would have placed him. “Don’t got all day. We do this now, or we’ll be in deep shit.”
+Lenka’s hands shoot up, nearly flipping the table over. “That’s precisely *why* they’re bad!” she yells. “They’re in our blood and lungs and placenta and they’re giving us cancer! How is that good? How can anyone say that’s good?!”
 
-There was a cloud forming in the distance, probably a dust storm. It looked bad. They call them haboobs, a wall of dust and sand so big that it’ll swallow everything in its path. There was a loud echoing sound in it, probably thunder.
+There are three other tables around us. All chatter has died down. We are undeniably the center of attention. The atmosphere is most certainly not romantic.
 
-I turned back the man who knelt there smiling. He wouldn’t blink. It was unsettling, and I don’t ever feel unsettled. Annoyed, pissed, incensed, but not unsettled.
+“Guys,” I say, draining my cider. “How about we leave the debates for when we’re drunker. Let’s go dance.”
 
-I unholstered my 1911. Better to just get it over with. He leaned into the barrel as I pointed it at his forehead. He wouldn’t stop staring at me, wouldn’t stop smiling, and when I blew his brains into the small rocks and sand of the hill, I could have sworn that those eyes stayed trained on me. He didn’t stop smiling either. He kept that same shit-eating grin even as I shoved the whole body in a trash bag, and I couldn’t help but imaging him staring through the plastic at me with that same smile as I shut the trunk.
+“Fine by me,” Dominic says, getting up. “Peace?”
 
-The storm was coming from the north, and the road lead clear south. It was still a while off. I must have been really losing it, because the winds of the storm almost sounded like voices, screaming and screeching in contempt.
+“Peace,” she says, after a moment of consideration. I try to take my shot and ask her to dance, but before I gather the courage, he’s already holding her hand. By the time my shoes are off, the two of them are already spinning round the parquet.
 
-About a mile in, I heard something from the back trunk. Dead bodies do weird things. Muscles spasm. There’re the death rattles. The bodies will defecate. It was easy to blow it off as any of these things, but there was an off feeling about it all. I heard a gurgling.
+I had never been much of a dancer. In fact, outside of drunken grinding in highschool, I had never danced at all. With the existential dread of early 30s nipping at my heels though, I decided to try something new. When I saw Forró workshops being offered in one of Prague’s decommissioned churches, I figured it’d be a good place to start. The moment I met Lenka, I knew I would be coming every week.
 
-Could he be alive? Not likely. 45ACP through the frontal lobe bisecting the brain isn’t really something you walk off. I looked in my rearview. The dust cloud was coming closer. It was huge, like it stretched all the way to the sky, a giant pillar that swallowed every droplet of light.
+I take a seat in the pews and watch them dance. She moves with a hypnotizing elegance. He moves with a confidence that is wholly foreign to me. As I watch them, I try to convince myself that I am simply observing foot work. When that lie refuses to stick, I remind myself that people dancing at dance socials is normal and means nothing. When that thought provides no solace, I remind myself that Dominic is Brazilian. Forró is in his blood. If we were to engage in trench warfare, I’d probably have the upper hand.
 
-“They’re coming,” came the voice of the man from the trunk. I jerked so hard that the car damn near flipped off the road. I started slowing down to stop. “Don’t do that ikniutli,” the voice said.
+They dance for three songs. There are other women in the church. Women that sit down next to me and make small talk and hint towards wanting a dance, but I only have eyes for her. When they finish, Dominic goes off to the bathroom. I leap at the opportunity like a hungry animal.
 
-“You talk a lot for someone without brains,” I said, trying to ignore the insanity of the situation.
+She’s out of breath when I ask her to dance, but acquiesces anyway. Holding her hand, I feel a rush of joy. It dissipates the moment I start moving my feet.
 
-“Been due to die a long time, got a lotta chatter left in me I suppose.”
+Lenka is local, but she’s been dancing Latin since she could walk. I step on her feet immediately. I continue to do so throughout the rest of the dance, but once she takes the lead all of my stomps miss. The dance is nice. As we float around the Hussite church to tunes of Latin funk, my soul feels lighter. She pulls back from the embrace and spins me. For a moment, it feels emasculating — but then our bodies come crashing together and her hand travels down my back. Our cheeks brush past each other. She smiles.
 
-I felt that I was going insane. It was the only reasonable explanation. I glanced in my rearview mirror and saw the cloud of dust was keeping pace with the car. The noises that came from it were more succinct. It was a wall of noise, voices wailing in anguish.
+And lingers.
 
-“I don’t think all those are for me,” the man in the back of my trunk chimed in. My palms started to sweat. I hadn’t felt the sensation since I put my first man in the ground.
+There’s something here.
 
-“What’s that supposed to mean?”
+I feel alive.
 
-“That storm behind us, it’s a wall of souls I have wronged since I made a deal many years ago. I remember every voice, so I can say with certainty that they aren’t all here for me. You’ve wronged a lot of people for one lifetime ikniutli.”
+I, also, feel very sweaty. Luckily, once the song finishes another one doesn’t start.
 
-“Bullshit,” I replied coarsely as I depressed the gas pedal and sped us a good hundred miles per hour down the empty interstate. It looked different than I was accustomed to. There were no other cars or buildings, and I had gone far enough that I should have at least passed a gas station.
+“How was I?” I ask, trying to hide the stains on my shirt.
 
-“As many people as you’ve killed, you can’t pretend your hands are clean.”
+“Better than last week,” she winks.
 
-“They are. I never wronged any of them, they wronged my boss and I took care of them.”
+The organizer makes end of mass announcements and the dancers start making their way out of the hall. As we get to the bar, we meet Dominic, already dressed in his coat.
 
-The voices mixed in a cascade of anguish. Their ages, sexes, and tones varied greatly.
+“Burza?” he asks.
 
-“I hear a lot of women and children in the mix. I’ve done a lot of things, but I don’t recognize any of them,” the man at the back of the car said. I could sense that same shit-eating grin. I wanted to pull over, drag him out, and beat his face with a shovel until he didn’t have a mouth left to make the gesture.
+I nod. “Burza?” I ask, Lenka.
 
-“I don’t kill women and children.”
+“Burza,” she says, without much thought.
 
-“Who said anything about killing them?”
+We walk through the crowd of smoking dancers, asking the question. A couple of them join us. Once a headcount is done, we pile into Bolts and ride across to Holešovice. From a reformed church, we travel to a slaughterhouse with jazz.
 
-I saw a figure up ahead, a small silhouette dotting the horizon. It was approaching rapidly, and I feared that I would run the poor sap over. As I came closer, I could see that the figure was small, only a child. Her long hair concealed her face. She was turned away from me. She looked up, hair falling away as I swerved past her. I looked into her cold dead eyes and saw pain and hatred that a child so young should not be familiar with. I recognized her face from the papers.
+The lights are low and there’s a man with a bongo and another with a trumpet and far too many with saxophones. I get a cider, Lenka gets a beer and Dominic gets another gin and tonic. His plastic straw provokes another argument.
 
-“Shit,” I said under my breath.
+Lenka cites facts about irreversible damage done to our eco system. Dominic, on the other hand, just keeps deferring to his roommate. “I don’t know. Jan just seems certain. And he’s a smart guy,” Dominic finally relents, “You can talk to him yourself sometime. We’re at Delnicka, just a couple blocks away.”
 
-“Believe me now,” snorted the dead man.
+“I think microplastics are bad,” I add, before the conversation changes topic.
 
-“I believe I’m going crazy. It wasn’t my fault that he was a lousy father. That’s what I believe. I don’t regret killing her daddy. I don’t regret it a damn bit.”
+The night carries on. We groove out to the music, smoke some grass and entertain visitors to our table. Around midnight, Dominic spots his Ukrainian ex going outside for a cigarette. He quickly excuses himself. Lenka and me are left alone.
 
-“That’s why she’s angry at you, I imagine. I’ve lived for almost five hundred years, and you’ve equaled the number of angered souls as me in a tenth the time.”
+“Microplastics,” she says, watching the Brazilian half-run to the door. “What a weird hill to die on. Inarguably terrible for the body. Inarguably terrifying. We can’t get rid of them. They’re forever.”
 
-I kept my eyes forward and prepared myself for what I assumed would be a none-too-pleasant drive. I’m a few miles in now. The gas hasn’t gone down a notch. There isn’t a building in sight.
+“Do you think his roommate is an actual scientist?”
+
+“I doubt it. Dominic is a nice guy but he’s pretty…”
+
+“Gullible?”
+
+“Yes.”
+
+She laughs and nods and clinks her beer against my cider. We can see Dominic outside animatedly talking to his old flame and a couple of the dancers that joined us from the church. The Brazilian and his strange views on microplastics quickly become irrelevant. Lenka starts telling me about her childhood and the rest of the bar dissipates into background noise.
+
+Dominic comes back to the table after last order is called. He has his black-haired beauty around his arm and a couple of the drunker dancers in tow. No need for the party to end yet, he says. Afterparty at his.
+
+Lenka works corporate. So do I. Drinking more at one AM on a Thursday is a terrible idea, but neither of us feel like going home. When she says yes, so do I.
+
+Most of the group ends up thinning out by the time we get to Delnicka. Only two others remain by the time we get to the flat. They stay for a drink and then leave us alone with Dominic and his ex.
+
+The four of us open a bottle of prosecco and start off a drinking game of vague parameters. Once the glasses are refilled, Dominic announces he wants to show his friend something in his bedroom. They promise to come right back, but they don’t. Judging by the sounds coming from the room, the thing Dominic is presenting is for her eyes only.
+
+We’re drunk and comfortable on the couch, but the night is clearly coming to an end. We each have an arm around the other, but our free hands work at our phones trying to tell the price differences between Bolts and Ubers. Briefly, I consider inviting Lenka over to mine but then all thoughts of romance are wiped out in an instant.
+
+The door to the other room opens. The being that walks out is scarcely a man.
+
+His body is sleek and muscular and hairless. The skin reflects light like something lifeless. There’s a unsettling blue tint to it. The strange hued man stands in the doorway wearing nothing but gray sweatpants. In one hand he holds a plastic tumbler. In the other, a plastic bag filled with a sand-like material.
+
+“Good evening,” he says, his voice deep and hollow.
+
+Lenka’s hand grasps mine. She squeezes. The man also makes me uncomfortable, but I do my best to hide the fact.
+
+“Hi,” I say. “You must be Jan, Dominic’s roommate?”
+
+“He is I,” the man says, his eyes unblinking.
+
+“Dominic invited us for a nightcap after forró. Hope we did not wake you. We’re just on our way out.”
+
+In the other room, the Ukrainian’s calls to passion quiver up an octave. Jan turns his head in the direction of the moans for a moment. His face betrays no emotion.
+
+“I sleep little,” he says, turning towards us. A thin, lipless smile stretches across his face. “I do not need sleep. I have grown past it. Because of the microplastics.”
+
+Lenka grips my hand again. She’s scared. As am I, but I want to be brave.
+
+“You think microplastics are good for you?” The laugh I let out sounds more like a shriek. “That’s really silly. They’re bad for you. They give you *cancer*.”
+
+The blue man’s forehead shifts. Had he eyebrows, they would be raised. “Microplastics are *bad* for you? Who are you to make such a bold claim.”
+
+“We did our research.” The words come out hollow. When I look over to Lenka, she’s staring out at the street lights. “Microplastics are really unhealthy.”
+
+“You did your research.” He tilts a bit of the colorful dust into his tumbler and swirls it. His face recoils at the taste of the liquid, yet he drinks it regardless. “As did I, friend. I did my research and it led me to the undeniable fact that microplastics are *necessary*.
+
+“For six long years I labored at the Mesiarik Life Sciences Faculty, trying to understand. I wasted precious time dreaming up ways to remove plastic from our diet, to limit its effects on human health — but after years, my folly became clear. Microplastics aren’t an enemy to be annihilated. They are *necessary*. They are the next step. They will raise humanity to a new age. This century does not belong to *homo sapiens*. It belongs to *homo plasticus*.”
+
+She squeezes my hand again. “My Bolt is almost here,” Lenka says. “We should get going.”
+
+“No.” The blue man steps before the couch. “Do not leave in blindness. Do not leave ignorant. Microplastics are *good* for you. Just give them a try.”
+
+As muscular as he is, his body moves with little grace. With each step that Dominic’s roommate takes, I can hear a unnatural, artificial squeak. With slow movements he undoes the bag of colorful dust. He pours into what’s left of our prosecco.
+
+“They say plastic harms the body, but it merely improves it. It binds to our cells. It creates scaffolding. Life adapts to the dominant substrate. Once, it was soil. Now it is polymer.” His poreless face is close. His breath smells of disinfectant. “The earth made flesh. Flesh made plastic. Plastic will reshape the flesh for what is to come.”
+
+“I’m leaving.” Lenka stands up. There’s tears in her eyes.
+
+“Me too,” I say. I don’t let go of her hand. She’s still squeezing.
+
+Before Dominic’s show and tell reaches a climax, we are out of the apartment. Lenka does not say a word until we are out of the stairwell. Even as she speaks, she keeps her face tilted towards the window of the apartment.
+
+“Do you think that was fake? Like, some sort of performance art?”
+
+I don’t respond. We both know it wasn’t.
+
+“Terrifying.” She shudders. “Scariest part is, I think he believed it.”
+
+“I think so too.”
+
+Next week, at forró, Dominic is nowhere to be found. When I ask around the other dancers, they say they haven’t seen him either. Some say he’s been sick. Some say he’s on some sort of a health cleanse. When Lenka asks if I heard anything, I say I haven’t. The two theories are beyond discomforting to discuss.
+
+When we migrate to Burza later in the evening, Dominic is not there either. Neither does he show up to forró the following week. As we go out for post-dance drinks, however, we do see a familiar face — his ex girlfriend.
+
+“You are friends of Dominic, yes?” She bee-lines straight towards our table and sits down.
+
+“Yes,” Lenka says. “Have you seen him?”
+
+“Yes. And never again,” the woman says. “He is gone crazy. He tries to make me eat the plastic.”
+
+“Eat the plastic?” I ask, finding Lenka’s hand gripping mine under the table.
+
+“Yes. It is his roommate. Crazy. They eat the plastic,” the woman says, looking like she’s about to spit in disgust. “I think the two are fucking. If you see Dominic, you tell him to never speak to me again.”
+
+“I don’t think they’re fucking,” I say, with confidence, but it matters not to the conversation.
+
+On the third week, we meet Dominic. He’s in the church well before Lenka and me arrive. The moment he sees her, he asks her to dance. Overjoyed that he’s not dead, she takes his hand and goes to the dance floor. Soon, she regrets her decision.
+
+His dancing has changed. All the smoothness has gone out of his steps. Dominic sways without rhythm, completely deaf to the music. For a moment, Lenka tries to lead, but he doesn’t let her. About halfway through the song, she excuses herself and rushes to the bathroom.
+
+“He’s *shedding*,” she whispers, as she rushes past me. Her palms are covered by a thin white dust. “His skin is *shedding*.”
+
+I wait for Lenka outside the bathroom for a solid five minutes. When she exits she is no less distraught. She tells me she can’t be here anymore. She tells me she needs to go home to take a shower to get all the toxins off of her skin.
+
+I wait with her for her Bolt. I try to suggest we go straight to Burza, or another bar, or meet some other night, yet all the mirth has drained from our conversation. Dominic’s state, his theories, his confidence about the sickness in his bloodstream — it is all too much for her.
+
+As she gets into the car, I fear I will never see her again. I try to assuage that fear by reminding myself that there are other women to dance with in the church. As I make my way up the steps, however, I bump into someone I have no intention dancing with.
+
+“For a moment, I thought she was right,” he says, taking a sip out of a plastic bottle. “When I first started taking Jan’s supplements, I felt sick.”
+
+“Supplements?” I ask. “The microplastics, you mean.”
+
+He laughs good naturedly and swirls the plastic bottle. The colorful sediment at the bottom rises up giving the liquid a terrible hue. “They change you,” he says. “At first it hurts, but then it doesn’t. I don’t feel tired anymore. I don’t sweat anymore. I don’t feel bad anymore. I just feel… ready.”
+
+He offers me the plastic bottle.
+
+I decline.
+
+“It’s in the tap water anyway,” he says. “Jan just concentrates it. It’s in every raindrop and every fish and every vegetable you consume. All we are doing is controlling the dosage. All we are doing is speeding the process up.”
+
+In the lamplight of the church, almost obscured by the darkness of the night, I notice the gentlest of blue hues in his [skin](https://www.reddit.com/r/MJLPresents/).
