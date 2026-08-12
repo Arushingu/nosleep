@@ -1,186 +1,185 @@
-# Microplastics Are Good For You
-“Microplastics are good for you, actually.”
+# What was it and How?
+Today, I watched something weird, something which shouldn’t happen but it did. I really am but I shouldn’t ha ….
 
-She blinks once. Twice.
 
-“Excuse me?” is all she manages to say.
+I woke up and went straight to the TV. Of course, it was Sunday, and interestingly, it was my break, so the days didn't really matter. I could watch as much as I wanted. My parents allowed me to because I was not bad academically. I was an above-average student who scored well in a few subjects.
 
-“I said,” Dominic leans over the table. “Microplastics are good for you, actually.”
+I switched on the television and settled down to watch. My parents had gone out shopping, and they told me they would return in a few hours. That meant I was now in charge of this kingdom called Jett's House. Yes, I am the queen – who once was princess and will be after parents come home.
 
-“Says who?”
+Now, the princess had become the queen, and it was my responsibility to rule over my kingdom.
 
-“My new roommate.”
+I selected my favorite show, Tom & Jerry, and started watching it. My TV was bulky and heavy, and it often lagged or showed a distorted screen whenever the signal got disturbed. Usually, all you had to do was give the TV a firm pat on the top, and it would start working again.
 
-“Oh, and he’s a scientist?”
+And, as expected, it happened today too. But this time was different.
 
-“He is, actually. Really smart. Mesiarik University School of Environmental sciences.” He takes a long victorious sip out of his plastic straw. “I trust the science. Jan knows what he’s talking about.”
+While I was watching, the screen became distorted. I used the usual remedy I knew, but it didn't work. The distortion continued for several minutes. I was getting bored.
 
-“Okay,” Lenka says, after a long exhale. “So what exactly is *good* about our food and water supply being irreversibly polluted with plastic?”
+Then the distortion became strange.
 
-“They’re forever,” he says.
+Instead of the normal white static, the screen turned rainbow-colored, and then suddenly black. It was weird. That had never happened before and, as far as I knew, couldn't happen on this TV.
 
-Lenka’s hands shoot up, nearly flipping the table over. “That’s precisely *why* they’re bad!” she yells. “They’re in our blood and lungs and placenta and they’re giving us cancer! How is that good? How can anyone say that’s good?!”
+Then, without warning, the screen cleared.
 
-There are three other tables around us. All chatter has died down. We are undeniably the center of attention. The atmosphere is most certainly not romantic.
+The sight that appeared made me shiver from head to foot.
 
-“Guys,” I say, draining my cider. “How about we leave the debates for when we’re drunker. Let’s go dance.”
+On the TV screen was a live image of me.
 
-“Fine by me,” Dominic says, getting up. “Peace?”
+I was displayed on the television, sitting on the sofa and looking at that TV.
 
-“Peace,” she says, after a moment of consideration. I try to take my shot and ask her to dance, but before I gather the courage, he’s already holding her hand. By the time my shoes are off, the two of them are already spinning round the parquet.
+It was impossible.
 
-I had never been much of a dancer. In fact, outside of drunken grinding in highschool, I had never danced at all. With the existential dread of early 30s nipping at my heels though, I decided to try something new. When I saw Forró workshops being offered in one of Prague’s decommissioned churches, I figured it’d be a good place to start. The moment I met Lenka, I knew I would be coming every week.
+How was I on the screen?
 
-I take a seat in the pews and watch them dance. She moves with a hypnotizing elegance. He moves with a confidence that is wholly foreign to me. As I watch them, I try to convince myself that I am simply observing foot work. When that lie refuses to stick, I remind myself that people dancing at dance socials is normal and means nothing. When that thought provides no solace, I remind myself that Dominic is Brazilian. Forró is in his blood. If we were to engage in trench warfare, I’d probably have the upper hand.
+I jolted backward on the sofa in shock. It felt as though someone was recording me live from behind, like a hidden camera.
 
-They dance for three songs. There are other women in the church. Women that sit down next to me and make small talk and hint towards wanting a dance, but I only have eyes for her. When they finish, Dominic goes off to the bathroom. I leap at the opportunity like a hungry animal.
+But there was no camera anywhere in my house. I suddenly looked at the back out of pure fear and curiosity and there was nothing, which was making TV show me.
 
-She’s out of breath when I ask her to dance, but acquiesces anyway. Holding her hand, I feel a rush of joy. It dissipates the moment I start moving my feet.
+Suddenly, the TV became distorted again, and this time it was the normal kind of distortion that usually happened. That brought me some relief, and I convinced myself that maybe it had all been a hallucination.
 
-Lenka is local, but she’s been dancing Latin since she could walk. I step on her feet immediately. I continue to do so throughout the rest of the dance, but once she takes the lead all of my stomps miss. The dance is nice. As we float around the Hussite church to tunes of Latin funk, my soul feels lighter. She pulls back from the embrace and spins me. For a moment, it feels emasculating — but then our bodies come crashing together and her hand travels down my back. Our cheeks brush past each other. She smiles.
+But the relief didn't last long.
 
-And lingers.
+The TV screen turned black again.
 
-There’s something here.
+This time, however, something felt wrong. It looked as if the television had been switched off. I got up to check it, but the power light was still on.
 
-I feel alive.
+I was confused.
 
-I, also, feel very sweaty. Luckily, once the song finishes another one doesn’t start.
+Then something appeared on the screen.
 
-“How was I?” I ask, trying to hide the stains on my shirt.
+There was a line of text written in a language I didn't understand.
 
-“Better than last week,” she winks.
+I patted the TV and said in frustration, "Why is this TV acting so weird?"
 
-The organizer makes end of mass announcements and the dancers start making their way out of the hall. As we get to the bar, we meet Dominic, already dressed in his coat.
+A moment later, the text changed.
 
-“Burza?” he asks.
+Now, the same text was in English.
 
-I nod. “Burza?” I ask, Lenka.
+\> “If you're seeing this message, it's already inside the house.”
 
-“Burza,” she says, without much thought.
+At that moment, I realized it wasn't a hallucination.
 
-We walk through the crowd of smoking dancers, asking the question. A couple of them join us. Once a headcount is done, we pile into Bolts and ride across to Holešovice. From a reformed church, we travel to a slaughterhouse with jazz.
+Everything was real.
 
-The lights are low and there’s a man with a bongo and another with a trumpet and far too many with saxophones. I get a cider, Lenka gets a beer and Dominic gets another gin and tonic. His plastic straw provokes another argument.
+Fear took over my body completely. I froze where I stood.
 
-Lenka cites facts about irreversible damage done to our eco system. Dominic, on the other hand, just keeps deferring to his roommate. “I don’t know. Jan just seems certain. And he’s a smart guy,” Dominic finally relents, “You can talk to him yourself sometime. We’re at Delnicka, just a couple blocks away.”
+The message continued.
 
-“I think microplastics are bad,” I add, before the conversation changes topic.
+\> “There is no signal problem. Turn off the TV before it notices you.”
 
-The night carries on. We groove out to the music, smoke some grass and entertain visitors to our table. Around midnight, Dominic spots his Ukrainian ex going outside for a cigarette. He quickly excuses himself. Lenka and me are left alone.
+Now I completely lost my senses. I couldn't move. I couldn't think.
 
-“Microplastics,” she says, watching the Brazilian half-run to the door. “What a weird hill to die on. Inarguably terrible for the body. Inarguably terrifying. We can’t get rid of them. They’re forever.”
+My brain refused to process what was happening.
 
-“Do you think his roommate is an actual scientist?”
+Then the screen distorted once more, and suddenly my cartoon returned as if nothing had happened.
 
-“I doubt it. Dominic is a nice guy but he’s pretty…”
+I stared at it in silence.
 
-“Gullible?”
+Confused, but desperate for a logical explanation, I convinced myself that it must have been some strange channel I had accidentally switched to, or maybe a error.
 
-“Yes.”
+Eventually, I calmed down and sat back on the sofa. Then I continued watching the cartoon.
 
-She laughs and nods and clinks her beer against my cider. We can see Dominic outside animatedly talking to his old flame and a couple of the dancers that joined us from the church. The Brazilian and his strange views on microplastics quickly become irrelevant. Lenka starts telling me about her childhood and the rest of the bar dissipates into background noise.
+Honestly, the episode that was airing was hilarious. Watching Tom constantly beat up Jerry never failed to make me laugh.
 
-Dominic comes back to the table after last order is called. He has his black-haired beauty around his arm and a couple of the drunker dancers in tow. No need for the party to end yet, he says. Afterparty at his.
+I ended up watching almost fourteen episodes straight and enjoyed every minute of it. I was lying upside down on the sofa, sipping my favorite juice. It was probably the funniest and most comfortable position for me—a habit I've had since childhood.
 
-Lenka works corporate. So do I. Drinking more at one AM on a Thursday is a terrible idea, but neither of us feel like going home. When she says yes, so do I.
+Then, once again, the screen began to distort.
 
-Most of the group ends up thinning out by the time we get to Delnicka. Only two others remain by the time we get to the flat. They stay for a drink and then leave us alone with Dominic and his ex.
+By then, I had almost forgotten about the incident that had happened a few hours earlier.
 
-The four of us open a bottle of prosecco and start off a drinking game of vague parameters. Once the glasses are refilled, Dominic announces he wants to show his friend something in his bedroom. They promise to come right back, but they don’t. Judging by the sounds coming from the room, the thing Dominic is presenting is for her eyes only.
+The screen shifted back to my cartoon, but something wasn't right.
 
-We’re drunk and comfortable on the couch, but the night is clearly coming to an end. We each have an arm around the other, but our free hands work at our phones trying to tell the price differences between Bolts and Ubers. Briefly, I consider inviting Lenka over to mine but then all thoughts of romance are wiped out in an instant.
+The colors were washed out, and the show looked like an old videotape stretched uploaded and used beyond its limits. Everything appeared blurry and warped.
 
-The door to the other room opens. The being that walks out is scarcely a man.
+I frowned.
 
-His body is sleek and muscular and hairless. The skin reflects light like something lifeless. There’s a unsettling blue tint to it. The strange hued man stands in the doorway wearing nothing but gray sweatpants. In one hand he holds a plastic tumbler. In the other, a plastic bag filled with a sand-like material.
+Maybe the TV was simply getting too old. Perhaps it was finally time for my parents to buy a new one.
 
-“Good evening,” he says, his voice deep and hollow.
+Then the distortion returned.
 
-Lenka’s hand grasps mine. She squeezes. The man also makes me uncomfortable, but I do my best to hide the fact.
+Thinking it might be a signal issue, I went up to the roof to check the antenna. I used my usual strategy of giving it a pat before heading back downstairs.
 
-“Hi,” I say. “You must be Jan, Dominic’s roommate?”
+The TV was still distorting.
 
-“He is I,” the man says, his eyes unblinking.
+Now I was annoyed.
 
-“Dominic invited us for a nightcap after forró. Hope we did not wake you. We’re just on our way out.”
+Then it appeared.
 
-In the other room, the Ukrainian’s calls to passion quiver up an octave. Jan turns his head in the direction of the moans for a moment. His face betrays no emotion.
+The same live image of me was back on the screen.
 
-“I sleep little,” he says, turning towards us. A thin, lipless smile stretches across his face. “I do not need sleep. I have grown past it. Because of the microplastics.”
+I jolted backward onto the sofa and wrapped my arms around myself. Instantly, I remembered everything that had happened before.
 
-Lenka grips my hand again. She’s scared. As am I, but I want to be brave.
+But this time, the version of me inside the TV wasn't copying my movements.
 
-“You think microplastics are good for you?” The laugh I let out sounds more like a shriek. “That’s really silly. They’re bad for you. They give you *cancer*.”
+It wasn't moving at all.
 
-The blue man’s forehead shifts. Had he eyebrows, they would be raised. “Microplastics are *bad* for you? Who are you to make such a bold claim.”
+It simply stood there.
 
-“We did our research.” The words come out hollow. When I look over to Lenka, she’s staring out at the street lights. “Microplastics are really unhealthy.”
+Still.
 
-“You did your research.” He tilts a bit of the colorful dust into his tumbler and swirls it. His face recoils at the taste of the liquid, yet he drinks it regardless. “As did I, friend. I did my research and it led me to the undeniable fact that microplastics are *necessary*.
+Watching.
 
-“For six long years I labored at the Mesiarik Life Sciences Faculty, trying to understand. I wasted precious time dreaming up ways to remove plastic from our diet, to limit its effects on human health — but after years, my folly became clear. Microplastics aren’t an enemy to be annihilated. They are *necessary*. They are the next step. They will raise humanity to a new age. This century does not belong to *homo sapiens*. It belongs to *homo plasticus*.”
+That somehow was even worse than the first encounter.
 
-She squeezes my hand again. “My Bolt is almost here,” Lenka says. “We should get going.”
+Then, without warning, the figure's head rotated.
 
-“No.” The blue man steps before the couch. “Do not leave in blindness. Do not leave ignorant. Microplastics are *good* for you. Just give them a try.”
+\*\*360°. Slowly.\*\*
 
-As muscular as he is, his body moves with little grace. With each step that Dominic’s roommate takes, I can hear a unnatural, artificial squeak. With slow movements he undoes the bag of colorful dust. He pours into what’s left of our prosecco.
+Until it was facing me.
 
-“They say plastic harms the body, but it merely improves it. It binds to our cells. It creates scaffolding. Life adapts to the dominant substrate. Once, it was soil. Now it is polymer.” His poreless face is close. His breath smells of disinfectant. “The earth made flesh. Flesh made plastic. Plastic will reshape the flesh for what is to come.”
+I froze.
 
-“I’m leaving.” Lenka stands up. There’s tears in her eyes.
+My body refused to move.
 
-“Me too,” I say. I don’t let go of her hand. She’s still squeezing.
+The thing smiled.
 
-Before Dominic’s show and tell reaches a climax, we are out of the apartment. Lenka does not say a word until we are out of the stairwell. Even as she speaks, she keeps her face tilted towards the window of the apartment.
+Its eyes widened unnaturally, growing larger and larger.
 
-“Do you think that was fake? Like, some sort of performance art?”
+The smile wasn't human.
 
-I don’t respond. We both know it wasn’t.
+It stretched far beyond what a real face should allow, twisting into something grotesque and impossible.
 
-“Terrifying.” She shudders. “Scariest part is, I think he believed it.”
+Slowly, the figure began walking toward the screen.
 
-“I think so too.”
+Toward me.
 
-Next week, at forró, Dominic is nowhere to be found. When I ask around the other dancers, they say they haven’t seen him either. Some say he’s been sick. Some say he’s on some sort of a health cleanse. When Lenka asks if I heard anything, I say I haven’t. The two theories are beyond discomforting to discuss.
+I screamed.
 
-When we migrate to Burza later in the evening, Dominic is not there either. Neither does he show up to forró the following week. As we go out for post-dance drinks, however, we do see a familiar face — his ex girlfriend.
+Jumping to my feet, I rushed toward the television. Without thinking, I grabbed the power cord and abruptly snatched it from the wall.
 
-“You are friends of Dominic, yes?” She bee-lines straight towards our table and sits down.
+The screen went dark.
 
-“Yes,” Lenka says. “Have you seen him?”
+My vision blurred. The room spun. And then everything faded to black.
 
-“Yes. And never again,” the woman says. “He is gone crazy. He tries to make me eat the plastic.”
+When I opened my eyes, I was lying in my bed. My parents were sitting beside me.
 
-“Eat the plastic?” I ask, finding Lenka’s hand gripping mine under the table.
+I felt cold and weak.
 
-“Yes. It is his roommate. Crazy. They eat the plastic,” the woman says, looking like she’s about to spit in disgust. “I think the two are fucking. If you see Dominic, you tell him to never speak to me again.”
+My mother leaned closer.
 
-“I don’t think they’re fucking,” I say, with confidence, but it matters not to the conversation.
+"Are you okay?" she asked.
 
-On the third week, we meet Dominic. He’s in the church well before Lenka and me arrive. The moment he sees her, he asks her to dance. Overjoyed that he’s not dead, she takes his hand and goes to the dance floor. Soon, she regrets her decision.
+I nodded.
 
-His dancing has changed. All the smoothness has gone out of his steps. Dominic sways without rhythm, completely deaf to the music. For a moment, Lenka tries to lead, but he doesn’t let her. About halfway through the song, she excuses herself and rushes to the bathroom.
+They told me they had found me unconscious on the floor near the television. According to them, my favorite cartoon had still been playing when they arrived home.
 
-“He’s *shedding*,” she whispers, as she rushes past me. Her palms are covered by a thin white dust. “His skin is *shedding*.”
+I sat up slowly. Every memory of what had happened came rushing back. But I was far too frightened to tell them.
 
-I wait for Lenka outside the bathroom for a solid five minutes. When she exits she is no less distraught. She tells me she can’t be here anymore. She tells me she needs to go home to take a shower to get all the toxins off of her skin.
+My mother told me to rest and later made my favorite snack—a fried sandwich.
 
-I wait with her for her Bolt. I try to suggest we go straight to Burza, or another bar, or meet some other night, yet all the mirth has drained from our conversation. Dominic’s state, his theories, his confidence about the sickness in his bloodstream — it is all too much for her.
+Which I loved, of course.
 
-As she gets into the car, I fear I will never see her again. I try to assuage that fear by reminding myself that there are other women to dance with in the church. As I make my way up the steps, however, I bump into someone I have no intention dancing with.
+For several days, I refused to go near the television. I didn't dare to switch it on. I didn't even look at it.
 
-“For a moment, I thought she was right,” he says, taking a sip out of a plastic bottle. “When I first started taking Jan’s supplements, I felt sick.”
+Eventually, my parents had it repaired, and everything seemed normal again.
 
-“Supplements?” I ask. “The microplastics, you mean.”
+But even now, I still wonder.
 
-He laughs good naturedly and swirls the plastic bottle. The colorful sediment at the bottom rises up giving the liquid a terrible hue. “They change you,” he says. “At first it hurts, but then it doesn’t. I don’t feel tired anymore. I don’t sweat anymore. I don’t feel bad anymore. I just feel… ready.”
+What was that thing?
 
-He offers me the plastic bottle.
+And how was any of it possible?
 
-I decline.
+If there was no camera in the house, then how was the TV showing myself?
 
-“It’s in the tap water anyway,” he says. “Jan just concentrates it. It’s in every raindrop and every fish and every vegetable you consume. All we are doing is controlling the dosage. All we are doing is speeding the process up.”
+…
 
-In the lamplight of the church, almost obscured by the darkness of the night, I notice the gentlest of blue hues in his [skin](https://www.reddit.com/r/MJLPresents/).
+ve gone to that room. I should have removed the rift. But it was now too late.
