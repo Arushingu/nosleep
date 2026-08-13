@@ -1,185 +1,180 @@
-# What was it and How?
-Today, I watched something weird, something which shouldn’t happen but it did. I really am but I shouldn’t ha ….
+# Every game reserve has its own stories. Ours has Nkaru
+I've spent most of my adult life working on a private game reserve in South Africa. If you've ever been on a game drive, you've probably heard your guide tell you stories while driving between sightings. Most of them are true. Which leopard once climbed into a camp. Which elephant bull charges vehicles every winter. Which lioness escaped a snare years ago.
 
+Then there are the stories guides only tell each other.
 
-I woke up and went straight to the TV. Of course, it was Sunday, and interestingly, it was my break, so the days didn't really matter. I could watch as much as I wanted. My parents allowed me to because I was not bad academically. I was an above-average student who scored well in a few subjects.
+Nobody mentions those around guests.
 
-I switched on the television and settled down to watch. My parents had gone out shopping, and they told me they would return in a few hours. That meant I was now in charge of this kingdom called Jett's House. Yes, I am the queen – who once was princess and will be after parents come home.
+The oldest tracker on our reserve had worked there for nearly forty years. He knew every road, every dry riverbed, and could identify individual elephants from a glimpse of their ears. He wasn't the sort of man who believed in ghosts or monsters. If anything, he was painfully practical.
 
-Now, the princess had become the queen, and it was my responsibility to rule over my kingdom.
+One afternoon, while we were waiting beside a waterhole, I asked him if he'd ever seen anything in the bush he couldn't explain.
 
-I selected my favorite show, Tom & Jerry, and started watching it. My TV was bulky and heavy, and it often lagged or showed a distorted screen whenever the signal got disturbed. Usually, all you had to do was give the TV a firm pat on the top, and it would start working again.
+He was quiet for a long time.
 
-And, as expected, it happened today too. But this time was different.
+Finally he asked, "Have you ever heard of Nkaru?"
 
-While I was watching, the screen became distorted. I used the usual remedy I knew, but it didn't work. The distortion continued for several minutes. I was getting bored.
+I shook my head.
 
-Then the distortion became strange.
+He looked relieved.
 
-Instead of the normal white static, the screen turned rainbow-colored, and then suddenly black. It was weird. That had never happened before and, as far as I knew, couldn't happen on this TV.
+"Good."
 
-Then, without warning, the screen cleared.
+That should have been the end of the conversation.
 
-The sight that appeared made me shiver from head to foot.
+Instead, I kept asking questions.
 
-On the TV screen was a live image of me.
+Eventually he sighed and said, "If I tell you, you'll spend the rest of your career wondering whether you've seen it."
 
-I was displayed on the television, sitting on the sofa and looking at that TV.
+According to him, every reserve has stories about Nkaru. The names change depending on who you ask, but the description is always the same. A human-shaped figure standing just inside the trees. Never close enough to identify. Never far enough away to dismiss completely.
 
-It was impossible.
+"It isn't dangerous," he told me.
 
-How was I on the screen?
+"Then why does everyone avoid talking about it?"
 
-I jolted backward on the sofa in shock. It felt as though someone was recording me live from behind, like a hidden camera.
+"Because nobody knows what happens if it decides to stop keeping its distance."
 
-But there was no camera anywhere in my house. I suddenly looked at the back out of pure fear and curiosity and there was nothing, which was making TV show me.
+I laughed at that.
 
-Suddenly, the TV became distorted again, and this time it was the normal kind of distortion that usually happened. That brought me some relief, and I convinced myself that maybe it had all been a hallucination.
+He didn't.
 
-But the relief didn't last long.
+For the next few months I forgot the conversation completely.
 
-The TV screen turned black again.
+Then, during an evening drive, one of my guests pointed toward the bush and asked why another guide was standing out there.
 
-This time, however, something felt wrong. It looked as if the television had been switched off. I got up to check it, but the power light was still on.
+There wasn't supposed to be anyone in that area.
 
-I was confused.
+I looked.
 
-Then something appeared on the screen.
+For just a second I thought I saw someone between the mopane trunks.
 
-There was a line of text written in a language I didn't understand.
+When I tried to focus on them, they seemed to blend into the shadows.
 
-I patted the TV and said in frustration, "Why is this TV acting so weird?"
+I blinked.
 
-A moment later, the text changed.
+Nothing.
 
-Now, the same text was in English.
+I assumed my eyes had been playing tricks on me until I noticed something strange.
 
-\> “If you're seeing this message, it's already inside the house.”
+Every impala near the tree line had stopped feeding.
 
-At that moment, I realized it wasn't a hallucination.
+They weren't running.
 
-Everything was real.
+They weren't alarm calling.
 
-Fear took over my body completely. I froze where I stood.
+They were simply staring into the same patch of bush I'd been looking at.
 
-The message continued.
+The following morning I mentioned it to the old tracker.
 
-\> “There is no signal problem. Turn off the TV before it notices you.”
+He didn't ask where.
 
-Now I completely lost my senses. I couldn't move. I couldn't think.
+He didn't ask what time.
 
-My brain refused to process what was happening.
+He simply asked one question.
 
-Then the screen distorted once more, and suddenly my cartoon returned as if nothing had happened.
+"Did you keep looking?"
 
-I stared at it in silence.
+I told him I'd only glanced for a second.
 
-Confused, but desperate for a logical explanation, I convinced myself that it must have been some strange channel I had accidentally switched to, or maybe a error.
+He nodded slowly.
 
-Eventually, I calmed down and sat back on the sofa. Then I continued watching the cartoon.
+"Good."
 
-Honestly, the episode that was airing was hilarious. Watching Tom constantly beat up Jerry never failed to make me laugh.
+Over the next year I heard little pieces of the story from different people. None of them claimed Nkaru was real. In fact, most of them laughed before talking about it.
 
-I ended up watching almost fourteen episodes straight and enjoyed every minute of it. I was lying upside down on the sofa, sipping my favorite juice. It was probably the funniest and most comfortable position for me—a habit I've had since childhood.
+But they all repeated the same rules.
 
-Then, once again, the screen began to distort.
+Never point at it.
 
-By then, I had almost forgotten about the incident that had happened a few hours earlier.
+Never walk toward it.
 
-The screen shifted back to my cartoon, but something wasn't right.
+If someone says they've seen Nkaru, don't ask them where.
 
-The colors were washed out, and the show looked like an old videotape stretched uploaded and used beyond its limits. Everything appeared blurry and warped.
+And if you ever see it twice in one day, leave before sunset.
 
-I frowned.
+The strange thing was that nobody could explain where those rules came from.
 
-Maybe the TV was simply getting too old. Perhaps it was finally time for my parents to buy a new one.
+I didn't believe any of it until last spring.
 
-Then the distortion returned.
+I was off duty, driving home after visiting friends in another town nearly three hundred kilometres from the reserve. As I passed a stretch of woodland beside the road, something caught my eye.
 
-Thinking it might be a signal issue, I went up to the roof to check the antenna. I used my usual strategy of giving it a pat before heading back downstairs.
+Someone was standing among the trees.
 
-The TV was still distorting.
+At first I thought it was a hiker.
 
-Now I was annoyed.
+Then I realised there wasn't a path.
 
-Then it appeared.
-
-The same live image of me was back on the screen.
-
-I jolted backward onto the sofa and wrapped my arms around myself. Instantly, I remembered everything that had happened before.
-
-But this time, the version of me inside the TV wasn't copying my movements.
+The figure wasn't waving for help.
 
 It wasn't moving at all.
 
-It simply stood there.
+It was simply facing the road.
 
-Still.
+I slowed down without thinking.
 
-Watching.
+The moment I looked directly at it, I felt something I still can't describe.
 
-That somehow was even worse than the first encounter.
+Not fear.
 
-Then, without warning, the figure's head rotated.
+Recognition.
 
-\*\*360°. Slowly.\*\*
+As though I'd seen that exact silhouette somewhere before.
 
-Until it was facing me.
+Cars behind me started hooting, so I drove on.
 
-I froze.
+I checked my mirrors several times.
 
-My body refused to move.
+There was nothing behind me except empty road.
 
-The thing smiled.
+That night I remembered something the old tracker had said months earlier.
 
-Its eyes widened unnaturally, growing larger and larger.
+"Nkaru doesn't follow roads."
 
-The smile wasn't human.
+"It follows people."
 
-It stretched far beyond what a real face should allow, twisting into something grotesque and impossible.
+I wish I'd forgotten that sentence.
 
-Slowly, the figure began walking toward the screen.
+Since then I've seen the same motionless figure four more times.
 
-Toward me.
+Always near trees.
 
-I screamed.
+Always silent.
 
-Jumping to my feet, I rushed toward the television. Without thinking, I grabbed the power cord and abruptly snatched it from the wall.
+Always at almost exactly the same distance away.
 
-The screen went dark.
+Maybe it's coincidence.
 
-My vision blurred. The room spun. And then everything faded to black.
+Maybe after hearing the story my brain started finding patterns where none exist.
 
-When I opened my eyes, I was lying in my bed. My parents were sitting beside me.
+That's the explanation I tell myself every time.
 
-I felt cold and weak.
+It works.
 
-My mother leaned closer.
+Right up until the next time I catch myself looking toward a tree line for no reason.
 
-"Are you okay?" she asked.
+Because now I understand why guides don't tell guests about Nkaru.
 
-I nodded.
+The story doesn't make you believe in it.
 
-They told me they had found me unconscious on the floor near the television. According to them, my favorite cartoon had still been playing when they arrived home.
+It just makes you wonder whether you've already seen it without realizing.
 
-I sat up slowly. Every memory of what had happened came rushing back. But I was far too frightened to tell them.
+Edit:
 
-My mother told me to rest and later made my favorite snack—a fried sandwich.
+Hey guys. I've recieved some more information and done some further research on this. Here are some rules I've learnt:
 
-Which I loved, of course.
+If you hear a laughing dassie, walk away. It plays auditory tricks on you.
 
-For several days, I refused to go near the television. I didn't dare to switch it on. I didn't even look at it.
+If you see it at all, do not sleep facing the window the same day you saw it. 
 
-Eventually, my parents had it repaired, and everything seemed normal again.
+If you've seen it during the day, have a buddy system. Stay with someone when moving in dark areas during the night. It hunts in the night.
 
-But even now, I still wonder.
+If you see it in your dreams, that means that you are it's primary target. It's able to track you throughout your life.
 
-What was that thing?
+It knows when you see it or try talking to it. NEVER try talk to it or say its name directed to the bush, it may grow an interest in you or your group.
 
-And how was any of it possible?
+If it targets one member of a group, in the future it may target other members of that group.
 
-If there was no camera in the house, then how was the TV showing myself?
+When animals start acting funny, take that as a warning.
 
-…
+During the day it stalks. 
 
-ve gone to that room. I should have removed the rift. But it was now too late.
+I hope this new information I've found can keep people safe, I'm beginning to wonder more and more if this entity really exists.
