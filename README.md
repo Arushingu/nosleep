@@ -1,114 +1,244 @@
-# My grandfather died before I was born. I saw him last night.
-It was raining the night my grandfather came back. A month earlier he had returned from the war overseas. A week earlier he had been in a fight outside the local bar and hadn't left the house since. He had confined himself to his room only leaving for meals he struggled to swallow down. Growing more pale as each day passed. Three days later my grandfather was found dead. He had taken his own life.
+# I took a night-shift job at an automated toll booth on Route 9. They gave me a list of rules for the cars that don’t have drivers.
+Look, I’m only posting this because I don’t know who else to turn to. I’m typing this out on a crappy laptop at a 24-hour diner just off Interstate 87. It’s 4:15 AM, the coffee tastes like battery acid, and my hands are shaking so bad I can barely hold the mug. Every few seconds, I look out the fogged glass toward the parking lot, half-expecting to see a rusted front bumper idling under the streetlights.
 
-The church wouldn't consecrate his body. Saying he had denied gods gift of life. My grandmother didn't have the heart to bury him in pieces like she was otherwise supposed too. Convinced by a mundane life until now that the stories warning against improper handling of the dead were simply that, stories. Fiction.
+If you live anywhere in upstate New York, right around the western lip of the Adirondacks, and your GPS ever tries to reroute you onto an old, rusted stretch of asphalt marked Route 9 South—**ignore it**. I don’t care if the interstate is backed up for thirty miles. I don’t care if your gas light is on. Just stay on the main highway.
 
-Her sons made a coffin of soft cedar wood and they buried him in the garden. She had dug the grave herself. Refusing help from her sons until it came time to lower his coffin into the earth and encase it in the ground. Three days afterwards there was a great storm. When she went to check on her husband the next morning she fell to her knees. Crying out in a mix of shock and anguish.
+To understand why I’m saying this, you have to understand how desperate I was three weeks ago. My landlord had already stuck a three-day eviction notice right on my apartment door. My bank account was sitting at negative forty-two dollars. When you’re that close to sleeping in your car, you don’t ask questions when a lifeline drops out of nowhere.
 
-She had taken to picking flowers in the woods to set by his grave. The storm had blown them all away. That was not what caused her pain. It was the empty hole in the earth with dirt piled up on either side that stood where my grandfather's grave had the evening prior.
+The ad was tucked at the bottom of page four on a local Craigslist board. No company logo, no corporate layout. It just said: *Overnight Toll Monitor. Route 9 Sector. 11 PM to 6 AM. $45/hour. Must have reliable transportation and pass a background check.*
 
-Walking closer she peered down the tunnel dug out of the earth. She saw a coffin empty except for the dirty water and mud that had flooded in after it was opened from the inside. Pulling the coffin lid out of the earth revealed deep gouges on the back side of it and splintered planks along the edge. Later that day, once her children had helped haul the coffin out and clean the inside of mud, they saw similar deep, frantic scratches made into the wood.
+Forty-five bucks an hour just to sit on my ass and watch a coin machine. I called the number before I could even think it through.  
+A guy with a voice like grinding gravel answered on the second ring. He didn't ask for a resume or my experience. He just asked if I minded being alone for long stretches, and if I had any history of sleepwalking. When I told him no, he told me to meet him at the Route 9 maintenance pull-off the following night at 10:30 PM sharp.
 
-When this came to light my grandmother revealed there was a note lying beside my grandfather when she found him. In his handwriting it read,
+That stretch of road should have been my first warning. Route 9 hasn't been on official state tourist maps since the late 1980s. The trees have grown so thick and aggressive along the shoulders that their branches literally weave together overhead, cutting off the moonlight and creating this permanent, suffocating tunnel over the blacktop.
 
-"To My Love,
+When I finally got there, the "maintenance pull-off" turned out to be nothing more than a gravel clearing cut into the pines. 
 
-I am sorry to leave you again so soon after returning home. The urge is too strong for me to fight any longer. Forgive me. We shall see one another again in the next life.
+Standing under a single, flickering floodlight were four tiny, bulletproof glass booths straddling four automated lanes. It looked entirely out of place—like a sterile, modern checkpoint dropped into the middle of an ancient forest.
 
-I love you."
+The guy who hired me called himself Vance. He wore a faded, navy-blue state transport uniform that looked twenty years old, but it lacked any official state seals or badges. He didn't shake my hand. He just gestured for me to follow him into Booth 4.
 
-When first she read this letter she believed the horrors of war he had spoken of only to her had driven him to take his own life.
+"The job is automated," Vance said, his eyes scanning the dark tree line rather than looking at me. "The commuters drop their exact change into the baskets. The gates lift. They drive through. Your only job is to sit here, keep an eye on the digital camera feeds, and make sure the physical mechanisms don't jam up."
 
-When live stock began going missing in the surrounding area she began to doubt herself. After men in the village began disappearing her suspicions grew. Knowing what she saw in the woods I suspect she already knew what affliction her husband now suffered. 
+"And if they do?" I asked, eyeing the heavy bank-vault lock on the booth door.  
+Vance reached into his breast pocket and pulled out a laminated, double-sided sheet of paper, laying it flat on the metal desk.  
+"If anything deviates from the standard routine, you consult the sheet," Vance said. His voice dropped an octave, losing any trace of casual friendliness. "You don't improvise. You don't call the police. You don't leave this booth until 6:00 AM when the automated day-locks click open. If you break a single instruction on this paper, you won't live long enough to cash your first paycheck."
 
-In time she would become convinced the stories she had heard throughout her life were more than fiction. Warning that dark spirits sought forms to inhabit on earth. Recently departed souls left their bodies undefended from evil influence. The church would normally offer gods protection. Consecrating the body to be buried on blessed grounds for good measure.
+I laughed, expecting him to crack a smile or admit it was a joke. He didn't. He just turned on his heel, walked out of the booth, got into an unmarked white pickup truck, and drove away into the dark.
 
-Those corpses who were denied the church's blessing must not be left intact. Severing the head and limbs is essential to not leave a viable host body for dark spirits. Those brought back this way would resemble the dead in appearance alone. Although still continuing to decay. The spirits having reanimated the body but somehow failing to restore life. Having to consume the vitality from the living in order to reverse their own decay. Drinking their blood and consuming their flesh in a grotesque fashion to sustain themselves.
+I was completely alone.
 
-There are many names for these beasts. Even more tales of similar creatures climbing through windows and stalking through the woodlands. I'm not thoroughly convinced they are all one in the same, however my grandmother believed she knew what her husband had become.
+For the first two weeks, absolutely nothing happened. And honestly? That was the hardest part. The silence out there isn't normal. There are no crickets. No owls. No wind rustling the pines. Just the low, hypnotic hum-hum-hum of the fluorescent light tubes inside my booth. By night four, the isolation started playing tricks on my mind. I found myself reading the laminated sheet over and over again, just to have something to look at.
 
-She had told me only once, in a hushed corner by the fireplace late one evening. The smell of incense heavy in the warm air. It was only a few days before her passing. I hesitate to repeat it even in writing but suffice to say she believed it to be true.
+I memorized the text. And the more I read it, the more uncomfortable I became.
 
-So convinced was she that thick brambles with sharp thorns were affixed to every window frame. Seeds were scattered daily on both the front and back porch. Every meal she made was seasoned with garlic, salt and plenty other pungent herbs and spices meant to ward against evil or purify the body and mind. These too were hung in bags from every entry way and various other symbols for protection and purity covered the walls, floors and ceilings.
+**Rule 1:** The toll is exactly $2.50. If a car approaches and the driver hands you a $50 bill without making eye contact, take it, print a receipt, and do not look in their rearview mirror.
 
-I had asked her the reason for her many habits and decoration choices. She happily but seriously explained the nature behind each ward and defense she employed.
+**Rule 2:** Between 2:00 AM and 3:15 AM, a matte black sedan with completely blacked-out windows will pull up to Lane 3. There is no driver inside. You will hear the sound of a child crying from the trunk. Do not press the emergency gate release. Wait exactly 60 seconds, and the gate will lift on its own.
 
-When I was younger and bored of hearing about evil spirits and the church, I would instead ask about my grandfather. He died before I was born. Never having met him I often asked questions and she would tell me of their youth spent together.
+**Rule 3:** If a vehicle approaches from the wrong direction (driving North in the Southbound lane), do not blink. Keep your eyes locked on its front bumper until it vanishes from sight. If you blink, it will stop.
 
-One night I asked her if she wished she saw my grandfather again. She told me she had. Only once more and for a brief moment. They didn't have the chance to say a word but from the glance they shared she found the answer she sought.
+**Rule 4:** If the automated coin machine in Lane 2 starts rattling like something is trying to claw its way out from the coin-return slot, turn off your booth lights immediately. Press your back against the floor. Do not look up at the glass windows until you hear the sound of heavy rain, even if the sky was perfectly clear when you started your shift.
 
-It was in the days after he had risen and disappeared from his grave. Before even the first of the livestock had gone missing. She had found every excuse to search the woods for him. Staying until the last rays of the sun had faded and her body grew too tired to continue on. Late one evening she found a set of large foot prints leading further into the wilderness and decided to follow by torch light.
+**Rule 5:** You are not keeping things out of the highway. The toll booths are the locking mechanism keeping something vast underneath the asphalt. If all four booth gates open at the exact same time, you have three minutes to run into the woods. Do not look back at the road.
 
-Her sons protested when she returned home to retrieve a torch and fire starter. Despite their insistence she was more stubborn than they were and refused to be stopped. One of her sons agreed to accompany her. This man would grow up to be my father and pass down the same superstitions his parents had instilled in him that night.
+By week three, I had totally convinced myself it was all just an elaborate psychological experiment. Some sick corporate test to see how long a desperate guy would follow insane instructions for forty-five bucks an hour.
 
-Following the trail they walked for about an hour. Finding nothing they decided to head back when it began to rain. They hastened their pace. Attempting to shield their torch against the ever increasing falling water drops that threatened to leave them in darkness. Rounding a bend in the forest path they almost collided with a figure ahead of them. Coming to a sliding stop in the dirt growing ever muddier their torch illuminated a man ahead of them. All three of them recognised one another.
+Then came last night.
 
-My grandmother stopped the story here to show me a photo. It was a black and white photo of a man in uniform. Even with the grainy quality it was clear he had sharp features and piercing eyes. Even in a photo his gaze felt intense and focused. He had a slightly crooked nose and bushy eye brows like my father and myself. The man shown in the photo was of course my grandfather.
+It was 1:14 AM. The fog had rolled in thick off the mountains, settling over the asphalt like a heavy, gray blanket. I was passing the time by playing a game on my phone when the sensor chime echoed through the booth.  
+*Ding.*
 
-The man standing before them was dressed in dirty rags. Stained with dirt and whatever else they barely clung to his frame. He was covered in mud but his skin appeared in good health, although very pale, and his hair was well kept. In his hands he held a rodent tightly in both hands close to his face. There was blood dripping from his lips. His eyes were the same as the man in the photo. There was a great pain behind them.
+A pair of headlights cut through the fog, approaching Lane 4. It was an old, tan station wagon, the body panels covered in rust. It idled up to my window, its engine knocking loudly.
 
-Nobody knew how long they spent staring at one another. His expression softened for a moment upon seeing them both. He looked from my grandmother to one of his sons. My grandmother opened her mouth to say something and her voice caught in her throat. My grandfather appeared to do the same. His expression contorted into a horrified and pained look. He disappeared before their eyes.
+I rolled down my small glass slider to greet them, expecting a lost tourist.
 
-The rodents corpse hung in the air for a moment longer before it was dropped to the earth. The only other evidence that what they had seen was real was a set of footprints leading off the side of the trail from where the man had stood moments prior. They both stood there until the rain had washed them away completely.
+The man in the driver's seat was wearing a faded, gray business suit. He didn't look at me. He kept his eyes locked dead ahead on the closed yellow gate, his hands gripping the steering wheel so tightly his knuckles were stark white. He didn't say a word. He just slowly raised his right hand and held out a clean, crisp fifty-dollar bill.
 
-The rain extinguished their torch fire after awhile but luckily they were in view of the fires roaring inside the larger estates on the edge of town. Having staff able to tend to fires and keep them burning overnight to warm the homes. 
+My breath hitched in my throat. My mind raced back to the laminated sheet.  
+*Rule 1: Take it, print a receipt, and do not look in their rearview mirror.*
 
-It was late and with the rain nobody was on the streets. The only lights were coming from inside peoples homes, seeping under doorways and through window shutters. They made it home that night without any other incident. They never told the others what they had seen, not sure at the time if what they had seen was an apparition or if they had truly seen a man back from the dead.
+My hand shook as I took the bill. It felt freezing cold to the touch, like it had been sitting in a freezer. I turned to my terminal, pressed the button to print the receipt, and handed it back to him through the slot. The moment his fingers took the paper, the automated gate lifted.
 
-The next day I asked my father about this night and he told me it was true. He told me afterwards they expanded her garden to contain garlic and other herbs for protection. Following her into the forest and carrying the baskets to be filled with bulbs and seeds they collected. More importantly he told me something else about that night. On their walk home he swore he heard a third set of footsteps on the cobbled path behind them. Yet whenever he would turn around there was nobody he could see.
+The station wagon slowly began to roll forward.
 
-In the weeks following, while livestock and villagers went missing, many reported seeing strange animals around town. Walking with strange, jerking motions only remaining in one area a short while before seeming to vanish. Deer, wolves and cattle were the most often spotted.
+And that’s when my human curiosity ruined everything. I knew the rule. I had read it a hundred times. But as the back of the car cleared my window, my eyes automatically darted upward to the car's side-view mirror.  
+I looked.
 
-Later people would tell of abnormally large birds with strange eyes that would follow them around the village. Watching from the roofs of homes or hiding in the branches of trees. A large number of these reports come from my family.
+There was no reflection of the highway behind him. There was no reflection of my booth. Inside the glass of the mirror, all I could see was a vast, pitch-black ocean under a sky filled with dying, red stars. And floating just beneath the surface of that black water were hundreds of pale, bloated human faces, all staring out of the glass directly at me.
 
-Overtime these sightings grew fewer and further between. By the time other villages began having similar incidents in the years following they were in much lesser volume and never became an issue aware to those outside of individual communities.
+The station wagon disappeared into the fog. But the hum of the fluorescent lights above me suddenly changed pitch, turning into a low, vibrating whine.
 
-While at first many condemned my family, the most outspoken at the church claiming us to be cursed by the devil and haunted by demons. Over time it was noticed that while those in my family would often be watched, none so far had been taken in the night like others in the village.
+I sat back down in my chair, my heart hammering against my ribs. I had broken Rule 1. I had looked.
 
-Notably a group of three wealthier members of the community had taken to preaching inside of local bars. They had often given my family trouble due to my grandfather's mixed heritage. Over the coming weeks they would take to preaching on the street outside the bars late into the evening. They denied claims of spirits watching over and protecting those in the village.
+And according to the clock on the wall, it was now exactly 1:58 AM. Two minutes until the window for Rule 2 opened.
 
-In better times people's faith in the church would've held fast but with recent disappearances and uncertainty rising in the population they needed hope. People were afraid and began to see these strange animals as kind spirits that offered protection to those they watch over. 
+The digital clock on the booth console flipped to 2:00 AM.
 
-The church claimed these beliefs sacrilegious however peoples faith in the church was dwindling. My grandfather was far from the first body refused from the church's grounds. In truth the many dead from the war had left local churches overwhelmed in their duties. Regardless, with the growing number of disappearances people needed an extraordinary belief to bring them hope. 
+The low whine of the fluorescent tubes grew louder, vibrating through the metal desk until my teeth ached. The fog outside had thickened to an unnatural degree. It pressed against the bulletproof glass like a solid wall of curdled milk, completely swallowing the other three lanes. I couldn't even see the yellow safety gate directly in front of my own booth anymore.
 
-This lasted so far as until someone saw my grandfather. Late one night the three wealthy preachers stumbled hier way through the village to their estates further on the edge of town. Passing through a thin section of trees bordering the village they supposedly stumbled upon a man who at first seemed sick. 
+Then, a sharp, loud burst of static shattered the silence.
 
-He was pale and his clothes were so tattered he wore only loose threads over his mud covered frame. He lunged at the men and sharp fingernails had dug deep gouges into one of the man's arms. He claimed the touch of his attacker was ice cold. After attempting to attack the three men and being fended off by their greater numbers he simply vanished into the air in front of them.
+*Krrrrssssshhhhh—*
 
-All three of the men remembered the face of my grandfather. From the next day onwards they preached that my family had brought him back from the dead to torment the village. Claiming us to be witches that practiced necromancy and black magic. Pointing to my grandmothers growing obsession with runes and occult protection charms.
+I jumped, nearly knocking my tepid coffee onto my lap. The sound wasn't coming from my phone. It was coming from an old, dusty Motorola two-way radio mounted to the wall beneath the desk. I hadn't noticed it during my first two weeks because it had been completely dead—no lights, no battery indicator, nothing.
 
-It wasn't long before my family was forced to flee and never return to our home. It seems reports of strange animals followed my family across villages and country boarders as they fled on foot through the woodlands. Any village they attempted to settle at began experiencing similar sightings and soon the newcomers would be chased out.
+Now, its small analog screen was glowing a faint, radioactive green.
 
-My family found themselves chased to the shores of their homeland and found a ship to take them overseas where nobody knew of their supposed curse. After selling what little possessions they had left to afford passage, and a few weeks travel later, they arrived in a new land. It seemed whatever had been with them all this time was finally behind them.
+“...fourth shift… respond… Booth 4, do you copy?”
 
-For years this has held true. Having stories that even in my youth I had only half believed to be true as my guide. I had done research into things I remembered my grandmother saying throughout her life. After recent things I've experienced and seen I'm starting to believe they were more than stories as well.
+The voice was warped by heavy atmospheric static, but I recognized the flat, gravelly cadence immediately. It was Vance.  
+My hand shook as I reached down and unhooked the heavy plastic receiver. I pressed the push-to-talk button. "Vance? Vance, is that you? Look, something is wrong out here. A car just went through Lane 4. I... I think I messed up. I looked in the mirror."
 
-I learned much of the stories I was told had been based in fact. Having read some disturbing accounts of what people supposedly saw in the woodlands surrounding their homes in the past eighty years. 
+There was a long, agonizing pause. The static hissed, rising and falling like the sound of distant waves.
 
-There are foxes in my neighbourhood. Normally this would be of little concern however in recent months they have been running onto the street in front of cars.
+“...warned you about the mirrors, kid,” Vance’s voice cut through, sounding incredibly far away. “The mirrors show the reservoir. Don't look again. If you look three times, they don't even need the gates to take you.”
 
-An abnormally large fox has run in front of me every night the past month. This foxes coat was a muted orange like the colour was slowly draining away. Its eyes didn't reflect the light of my cars headlights like normal animals would. It walks out into the road and sits there, tracking me with its head and eyes as I slowly drive around it. Even taking a different route it seems to find me.
+"What reservoir? Vance, what is this place?" I practically yelled into the mic. "The floor is vibrating. The air smells like old pennies. Come get me. I don't care about the forty-five bucks anymore, just come lock up."  
+“Can’t do that,” the radio crackled. “The day-locks are set. Nobody comes down Route 9 until 6:00 AM. Not even me. Listen to me carefully. What does the console say for Lane 3?”
 
-More strange is the past week a large crow has taken to sitting by my window and cawing late into the night. I find it outside in the morning to wake me at sunrise also. It seems everywhere I have been I am followed by flocks of crow. There is always one larger than the rest. Its beak pointed in my direction at all times. 
+I glanced over at the digital interface. A small red indicator light was blinking next to the monitor feed for Lane 3.
 
-I had stayed late at the library one night and once again as I approached my home a large fox ran into the middle of the road. I stopped my car. Watching the animal illuminated in my headlights. I reached for my phone. Looking down at my bag before glancing up and intending to take a picture. The fox was gone. 
+"It says there's a vehicle idling," I whispered, my throat going dry. "But I can't see anything through the fog."
 
-I continued home slowly as I searched the street for any sign of the animal and saw nothing further. A few minutes after I got inside I heard the flapping of the crows wings and it landed on a branch just outside my window ledge. I waited for its familiar caw but tonight it was silent. I opened the curtains and saw in the darkness that the bird was already facing my direction. Its eyes were misshapen and its gaze felt oddly focused as it followed me walking from one side of my room to the other. I drew the curtains shut and went to bed. The next morning I was woken by the loud cawing of a crow outside my window as usual.
+“It’s 2:03 AM,” Vance said. His voice was suddenly devoid of static, perfectly, terrifyingly clear. “Rule 2. The black sedan. Do not touch the override switch. If the trunk opens, do not look at it on the camera feed. Just close your eyes and count to sixty.”  
+"Vance, wait—"
 
-I had spent a few months heavily researching a number of topics and so when I was invited on a night out I accepted. Deciding that my recent odd experiences were simply a sign I was overworking myself and needed to relax. 
+“And kid? If the radio clicks three times without me speaking... turn it off. Pull the battery out. Don't let it talk to you.”
 
-The whole night I felt like I was being watched. I tried to focus on conversation and catching up with my friends but my mind would wander as I felt the hairs on the back of my neck stand on end. I would glance around at the faces of strangers sitting at the bar with suspicion. 
+The line went dead. The green backlight on the radio screen flickered out.
 
-At first he wasn't looking at me. Or he had looked away before I had noticed. Even from the side I thought he looked familiar. Throughout the night I kept glancing at the same man who never seemed to move from his spot at the very end of the bar. There was a half empty glass in front of him that I never saw him take a drink from.
+I stood there in the suffocating silence, the plastic receiver heavy in my palm. My eyes slowly drifted to the closed-circuit monitor on my desk. The camera for Lane 3 was a grainy, black-and-white feed. Through the pixelated static of the screen, I could make out the silhouette of a long, heavy vehicle. It had no headlights on. The windows were so dark they looked like rectangles of pure charcoal cut out of the air.
 
-It wasn't until we made eye contact that I recognised him. Later in the evening he noticed me staring and met my narrowed gaze. I noticed his sharp jaw and bushy eyebrows and my mind was cast back to a photo I had seen a hundred times throughout my life. My eyes widened in recognition and he seemed to notice my change in expression. He stood up quickly and left.
+*Rule 2: There is no driver inside. You will hear the sound of a child crying from the trunk.*
 
-I followed not three seconds behind him and barged out onto an empty street. The door not even having enough time to swing fully shut behind him. Despite this I couldn't see him anywhere. I looked down the street to my right and then to an alleyway on my left. I peered into the dark. I called out.
+I stared at the screen, paralyzed. Then, a tiny muffled sound leaked through the booth's external intercom system.
 
-"Why are you following me, grandfather?." 
+It was a soft, rhythmic scratching. Like fingernails picking at carpet.
 
-There was no reply. The only sounds were the distant car horns and I could hear a crow cawing slowly growing fainter as it flew away. 
+A second later, the scratching stopped, replaced by a sound that made my chest tighten so hard I couldn't breathe. It was a child’s voice. High-pitched, muffled, and desperate, echoing clearly from the trunk of the sedan on Lane 3.
 
-I went home shortly after. I passed out and woke up late the next morning with a splitting headache. It took me until the afternoon to notice I didn't hear any crows outside. I was driving home from work tonight and as usual a fox ran in front of my car but continued on to the other side of the road and into the bush. It was a normal fox as far as I could tell. 
+"Mommy? It's dark in here. Mommy, let me out. I can't breathe."
 
-When I got home I stood in the dark of my room and listened outside my window for the sound of flapping wings. They never came. I don't think he is coming back.
+The intercom picked up a violent thump from inside the trunk, followed by a frantic, breathless sob. Every protective instinct in my brain screamed at me to hit the red emergency gate release button on my desk. It was right there. A single press would lift the gate and let the car go. It would end the crying.
+
+I reached my hand out. My finger hovered less than an inch above the red button.  
+*Click. Click. Click.*
+
+I froze. The three sharp clicks hadn't come from the intercom. They had come from the dead, unpowered Motorola radio in my hand.
+
+The screen didn't light up this time. But from the cold speaker grid, a voice began to whisper. It wasn't Vance. It was my own voice. It sounded exactly like me, but warped, speaking in a flat, monotone cadence. 
+
+“Press the button,” my own voice whispered from the radio. “Press it. Let us out. We are so cold under the asphalt. Press it.”
+
+My heart hammered a frantic rhythm against my ribs as my own voice continued to warp and hiss out of the speaker grid.  
+“Press it. Press the button. We want to meet you.”
+
+With a panicked yelp, I dropped the receiver. It slammed onto the metal desk. My hands were shaking so violently I could barely get a grip on the radio's plastic casing. I fumbled with the release tabs on the back, forcing them down until the heavy lithium battery pack popped out and clattered onto the floor.
+
+The screen stayed dead. The battery was sitting three feet away from the device.  
+But the speaker didn't stop.
+
+“Why don't you want to let us out?” the voice whispered, the tone shifting from a monotone drawl to a wet, raspy wheeze. “We’ve been watching you watch the screen for fourteen days. You look so lonely in your little glass box.”
+
+I scrambled backward, my boots skicking on the concrete floor until my spine slammed hard against the vault-lock door of the booth. I covered my ears with my hands, but the sound seemed to vibrate directly through the bulletproof glass itself.  
+Outside, the muffled, agonizing sobs of the child in the trunk of Lane 3 grew louder, layering over the wet whispers of the unpowered radio. The two sounds twined together, creating a maddening, discordant cacophony that filled the tiny, pressurized room.
+
+*Count to sixty, Vance had said. Just close your eyes and count to sixty.*
+
+I squeezed my eyes shut, burying my face in my knees. *One. Two. Three.* Every second felt like an eternity. *Twenty-one. Twenty-two.* The voice on the radio began to laugh—a wet, rattling sound like a throat filled with fluid. *Forty-five. Forty-six.*  
+*Ding.*
+
+The lane sensor chime cut through the noise.
+
+A loud, mechanical CLANG followed as the yellow gate for Lane 3 lifted on its own. Through the glass, I heard the low, heavy purr of the matte black sedan as it slowly accelerated, rolling forward into the soup-thick fog until the sound of the engine vanished completely.
+
+The radio went dead silent. The crying stopped.
+
+I let out a long, ragged breath, trembling as I pulled my hands away from my ears. The air inside the booth had grown freezing cold, turning my breath into pale plumes of vapor. I dragged myself back up to the chair, my knees weak. I looked at the digital wall clock.
+
+3:14 AM.
+
+I had survived the window. I had kept my finger off the emergency button. A wave of profound, exhausting relief washed over me. I reached for my cold coffee, my hand still trembling, telling myself that if I could just hold out for less than three hours, the day-locks would click open and I could drive away from Route 9 forever.
+
+Then, the clock flipped to 3:15 AM.  
+From the deep, pitch-black woods to the South, a low, guttural roar echoed down the valley. It didn't sound like a standard car engine. It sounded like an old, massive V8 engine with a cracked manifold, screaming at full throttle.
+
+A split second later, a pair of blinding, yellow high beams pierced through the fog. 
+
+My breath caught in my throat. The headlights weren't approaching from the North. They were heading directly toward me, traveling the wrong way down the Southbound asphalt, accelerating straight toward Lane 1.
+
+The light was blinding. It cast long, distorted shadows across the interior of my booth as the vehicle roared closer. It was a heavy, rusted, 1970s-era pickup truck. The chrome bumper was dented and smeared with dark, dried stains.
+
+*Rule 3: If a vehicle approaches from the wrong direction, do not blink. Keep your eyes locked on its front bumper until it vanishes from sight. If you blink, it will stop.*  
+I gripped the edge of the metal desk, widening my eyes until the skin stretched taut. I stared dead at that dented steel bumper.
+
+The truck was moving incredibly fast, a roaring wall of rusted metal. The glare of the high beams hit the glass windows of my booth, refracting into a thousand jagged needles of pure, white light that stabbed directly into my retinas.
+
+My eyes began to sting. A wave of intense, burning dryness hit my eyeballs.
+
+Don't do it, I screamed at myself. Do not close your eyes.
+
+The truck was right there. It was passing Lane 1. Just one more second and it would be gone into the fog behind me. But the agonizing burn was too much. A violent, involuntary reflex seized my eyelids.  
+My eyes slammed shut.
+
+It lasted less than a quarter of a second. A tiny, microscopic fraction of time.
+
+But the moment my eyelids parted, the roaring of the V8 engine was gone. Complete, suffocating silence fell over Route 9.
+
+The rusted pickup truck hadn't vanished. It was parked dead in Lane 1, idling in absolute silence right next to my booth window. The driver's side window was rolled down.
+
+And from the darkness inside the cab, a pale, elongated arm slowly reached out, pointing a single, trembling finger directly at my face.
+
+The pale, elongated arm hung perfectly still in the freezing air, its graying finger locked onto my face through the glass. I couldn't move. My muscles felt like concrete. The headlights of the truck were still on, casting a sickening, yellow glow through the dense fog. I stared at the driver’s side cab, trying to see the face behind that impossible arm. The interior was completely dark, save for the faint, green glow of the truck's dashboard lights.
+
+Then, the driver leaned forward into the light. It wasn't a monster. It was Vance. But it wasn't the man who had hired me three weeks ago. His skin was translucent, stretched so tight over his skull that his cheekbones looked ready to puncture the flesh. His jaw hung open at an unnatural, unhinged angle, loose and swinging like a broken door hinge. When he spoke, his tongue didn't move. The voice came from deep within his chest, wet and echoing.
+
+"You blinked, kid," Vance rasped. The sound was like dry autumn leaves scraping across a sidewalk. "I told you. If you break a single instruction, you won't live long enough to cash the check."
+
+"Vance..." I choked out, my voice barely a whisper against the glass. "Please. Help me."
+
+The thing wearing Vance's face smiled. It was a wide, jagged grin that split his lower lip, letting a thick, black fluid trickle down his chin. "Vance isn't here anymore. Vance blinked in 1994. We just keep his clothes."  
+The unhinged jaw snapped shut with a horrific, bone-crushing *crack*.
+
+Before I could even process the sound, a violent explosion of noise erupted from right behind me. It was Lane 2.
+
+*Rrrrrrtttt-clack-clack-clack—*
+
+The automated coin-drop machine wasn't jamming. The heavy iron basket was shaking so violently that the bolts anchoring it to the concrete were ripping out. From inside the narrow coin-return slot, a sound emerged. It wasn't the clinking of quarters. It was the frantic, desperate sound of dozens of long, metallic fingernails clawing at the inside of the steel chute.
+
+*Rule 4: Turn off your booth lights immediately. Press your back against the floor. Do not look up at the glass windows until you hear the sound of heavy rain.*  
+I lunged for the main breaker switch on the wall, slamming it down. Darkness swallowed Booth 4. The only illumination left was the sickly yellow high beams of the truck cutting through the glass. I dropped to my knees, throwing myself flat against the cold concrete floor. I pressed my spine hard against the base of the metal desk, burying my face in my arms, staring at the floor dust.
+
+Above me, the clawing sound stopped. A second later, a wet, heavy *slap* echoed against the roof of the booth. Something massive had jumped from Lane 2 onto the top of my glass box. The thick steel supports grooved into the ceiling groaned under an immense, shifting weight. Then came the dragging sound. A slow, rhythmic *slap-slap-slap* as a massive, wet organ dragged itself across the bulletproof windows. A terrible, suffocating stench filtered through the tiny air vents. It smelled like a flooded basement, copper, and old, corroded pennies.
+
+I squeezed my eyes shut, my entire body convulsing with silent, terrified sobs. *Rain,* I prayed. *Please let it rain.* I listened to the sky. Nothing. The night air outside was bone-dry.
+
+Suddenly, a loud, synchronized CLANG-CLANG-CLANG-CLANG shook the entire valley. It was the heavy pneumatic gears of the automated highway gates. I didn't need to look at the digital console to know what it meant. The mechanical groans of all four barriers lifting echoed in perfect unison through the fog.
+
+*Rule 5: The toll booths are the locking mechanism keeping something vast underneath the asphalt. If all four booth gates open at the exact same time, you have three minutes to run into the woods. Do not look back at the road.*  
+The concrete floor beneath my chest violently buckled. A massive, tearing screech ripped through the air as the asphalt outside split wide open. The vibration was so intense it shattered the bottom pane of the booth window, showering my legs with glass. A deep, low rumble vibrated from miles beneath the earth—a sound that felt less like an earthquake and more like a colossal, ancient chest cavity taking its very first breath after centuries of burial. I didn't think anymore. The three-minute timer was running. I scrambled to my feet, threw open the heavy vault door of the booth, and bolted straight into the pitch-black wall of pine trees, tightly gripping my phone in my pocket.
+
+The forest air was freezing, instantly turning my panicked breath into thick white plumes. Behind me, the sound of tearing metal and collapsing concrete echoed through the valley as Route 9 completely tore itself apart. I ran blindly, using my phone’s flashlight beam to cut through the heavy fog. Branches whipped across my face, drawing blood, but I didn't feel it. The adrenaline was the only thing keeping my legs moving.
+
+I must have run for two minutes straight before my light caught a shape up ahead. A man was standing perfectly still between two massive pine trees. He wore a faded corporate suit, his arms hanging limply at his sides. I skidded to a halt, my boots digging into the wet pine needles. "Hey! Hey, we have to go! The highway is collapsing!"
+
+He didn't move. He didn't turn. I took a cautious step closer, shining the phone light onto his face. My stomach dropped into a bottomless pit of horror. It was the commuter from Rule 1—the man who had handed me the fifty-dollar bill without making eye contact. His eyes were wide open, completely glassy, staring blankly up at the dark canopy. He was breathing, but his mouth was locked in a rigid, silent scream.
+
+I backed away, panicking, and swung the phone light to the left. There were more of them. Dozens of them. Standing in neat, straight rows among the trees like a twisted orchard. I saw a woman in a minivan sweater. I saw a teenager in a college hoodie. I saw truck drivers, commuters, and entire families. Thousands of people who had taken Route 9 over the decades, all standing shoulder-to-shoulder in the dark, frozen in place, staring directly up at the sky.
+
+Then, the catastrophic rumbling from the highway suddenly stopped. In the dead, suffocating silence of the forest, a synchronized, wet *crack* echoed through the trees. All at once, every single one of the thousands of missing drivers snapped their heads down.
+
+They weren't looking at me. They were looking past me, pointing long, pale fingers toward the edge of the woods where I had just run from.
+
+"It's out," the man in the suit whispered. His voice sounded like grinding stones. "It's out," the woman next to him repeated.  
+The chant spread through the dark woods like wildfire, thousands of voices layering into a deafening drone. The dead-eyed, pale drivers began stepping forward in unison, closing the circle around me, their hands reaching out to point back at the highway. A vast, dark silhouette was slowly rising above the tree line, blotting out the stars, dragging a massive shape out from beneath the split asphalt.
+
+I screamed, shoved my phone deep into my pocket, turned around, and sprinted away from the closing circle. I scrambled over the buckled, smoking concrete of the outer road barrier, found my old sedan still parked untouched in the employee gravel lot, and drove like a maniac through the grass until I finally hit a state county road.
+
+I’m safe now. I’m at this diner. But I finally figured out what the toll booths were actually doing. They weren't collecting money. They were collecting *attention*. The entity under the road feeds entirely on human awareness. It needed people to look at its rules. It needed people to wonder what it was. Every time a driver focused on that booth, a piece of their consciousness was trapped there, anchoring the entity beneath the earth. By breaking the rules, I broke the seal.
+
+And now, I realize the most terrifying part of Rule 5. The entity is free, and it is moving. It follows the paths of those who know its patterns.
+
+If you are reading this post, you now know the rules. You are thinking about it. You are feeding its awareness. If you start hearing the sound of heavy rain outside your window tonight—and the sky is completely clear—**do not look up at the glass.**  
+It knows who is looking for it.
