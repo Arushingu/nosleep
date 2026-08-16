@@ -1,244 +1,138 @@
-# I took a night-shift job at an automated toll booth on Route 9. They gave me a list of rules for the cars that don’t have drivers.
-Look, I’m only posting this because I don’t know who else to turn to. I’m typing this out on a crappy laptop at a 24-hour diner just off Interstate 87. It’s 4:15 AM, the coffee tastes like battery acid, and my hands are shaking so bad I can barely hold the mug. Every few seconds, I look out the fogged glass toward the parking lot, half-expecting to see a rusted front bumper idling under the streetlights.
+# I work on a construction site. The dawn is spent fortifying.
+I started journaling about three months ago. I do it on my phone because I frankly cannot be arsed to buy a journal, and my handwriting is illegible anyhow.
 
-If you live anywhere in upstate New York, right around the western lip of the Adirondacks, and your GPS ever tries to reroute you onto an old, rusted stretch of asphalt marked Route 9 South—**ignore it**. I don’t care if the interstate is backed up for thirty miles. I don’t care if your gas light is on. Just stay on the main highway.
+I’m a summer intern for a medium general contracting firm that for privacy and weird-internet-stalker-precaution reasons I cannot name, and I work as an assistant to the superintendent. This is my first summer interning, because I didn’t know what I wanted to do with my life until my dad died (three months ago, go figure) on my 20th birthday (happy birthday to me) and about a month later I decided I had some weird obligation to continue with his life’s work and go into construction.
 
-To understand why I’m saying this, you have to understand how desperate I was three weeks ago. My landlord had already stuck a three-day eviction notice right on my apartment door. My bank account was sitting at negative forty-two dollars. When you’re that close to sleeping in your car, you don’t ask questions when a lifeline drops out of nowhere.
+We didn’t have a stellar relationship or anything. But, I found out that -thanks, dad- I actually have a passion for all things industrial. And a half-will to live just to be the best at all this crap. Better than he was, at least.
 
-The ad was tucked at the bottom of page four on a local Craigslist board. No company logo, no corporate layout. It just said: *Overnight Toll Monitor. Route 9 Sector. 11 PM to 6 AM. $45/hour. Must have reliable transportation and pass a background check.*
+I’m an okay intern. I’m this firm’s first *female* intern, which is cool. It’ll go on my resume or something. People are always like ‘wow’, ‘groundbreaking’, ‘revolutionary’, when I tell them; think I’m some kind of crazy smart success story after tragedy. I’m gonna be real with you: it’s not that big of a deal. The success or the tragedy. Insignificant in comparison to what I’ll end up if everything goes to plan.
 
-Forty-five bucks an hour just to sit on my ass and watch a coin machine. I called the number before I could even think it through.  
-A guy with a voice like grinding gravel answered on the second ring. He didn't ask for a resume or my experience. He just asked if I minded being alone for long stretches, and if I had any history of sleepwalking. When I told him no, he told me to meet him at the Route 9 maintenance pull-off the following night at 10:30 PM sharp.
+Like, yeah, construction sites are not known to be the *best* place in the world for women, but I’ve had no trouble. Worst I’ll get is a smile and a wave, but maybe that’s because I’ve got half a foot and at least forty pounds on some of these guys, and I’d be lying if I said it wasn’t a bit of a confidence booster. But I think it’s cause they don’t have time to harass anyone. And because I’m technically more in charge than them.
 
-That stretch of road should have been my first warning. Route 9 hasn't been on official state tourist maps since the late 1980s. The trees have grown so thick and aggressive along the shoulders that their branches literally weave together overhead, cutting off the moonlight and creating this permanent, suffocating tunnel over the blacktop.
+Which means I have access to a lot of things that a fresh 20 year old probably shouldn’t have access to. Logs, internal messages, RFIs, completed JSAs, the TENTATIVE (because none of this stuff is set in stone) schedule, change orders, and my favorite: complaints. There’s more, but I haven’t been bored enough to scroll through everything I can see.
 
-When I finally got there, the "maintenance pull-off" turned out to be nothing more than a gravel clearing cut into the pines. 
+My problems sort of started when I was told to look through some documents on ProCore to scan for any price discrepancies—typical procedure for a project this late into development.
 
-Standing under a single, flickering floodlight were four tiny, bulletproof glass booths straddling four automated lanes. It looked entirely out of place—like a sterile, modern checkpoint dropped into the middle of an ancient forest.
+Issue: I saw what looked like eighty or so duplicates of the same line item, all charged to the owner for their completion. I was going to delete them until I checked (thank god) and saw that there were about a gajillion serial shipment numbers for the pre-poured CMU blocks that varied with each ‘duplicate.’ It looked like this crew was consuming about three long pallets per iteration of this specific section, which -if you hadn’t guessed- is freaking expensive. But, if there were what looked to be three pallets per day getting shipped to site, it’s not my money and everyone’s gotta get paid.
 
-The guy who hired me called himself Vance. He wore a faded, navy-blue state transport uniform that looked twenty years old, but it lacked any official state seals or badges. He didn't shake my hand. He just gestured for me to follow him into Booth 4.
+I’d decided by that point to file it away to bring up to the actual superintendent for when he got back from our site walk with the safety guy. Mad glitch or something. Maybe one of our sub-subcontractors fucked up when placing an order. We could sort it out, I thought, because for some reason the optimism that fueled my thinking that anyone I worked with had the capacity for reasonable action hadn’t been head-trauma’d out of me yet.
 
-"The job is automated," Vance said, his eyes scanning the dark tree line rather than looking at me. "The commuters drop their exact change into the baskets. The gates lift. They drive through. Your only job is to sit here, keep an eye on the digital camera feeds, and make sure the physical mechanisms don't jam up."
+I feel like I need to give a bit more background for the project for you all to really understand why I’m pissed.
 
-"And if they do?" I asked, eyeing the heavy bank-vault lock on the booth door.  
-Vance reached into his breast pocket and pulled out a laminated, double-sided sheet of paper, laying it flat on the metal desk.  
-"If anything deviates from the standard routine, you consult the sheet," Vance said. His voice dropped an octave, losing any trace of casual friendliness. "You don't improvise. You don't call the police. You don't leave this booth until 6:00 AM when the automated day-locks click open. If you break a single instruction on this paper, you won't live long enough to cash your first paycheck."
+I came in late because this project was started in *2020*. It’s a production plant about an hour north of that one large city in north Georgia that I’m once again refusing to name—you have to really internalize that the scale of this project does *not* justify it taking as long as it’s been taking. Two years should the *max* for an *add-on* to a medium-size industrial plant with a preexisting sub-and-superstructure on better-than-normal soil quality. I at least learned *that* in college. It’s been almost six years. We’re scheduled for completion in *November.* That’s fucking ridiculous.
 
-I laughed, expecting him to crack a smile or admit it was a joke. He didn't. He just turned on his heel, walked out of the booth, got into an unmarked white pickup truck, and drove away into the dark.
+So I put my stupid little tab on file for Rich, my Super, and I pulled up the thing I do whenever I’m on break: deal with my dead dad’s dead affairs, because if I don’t do something productive pertaining to his death and the fact that I’m his eldest next of kin, I get creepy nightmares about his waterlogged corpse crawling into my bed.
 
-I was completely alone.
+Before you say anything: I can’t do therapy. I’ve tried.
 
-For the first two weeks, absolutely nothing happened. And honestly? That was the hardest part. The silence out there isn't normal. There are no crickets. No owls. No wind rustling the pines. Just the low, hypnotic hum-hum-hum of the fluorescent light tubes inside my booth. By night four, the isolation started playing tricks on my mind. I found myself reading the laminated sheet over and over again, just to have something to look at.
+Lunch break was over, and I should probably add on to the fact that people on site like me because I know more-than-rudimentary Spanish, and I don’t do the stupid thing that Rich does where he adds ‘el’ and ‘-o’ to words assuming that it’s an okay Spanish attempt. I’ve never seen someone look more offended when he said ‘el lunch-o?’ And pointed at one of the epoxy guys’ lunch bag. That’s relevant because I was helping one of the other flooring guys use the microwave during lunch that day.
 
-I memorized the text. And the more I read it, the more uncomfortable I became.
+When I sat down and waited for Rich, I did some more digging and found about thirty more instances of those ‘duplicate’ line items. I had so many tabs open that my already old and slow laptop was barely moving and couldn’t hold a charge, but they all had just about the same number of ‘duplicates’ for each supposedly completed area, give or take one or two.
 
-**Rule 1:** The toll is exactly $2.50. If a car approaches and the driver hands you a $50 bill without making eye contact, take it, print a receipt, and do not look in their rearview mirror.
+The company generously provided me with a pretty cheap hard hat and vest, and so, sick of waiting, I donned those and went down into the site. I’ll level with you: it’s not *small*. It’s no Toyota factory, but it’s still got some *oomph* to it, if you know what I mean. The warehouse part itself is situated at a lower level than the office side of things to begin with, and the production, storage, and packaging areas are all lower and lower still. The lowest level of this place has ceilings about thirty feet high and no windows (not that there’d be any in the first place), but apparently that was preexisting substructure. It was being torn up a bit extra now because they were adding an elevator.
 
-**Rule 2:** Between 2:00 AM and 3:15 AM, a matte black sedan with completely blacked-out windows will pull up to Lane 3. There is no driver inside. You will hear the sound of a child crying from the trunk. Do not press the emergency gate release. Wait exactly 60 seconds, and the gate will lift on its own.
+I checked one of the spots. I made sure to bring a digital copy of the uploaded documents with me, since every spot had a picture of the completed area as per protocol. That’s the good thing about construction—everything is documented. I can’t do a darn thing unless it’s written down, audited, gone over about fifty times and copied so that everyone involved knows exactly what they’re doing and when.
 
-**Rule 3:** If a vehicle approaches from the wrong direction (driving North in the Southbound lane), do not blink. Keep your eyes locked on its front bumper until it vanishes from sight. If you blink, it will stop.
+The construction motto is ‘CYA.’
 
-**Rule 4:** If the automated coin machine in Lane 2 starts rattling like something is trying to claw its way out from the coin-return slot, turn off your booth lights immediately. Press your back against the floor. Do not look up at the glass windows until you hear the sound of heavy rain, even if the sky was perfectly clear when you started your shift.
+That stands for ‘Cover Your Ass.’
 
-**Rule 5:** You are not keeping things out of the highway. The toll booths are the locking mechanism keeping something vast underneath the asphalt. If all four booth gates open at the exact same time, you have three minutes to run into the woods. Do not look back at the road.
+It basically means that whatever you’re doing, however expensive or tedious or difficult, is less expensive, tedious, and difficult than the blame of a dead body falling on your shoulders.
 
-By week three, I had totally convinced myself it was all just an elaborate psychological experiment. Some sick corporate test to see how long a desperate guy would follow insane instructions for forty-five bucks an hour.
+I had every picture on my phone, I could swipe through them like an album. Each picture was clearly taken at a different time on different days. Inside and outside photos. Shadows were in different places, floors were in different states of mess and clean, trees on the outside lost leaves and regrew them. It all looked relatively the same otherwise. The same completed wall, every single time.
 
-Then came last night.
+The only thing I’d really noticed, if anything, was the fact that the actual completed areas -when put into context with the rest of the building and not just a photo- looked a bit fresher than everything else.
 
-It was 1:14 AM. The fog had rolled in thick off the mountains, settling over the asphalt like a heavy, gray blanket. I was passing the time by playing a game on my phone when the sensor chime echoed through the booth.  
-*Ding.*
+“Well, duh, that’s what’s delaying completion,” Rich had said when I’d brought the not-quite duplicates to his attention for the first time, slapping the handy print-out I’d provided with the backs of his fingers for emphasis. He and I were in the back corner of the job site trailer, him in front of the monitor he’d hooked up and I, leaning my elbows on my knees near the drafting table. He said it in that way where you know someone *had* a piece of information and, regardless of the fact that *you* did *not* have that piece of information, that someone is intent on making you feel stupid. I was intent on Kubrick-staring him until he stopped.
 
-A pair of headlights cut through the fog, approaching Lane 4. It was an old, tan station wagon, the body panels covered in rust. It idled up to my window, its engine knocking loudly.
+It made reasonable sense. If our concrete guys had to keep rebuilding the walls, the outside elements would keep the floor guys from finishing the floor, extra-delaying them even more than high humidity would (which, in north Georgia, is a lot), and thus our door guys and glass guys can’t get in to finish their jobs, and the electricians and HVAC probably have a lot of stuff getting trampled in the rebuilding process.
 
-I rolled down my small glass slider to greet them, expecting a lost tourist.
+Maybe the fact that I was looking at Rich like I could smell the fact he’d not washed his hair in a couple weeks was tipping him off as to why I might’ve been a little miffed that nobody was telling me that we had been rebuilding the same sections of wall over and over again for the last, according to the logs, six years.
 
-The man in the driver's seat was wearing a faded, gray business suit. He didn't look at me. He kept his eyes locked dead ahead on the closed yellow gate, his hands gripping the steering wheel so tightly his knuckles were stark white. He didn't say a word. He just slowly raised his right hand and held out a clean, crisp fifty-dollar bill.
+He seemed to get it. He had a weathered face that moved a bit extra with small facial expressions. I couldn’t really tell if he was in his fifties or sixties, that’s about where my perception of people’s ages stops working. I *could* tell from the way he seemed suddenly eager to leave my line of sight that he had something that he either: a.) didn’t want to explain for the sake of it being time consuming, or b.) didn’t want to explain for the sake of it being *above my pay grade*. Alas, most of the things I do are above my pay grade.
 
-My breath hitched in my throat. My mind raced back to the laminated sheet.  
-*Rule 1: Take it, print a receipt, and do not look in their rearview mirror.*
+I made a reasonable assumption. Someone kept fucking things up. How does one fuck up about thirty sections of wall eighty different times, give-or-take five? Not my business. Wrong grade of rebar maybe. I took off my helmet and turned back to my overheating laptop before I heard him speak up behind me.
 
-My hand shook as I took the bill. It felt freezing cold to the touch, like it had been sitting in a freezer. I turned to my terminal, pressed the button to print the receipt, and handed it back to him through the slot. The moment his fingers took the paper, the automated gate lifted.
+“Get here at 4:00 AM tomorrow.”
 
-The station wagon slowly began to roll forward.
+…which, in my mind, was not entirely insane. See, concrete is poured before the sun rises to prevent it from drying instantaneously. Especially in hot climates like the one we’re in. Otherwise, the concrete would lose its moisture, and would crack or significantly weaken as a result. *No bueno* for large superstructures. Other staples of construction were also pretty common at early hours, and I’d imagine transporting over 240 pallets of CMU blocks would be best when the roads were clear.
 
-And that’s when my human curiosity ruined everything. I knew the rule. I had read it a hundred times. But as the back of the car cleared my window, my eyes automatically darted upward to the car's side-view mirror.  
-I looked.
+So I sighed. Heavy. Tired, because I was. I lived in a shitty temporary apartment that I was leasing for the duration of my work there, it was about an hour south, and I had to wake up at 5:00 AM on a good day to get to site by 8:00, because regardless of the fact that I’m on a construction site, I still have to do makeup and hair and look presentable *because that’s what being a woman entails*, also traffic, somehow, always made the drive even longer, which meant that I’d have to get up around…
 
-There was no reflection of the highway behind him. There was no reflection of my booth. Inside the glass of the mirror, all I could see was a vast, pitch-black ocean under a sky filled with dying, red stars. And floating just beneath the surface of that black water were hundreds of pale, bloated human faces, all staring out of the glass directly at me.
+My head dropped against my keyboard as I reckoned that I’d need to be awake by 1:00 AM.
 
-The station wagon disappeared into the fog. But the hum of the fluorescent lights above me suddenly changed pitch, turning into a low, vibrating whine.
+Rest of the day went off without a hitch, no issues there besides the impending dread of my early awakening. And having to break up a verbal altercation between the elevator guys. I went home, but not before sitting in traffic for an hour and a half with nothing but Shakira to keep me company, went to the shitty little gym in my shitty little apartment complex to let off any minuscule amount of excess energy I may have had, showered, and went to bed.
 
-I sat back down in my chair, my heart hammering against my ribs. I had broken Rule 1. I had looked.
+But, because I’m Gen-Z and *an idiot for not just sleeping*, I stayed up a little to look at these ProCore documents. Because ‘going to bed’ never means ‘sleeping,’ now does it? You know when you have an *itch* at the back of your neck like something’s going to bug you unless you check on it? Like making sure you’ve locked the door or turned off the oven? It felt like that. Like something mega-bad was about to happen if I didn’t give them one more once-over.
 
-And according to the clock on the wall, it was now exactly 1:58 AM. Two minutes until the window for Rule 2 opened.
+I’m stupid. Like, really stupid for not just going to sleep because in my *infinite wisdom*, I managed to lose track of time in my uncomfortable-ass twin bed while my laptop probably burnt my sheets and before I knew it, it was 12:50 AM and I was scouring meeting logs for *some* mention of the wrong grade of rebar because ‘ctrl+f’ doesn’t work on my dinky ass laptop that overheats so bad I’ve stuck a post-it note on it to officially name it ‘La Bomba.’
 
-The digital clock on the booth console flipped to 2:00 AM.
+I never got lucky with my search, by the way. The meeting logs didn’t mention rebar because the meeting logs were *blank.*
 
-The low whine of the fluorescent tubes grew louder, vibrating through the metal desk until my teeth ached. The fog outside had thickened to an unnatural degree. It pressed against the bulletproof glass like a solid wall of curdled milk, completely swallowing the other three lanes. I couldn't even see the yellow safety gate directly in front of my own booth anymore.
+I scrolled. Last week. Blank.
 
-Then, a sharp, loud burst of static shattered the silence.
+The week before. Blank.
 
-*Krrrrssssshhhhh—*
+The 46th week of last year. Blank.
 
-I jumped, nearly knocking my tepid coffee onto my lap. The sound wasn't coming from my phone. It was coming from an old, dusty Motorola two-way radio mounted to the wall beneath the desk. I hadn't noticed it during my first two weeks because it had been completely dead—no lights, no battery indicator, nothing.
+Blank blank blank blank blank. Blank sheets. Literally any of the shit that could go wrong might require presenting these meeting logs in court, say a sub-subcontractor gets injured or something. Like, yeah, none of it was technically on my shoulders, but that’s still pretty stressful. I was beginning to think -and hope- my site was crashing if not for the fact that I went *all the way back*, six years ago, just to find that the only meeting logs that actually existed were the first through the fifth.
 
-Now, its small analog screen was glowing a faint, radioactive green.
+And I took a second to think about how much money some schmuck would get by claiming these important safety briefings and directional meetings had never happened in the event of a lawsuit. Which was almost guaranteed, considering I looked at a stack of drawings I’d received just days ago and saw  the welding instructions for the elevator. Sheesh.
 
-“...fourth shift… respond… Booth 4, do you copy?”
+And by that time, I had to get up. No sleep for me.
 
-The voice was warped by heavy atmospheric static, but I recognized the flat, gravelly cadence immediately. It was Vance.  
-My hand shook as I reached down and unhooked the heavy plastic receiver. I pressed the push-to-talk button. "Vance? Vance, is that you? Look, something is wrong out here. A car just went through Lane 4. I... I think I messed up. I looked in the mirror."
+Fortunately, I have a pseudo-roommate: a 24 year old guy who rarely actually sleeps here because his girlfriend has an apartment within driving distance. He’s some kind of caffeine-addicted compsci major (I express sympathy about his job prospects more than I care about his presence) bussing tables for the summer, and he’s got his side of the fridge stocked with energy drinks. And beer.
 
-There was a long, agonizing pause. The static hissed, rising and falling like the sound of distant waves.
+I’d feel bad if not for the fact that he legitimately has not turned up in like two weeks. And because I’m not usually in the business of feeling bad about stupid shit; I can pay him for the drinks if he turns up and cares. Besides, his food is going bad, I’ve been throwing it out periodically as it rots, his drinks are just sitting there. I’ve taken maybe two. And today, I took three more. Energy drinks, I mean. I don’t like beer.
 
-“...warned you about the mirrors, kid,” Vance’s voice cut through, sounding incredibly far away. “The mirrors show the reservoir. Don't look again. If you look three times, they don't even need the gates to take you.”
+One, I downed while doing my makeup. I don’t wear transferrable lip stuff because it’s inconvenient, which means I have to be very careful where I put the lip stain or else I’ll look like 2008 Joker for a whole day. My hands were a bit shaky from the lack of sleep, and the sudden influx of energy, I guess, because I messed up a little around the corner of my mouth.
 
-"What reservoir? Vance, what is this place?" I practically yelled into the mic. "The floor is vibrating. The air smells like old pennies. Come get me. I don't care about the forty-five bucks anymore, just come lock up."  
-“Can’t do that,” the radio crackled. “The day-locks are set. Nobody comes down Route 9 until 6:00 AM. Not even me. Listen to me carefully. What does the console say for Lane 3?”
+The train that runs near my apartment has a horn that sounds like it hurts to honk. It has a little wind up, like a whisper before it just screams at you, a scream like it’s been torn out of someone’s throat.
 
-I glanced over at the digital interface. A small red indicator light was blinking next to the monitor feed for Lane 3.
+I don’t like how this town seems hellbent on startling me. I nearly tore my own hair out with how badly I jumped at the 1:35 train passing.
 
-"It says there's a vehicle idling," I whispered, my throat going dry. "But I can't see anything through the fog."
+Fuuuucked up and evil. Anyway.
 
-“It’s 2:03 AM,” Vance said. His voice was suddenly devoid of static, perfectly, terrifyingly clear. “Rule 2. The black sedan. Do not touch the override switch. If the trunk opens, do not look at it on the camera feed. Just close your eyes and count to sixty.”  
-"Vance, wait—"
+Getting to work was kind of a blur because I guess I dozed off a bit behind the wheel. Not like fell asleep, more like zoned out. No traffic this time, so I guess it was okay that I and my car were essentially playing hopscotch down the three-lane highway. But I got there when I needed to—3:45, fifteen minutes to spare. It wasn’t until I actually turned off the car and sat back in my seat to down my second energy drink and scroll on my phone that Rich decided to *bother me*. I heard the rumble of an engine, looked up, and he was sitting in the parking space across from me in his fancy company truck. He usually only parked there when he was about to slide his bumper right up against mine and make it impossible for me to even think about leaving before him (I had never done that. Ever. No clue why he’d park like that.) because otherwise any damage would be on my shoulders instead of his.
 
-“And kid? If the radio clicks three times without me speaking... turn it off. Pull the battery out. Don't let it talk to you.”
+But he didn’t park so close. He didn’t look relaxed like he usually did. No condescending smile or sarcastic gestures, he just kind of looked…
 
-The line went dead. The green backlight on the radio screen flickered out.
+Alert? Like weirdly so. More alert than one usually does on a site that can kill you in about fifty different ways. He walked past rotating machinery like it wasn’t anything. Put his fingers dangerously close to things that could rip them off. But he looked scared, in his car. The dark made all of the folds in his face cast weird shadows, the moonlight lit up the whites of his eyes and very little else. I could see how wide his eyes were by that metric alone.
 
-I stood there in the suffocating silence, the plastic receiver heavy in my palm. My eyes slowly drifted to the closed-circuit monitor on my desk. The camera for Lane 3 was a grainy, black-and-white feed. Through the pixelated static of the screen, I could make out the silhouette of a long, heavy vehicle. It had no headlights on. The windows were so dark they looked like rectangles of pure charcoal cut out of the air.
+I was about to get out. Knock on his window or something. Stretch my sore legs after an hour and change in the car and an hour and change in the gym yesterday. I guess he watched me unbuckle because he scrambled for his phone before I could even turn my engine off. I watched him drop it twice on his lap. I stayed still. It doesn’t take a rocket scientist to know that someone reacting badly to you moving means to stop moving—I never understood horror movies where people would question *why* someone was freaking out when the freaker (I don’t know a better descriptive word, let me be) was always endlessly more experienced with the weird shit. Rich was here every Tuesday morning at 4:00 AM. I wasn’t about to question his judgment on Tuesday at 3:45.
 
-*Rule 2: There is no driver inside. You will hear the sound of a child crying from the trunk.*
+*Stay in your car.*
 
-I stared at the screen, paralyzed. Then, a tiny muffled sound leaked through the booth's external intercom system.
+Was the text I’d received. My phone was sitting on a magnet clipped to one of the air conditioning vents. I saw the message pop up on the screen, and then bigger on the CarPlay display next to it. Rich texted like an old man. I guess he was kind of an old man. I received a second text, same pattern. Phone, car. It felt like a double warning. Extra emphasis, more reason to follow instructions.
 
-It was a soft, rhythmic scratching. Like fingernails picking at carpet.
+*Until I get out.*
 
-A second later, the scratching stopped, replaced by a sound that made my chest tighten so hard I couldn't breathe. It was a child’s voice. High-pitched, muffled, and desperate, echoing clearly from the trunk of the sedan on Lane 3.
+Fine by me, man. Less work I have to do. I shot him a thumbs up through my windshield, and he seemed to sit back only then.
 
-"Mommy? It's dark in here. Mommy, let me out. I can't breathe."
+It was like fireflies arriving that more cars began to pull up. Their headlights were blinding, but only for a moment as they parked in the makeshift lot we’d made for the site. Dirt, in the grooves of their tires. Every single car surrounding me was bigger than mine, and when the headlights turned off, I could see that every single man in his vehicle looked just as shaken as Rich. I recognized them as our concrete guys. Folks who came early. Folks who left early. The owner had come for a tour and called them lazy, but I knew better. These were the nocturnal species of construction workers.
 
-The intercom picked up a violent thump from inside the trunk, followed by a frantic, breathless sob. Every protective instinct in my brain screamed at me to hit the red emergency gate release button on my desk. It was right there. A single press would lift the gate and let the car go. It would end the crying.
+And we sat. Some of them didn’t move. Some looked like they weren’t blinking. Some, like they weren’t breathing. I sipped my energy drink. I didn’t even bother scrolling on my phone.
 
-I reached my hand out. My finger hovered less than an inch above the red button.  
-*Click. Click. Click.*
+Normally, someone in this situation would say ‘I don’t know how long we sat there,’ but I know exactly how long we sat there. We sat there until the clock struck 4:00. And a symphony of car doors opened. Mine opened late, like applause that lingered just slightly.
 
-I froze. The three sharp clicks hadn't come from the intercom. They had come from the dead, unpowered Motorola radio in my hand.
+Now, I wish I could say I was exaggerating, but you all know the jokes around construction workers and actually getting to work. In reality, they huddle for safety meetings and ‘toolbox talks’, putter around for a couple minutes, and then get to work. I can confidently say that I have never seen a group of men get to work faster than Rich and the concrete guys.
 
-The screen didn't light up this time. But from the cold speaker grid, a voice began to whisper. It wasn't Vance. It was my own voice. It sounded exactly like me, but warped, speaking in a flat, monotone cadence. 
+Yes. Rich, too. Rich, who normally leaned against a pallet of boxes while he watched other people get work done. Rich, who spent as much time as he could manage in the job site trailer. I heard him say; “*you know what to do, and you know what to watch for*”, and with not even a safety meeting they had begun.
 
-“Press the button,” my own voice whispered from the radio. “Press it. Let us out. We are so cold under the asphalt. Press it.”
+Mortar between blocks, grout in the cavities, rebar. More mortar, more blocks. They worked like ants. The men split up, two to a section and I’d noticed, with what felt like the physical sensation that accompanied the noise of an off-key violin being abruptly smacked against the back of a steel chair, that the sections of wall they were attending to were *demolished*.
 
-My heart hammered a frantic rhythm against my ribs as my own voice continued to warp and hiss out of the speaker grid.  
-“Press it. Press the button. We want to meet you.”
+I picked up the pace towards the site. My boots were heavy, they used to be black but now they’re almost a tan-ish grey. I remembered the noise of kicking up dust on my way over. Maybe subconsciously, I was counting my steps and the noises that correlated. This felt like one of those times where I’d hear something extra.
 
-With a panicked yelp, I dropped the receiver. It slammed onto the metal desk. My hands were shaking so violently I could barely get a grip on the radio's plastic casing. I fumbled with the release tabs on the back, forcing them down until the heavy lithium battery pack popped out and clattered onto the floor.
+It was not. My steps, and the sound of men working almost in silence.
 
-The screen stayed dead. The battery was sitting three feet away from the device.  
-But the speaker didn't stop.
+“We didn’t call in a demo crew,” Rich had said before I could ask, bent over and loading his trowel with mortar and sliding it along the top edge of a block. He spoke quieter than I’d ever heard him. Instinctively, I grabbed a CMU block, intending to help. He spoke so softly that I simply read his lips as opposed to straining to hear.
 
-“Why don't you want to let us out?” the voice whispered, the tone shifting from a monotone drawl to a wet, raspy wheeze. “We’ve been watching you watch the screen for fourteen days. You look so lonely in your little glass box.”
+I nodded. I knew. I saw who we called in. I knew who was on site at any given time, my logs and JSAs were up to date. The holes in the building gaped open, pieces of exposed rebar poking through like sinews. I couldn’t see even three feet into the building, regardless of how many holes I knew there were, the moonlight that should be illuminating them. Even if my eyes had adjusted.
 
-I scrambled backward, my boots skicking on the concrete floor until my spine slammed hard against the vault-lock door of the booth. I covered my ears with my hands, but the sound seemed to vibrate directly through the bulletproof glass itself.  
-Outside, the muffled, agonizing sobs of the child in the trunk of Lane 3 grew louder, layering over the wet whispers of the unpowered radio. The two sounds twined together, creating a maddening, discordant cacophony that filled the tiny, pressurized room.
+I could see, in my periphery, the spot I’d checked. Picture after picture, plants growing and wilting, the sun moving and people working around the spot I’d studied for maybe five minutes, but I knew it. Where the wall was demolished, none of the blocks were broken. It was like a methodical un-placing of *specifically* the masonry and some of the rebar, bent, *bent* where the blocks had seemingly been pulled off around it.
 
-*Count to sixty, Vance had said. Just close your eyes and count to sixty.*
+A bunch of men and myself, unspeaking for two hours, repairing the same sections of wall yet again. And then I was ushered to the job site trailer while Rich handled morning checks, once these fresh sections of wall had been once again completed. Which is where I’m now writing this. 
 
-I squeezed my eyes shut, burying my face in my knees. *One. Two. Three.* Every second felt like an eternity. *Twenty-one. Twenty-two.* The voice on the radio began to laugh—a wet, rattling sound like a throat filled with fluid. *Forty-five. Forty-six.*  
-*Ding.*
+Today’s journal entry is different, because it’s not going to the depths of my Notes app and staying untouched for life. That being said: hello, internet. It’s 6:32 AM. I have a tally and a record, a picture of where all of these gaping sections of wall have been filled in. The sun is rising, and whatever had shaken Rich and the crew seems to have dissipated. 
 
-The lane sensor chime cut through the noise.
-
-A loud, mechanical CLANG followed as the yellow gate for Lane 3 lifted on its own. Through the glass, I heard the low, heavy purr of the matte black sedan as it slowly accelerated, rolling forward into the soup-thick fog until the sound of the engine vanished completely.
-
-The radio went dead silent. The crying stopped.
-
-I let out a long, ragged breath, trembling as I pulled my hands away from my ears. The air inside the booth had grown freezing cold, turning my breath into pale plumes of vapor. I dragged myself back up to the chair, my knees weak. I looked at the digital wall clock.
-
-3:14 AM.
-
-I had survived the window. I had kept my finger off the emergency button. A wave of profound, exhausting relief washed over me. I reached for my cold coffee, my hand still trembling, telling myself that if I could just hold out for less than three hours, the day-locks would click open and I could drive away from Route 9 forever.
-
-Then, the clock flipped to 3:15 AM.  
-From the deep, pitch-black woods to the South, a low, guttural roar echoed down the valley. It didn't sound like a standard car engine. It sounded like an old, massive V8 engine with a cracked manifold, screaming at full throttle.
-
-A split second later, a pair of blinding, yellow high beams pierced through the fog. 
-
-My breath caught in my throat. The headlights weren't approaching from the North. They were heading directly toward me, traveling the wrong way down the Southbound asphalt, accelerating straight toward Lane 1.
-
-The light was blinding. It cast long, distorted shadows across the interior of my booth as the vehicle roared closer. It was a heavy, rusted, 1970s-era pickup truck. The chrome bumper was dented and smeared with dark, dried stains.
-
-*Rule 3: If a vehicle approaches from the wrong direction, do not blink. Keep your eyes locked on its front bumper until it vanishes from sight. If you blink, it will stop.*  
-I gripped the edge of the metal desk, widening my eyes until the skin stretched taut. I stared dead at that dented steel bumper.
-
-The truck was moving incredibly fast, a roaring wall of rusted metal. The glare of the high beams hit the glass windows of my booth, refracting into a thousand jagged needles of pure, white light that stabbed directly into my retinas.
-
-My eyes began to sting. A wave of intense, burning dryness hit my eyeballs.
-
-Don't do it, I screamed at myself. Do not close your eyes.
-
-The truck was right there. It was passing Lane 1. Just one more second and it would be gone into the fog behind me. But the agonizing burn was too much. A violent, involuntary reflex seized my eyelids.  
-My eyes slammed shut.
-
-It lasted less than a quarter of a second. A tiny, microscopic fraction of time.
-
-But the moment my eyelids parted, the roaring of the V8 engine was gone. Complete, suffocating silence fell over Route 9.
-
-The rusted pickup truck hadn't vanished. It was parked dead in Lane 1, idling in absolute silence right next to my booth window. The driver's side window was rolled down.
-
-And from the darkness inside the cab, a pale, elongated arm slowly reached out, pointing a single, trembling finger directly at my face.
-
-The pale, elongated arm hung perfectly still in the freezing air, its graying finger locked onto my face through the glass. I couldn't move. My muscles felt like concrete. The headlights of the truck were still on, casting a sickening, yellow glow through the dense fog. I stared at the driver’s side cab, trying to see the face behind that impossible arm. The interior was completely dark, save for the faint, green glow of the truck's dashboard lights.
-
-Then, the driver leaned forward into the light. It wasn't a monster. It was Vance. But it wasn't the man who had hired me three weeks ago. His skin was translucent, stretched so tight over his skull that his cheekbones looked ready to puncture the flesh. His jaw hung open at an unnatural, unhinged angle, loose and swinging like a broken door hinge. When he spoke, his tongue didn't move. The voice came from deep within his chest, wet and echoing.
-
-"You blinked, kid," Vance rasped. The sound was like dry autumn leaves scraping across a sidewalk. "I told you. If you break a single instruction, you won't live long enough to cash the check."
-
-"Vance..." I choked out, my voice barely a whisper against the glass. "Please. Help me."
-
-The thing wearing Vance's face smiled. It was a wide, jagged grin that split his lower lip, letting a thick, black fluid trickle down his chin. "Vance isn't here anymore. Vance blinked in 1994. We just keep his clothes."  
-The unhinged jaw snapped shut with a horrific, bone-crushing *crack*.
-
-Before I could even process the sound, a violent explosion of noise erupted from right behind me. It was Lane 2.
-
-*Rrrrrrtttt-clack-clack-clack—*
-
-The automated coin-drop machine wasn't jamming. The heavy iron basket was shaking so violently that the bolts anchoring it to the concrete were ripping out. From inside the narrow coin-return slot, a sound emerged. It wasn't the clinking of quarters. It was the frantic, desperate sound of dozens of long, metallic fingernails clawing at the inside of the steel chute.
-
-*Rule 4: Turn off your booth lights immediately. Press your back against the floor. Do not look up at the glass windows until you hear the sound of heavy rain.*  
-I lunged for the main breaker switch on the wall, slamming it down. Darkness swallowed Booth 4. The only illumination left was the sickly yellow high beams of the truck cutting through the glass. I dropped to my knees, throwing myself flat against the cold concrete floor. I pressed my spine hard against the base of the metal desk, burying my face in my arms, staring at the floor dust.
-
-Above me, the clawing sound stopped. A second later, a wet, heavy *slap* echoed against the roof of the booth. Something massive had jumped from Lane 2 onto the top of my glass box. The thick steel supports grooved into the ceiling groaned under an immense, shifting weight. Then came the dragging sound. A slow, rhythmic *slap-slap-slap* as a massive, wet organ dragged itself across the bulletproof windows. A terrible, suffocating stench filtered through the tiny air vents. It smelled like a flooded basement, copper, and old, corroded pennies.
-
-I squeezed my eyes shut, my entire body convulsing with silent, terrified sobs. *Rain,* I prayed. *Please let it rain.* I listened to the sky. Nothing. The night air outside was bone-dry.
-
-Suddenly, a loud, synchronized CLANG-CLANG-CLANG-CLANG shook the entire valley. It was the heavy pneumatic gears of the automated highway gates. I didn't need to look at the digital console to know what it meant. The mechanical groans of all four barriers lifting echoed in perfect unison through the fog.
-
-*Rule 5: The toll booths are the locking mechanism keeping something vast underneath the asphalt. If all four booth gates open at the exact same time, you have three minutes to run into the woods. Do not look back at the road.*  
-The concrete floor beneath my chest violently buckled. A massive, tearing screech ripped through the air as the asphalt outside split wide open. The vibration was so intense it shattered the bottom pane of the booth window, showering my legs with glass. A deep, low rumble vibrated from miles beneath the earth—a sound that felt less like an earthquake and more like a colossal, ancient chest cavity taking its very first breath after centuries of burial. I didn't think anymore. The three-minute timer was running. I scrambled to my feet, threw open the heavy vault door of the booth, and bolted straight into the pitch-black wall of pine trees, tightly gripping my phone in my pocket.
-
-The forest air was freezing, instantly turning my panicked breath into thick white plumes. Behind me, the sound of tearing metal and collapsing concrete echoed through the valley as Route 9 completely tore itself apart. I ran blindly, using my phone’s flashlight beam to cut through the heavy fog. Branches whipped across my face, drawing blood, but I didn't feel it. The adrenaline was the only thing keeping my legs moving.
-
-I must have run for two minutes straight before my light caught a shape up ahead. A man was standing perfectly still between two massive pine trees. He wore a faded corporate suit, his arms hanging limply at his sides. I skidded to a halt, my boots digging into the wet pine needles. "Hey! Hey, we have to go! The highway is collapsing!"
-
-He didn't move. He didn't turn. I took a cautious step closer, shining the phone light onto his face. My stomach dropped into a bottomless pit of horror. It was the commuter from Rule 1—the man who had handed me the fifty-dollar bill without making eye contact. His eyes were wide open, completely glassy, staring blankly up at the dark canopy. He was breathing, but his mouth was locked in a rigid, silent scream.
-
-I backed away, panicking, and swung the phone light to the left. There were more of them. Dozens of them. Standing in neat, straight rows among the trees like a twisted orchard. I saw a woman in a minivan sweater. I saw a teenager in a college hoodie. I saw truck drivers, commuters, and entire families. Thousands of people who had taken Route 9 over the decades, all standing shoulder-to-shoulder in the dark, frozen in place, staring directly up at the sky.
-
-Then, the catastrophic rumbling from the highway suddenly stopped. In the dead, suffocating silence of the forest, a synchronized, wet *crack* echoed through the trees. All at once, every single one of the thousands of missing drivers snapped their heads down.
-
-They weren't looking at me. They were looking past me, pointing long, pale fingers toward the edge of the woods where I had just run from.
-
-"It's out," the man in the suit whispered. His voice sounded like grinding stones. "It's out," the woman next to him repeated.  
-The chant spread through the dark woods like wildfire, thousands of voices layering into a deafening drone. The dead-eyed, pale drivers began stepping forward in unison, closing the circle around me, their hands reaching out to point back at the highway. A vast, dark silhouette was slowly rising above the tree line, blotting out the stars, dragging a massive shape out from beneath the split asphalt.
-
-I screamed, shoved my phone deep into my pocket, turned around, and sprinted away from the closing circle. I scrambled over the buckled, smoking concrete of the outer road barrier, found my old sedan still parked untouched in the employee gravel lot, and drove like a maniac through the grass until I finally hit a state county road.
-
-I’m safe now. I’m at this diner. But I finally figured out what the toll booths were actually doing. They weren't collecting money. They were collecting *attention*. The entity under the road feeds entirely on human awareness. It needed people to look at its rules. It needed people to wonder what it was. Every time a driver focused on that booth, a piece of their consciousness was trapped there, anchoring the entity beneath the earth. By breaking the rules, I broke the seal.
-
-And now, I realize the most terrifying part of Rule 5. The entity is free, and it is moving. It follows the paths of those who know its patterns.
-
-If you are reading this post, you now know the rules. You are thinking about it. You are feeding its awareness. If you start hearing the sound of heavy rain outside your window tonight—and the sky is completely clear—**do not look up at the glass.**  
-It knows who is looking for it.
+For now. 
