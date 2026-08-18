@@ -1,66 +1,200 @@
-# My wife's family is scary
+# The Old Man in Apartment 3B Told Me Not to Tell Anyone My Name
 &#x200B;
 
-I don't really know how to start this, so I'm just going to write it the way it happened.
+I moved into this building about four years ago. It's an old place, brick and ivy, the kind of building where the hallways smell like someone's cooking and the radiators clank all winter. I don't mind it. It's affordable and the neighbors keep to themselves.
 
-My name is Joseph. My wife is Natalie. We've been married three years, together five. The first year of marriage was good. Really good. The last two haven't been, and that matters for what happened, because you'll see how they knew things they shouldn't have known.
+Well, most of them.
 
-I never wanted to meet her family. Her parents were polite in a way that never once felt warm. Her dad barely spoke to me, even at our own wedding. Something about their house put me on edge the first time I stepped into it, and I could never point to why. Just a feeling that the walls were paying more attention to me than walls should.
+There's an old man who lives in 3B. I started seeing him my first week here. He'd be in the hallway around 7 AM, standing by his door, holding a cup of coffee. He always wore the same thing. A brown cardigan, slightly frayed at the cuffs. Grey slacks. Slippers that looked like they'd seen better days.
 
-So when the phone rang last week and I watched Natalie's hands shake before she even said a word into it, I already knew I was going back there.
+I said good morning to him the first time. He nodded. Didn't smile. Just looked at me with these tired eyes and went back inside.
 
-Her sister Aliya had died in a car accident.
+It became a routine after that. Every morning, 7 AM, I'd see him. Sometimes I'd be heading out for work. Sometimes I'd be coming back from the store. But he was always there. Same spot. Same coffee. Same cardigan. I'd say "Morning, Mr. Weismann." He'd give me that tired nod and go back inside. That was the extent of our relationship.
 
-The drive over was silent except for Natalie crying. I felt that same old dread the closer we got, like my body remembered something my brain didn't want to.
+I never thought much about it. He was just the old man in 3B. Part of the building's background. Like the creaky elevator or the leaky faucet in the basement laundry room.
 
-Her mom opened the door before we knocked, pulled Natalie in, and the two of them cried in the doorway while I stood a step behind, not sure I was allowed to be part of it. That's when I felt it the first time — standing in that entryway, waiting to be let in, like something was watching me from inside the wall itself, somewhere between the old wallpaper and whatever was behind it.
+Last week, I ran into someone new in the hallway. A young guy, early twenties. He was carrying boxes, fumbling with a set of keys. New tenant. I helped him with the door.
 
-Her dad didn't get up when we came in. "Why did you bring him," he said to Natalie, not to me, like I wasn't standing three feet away. He looked right at me — the first time in over a year — then looked away without another word.
+"Thanks," he said. "I'm in 3A."
 
-The funeral was small. Just us four and two church workers. No neighbors, no friends of Aliya's, no extended family. I kept looking at the empty pews instead of listening, wondering where thirty years of somebody's life goes that nobody shows up for. I didn't ask. Something about that church told me not to.
+"Nice," I said. "Your neighbor's pretty quiet. Old guy, keeps to himself."
 
-Dinner that night was back at the house. Four of us at a table too big for so few people. For a while it felt almost normal. Then the cold hit me out of nowhere, and I looked up at the ceiling and swore something was pressed flat against it in the shadowed corner, watching the table. I blinked and it was gone.
+He looked at me funny. "3B?"
 
-That's when Natalie's mom set down her fork and said, gently, "It's alright. We already know about the divorce."
+"Yeah. Been here for years, I think."
 
-The table went dead silent. Natalie stared at her. "Mom — what?"
+He shook his head. "The landlord told me 3B's been empty since before I signed the lease. Like... a decade."
 
-"You don't have to protect him, sweetheart. We've known for a while."
+I laughed. I thought he was joking. But he just stared at me with this confused look on his face.
 
-I looked at Natalie's dad. He wasn't surprised at all. "We know a great deal about what happens in your house, Joseph," he said. "We've known for a long time."
+"I see him every morning," I said. "He's always there, around 7 AM. Standing by his door."
 
-I didn't sleep that night. Around 2 a.m. I heard humming coming from somewhere below the guest room floor. Slow, rocking, and under it, so faint I almost convinced myself I imagined it — Aliya's name, hummed like the first line of a lullaby. In the morning I asked Natalie if the house had a basement.
+The guy shrugged. "Maybe you're thinking of another building."
 
-"We don't have a basement, Joseph. We never have."
+I wasn't.
 
-The next afternoon, while Natalie helped her mom sort through Aliya's things, I wandered the house alone. I found a door at the end of the hallway I didn't remember from the wedding. Locked. A small brass key sat in a dish beside it, like it had been left out on purpose. I should have walked away. I didn't.
+I went back to my apartment that evening and tried to remember when I'd last seen Mr. Weismann. This morning, actually. 7 AM. Same as always. I'd said good morning and he'd nodded and gone back inside.
 
-Behind the door was a narrow staircase going down into a room that didn't feel like it belonged to the same house. The walls were covered edge to edge in photographs, pinned up, overlapping. All of me. Me at work. Me asleep. Me and Natalie arguing in our kitchen, through a window I know for a fact had the blinds shut. Me sitting alone at 2 a.m. — the exact night I told Natalie I wanted a divorce, before either of us had told a single living soul.
+I went to the landlord the next day. Mrs. Chen. She's been managing this building for twenty years. She knows everyone, everything.
 
-In the center of the room, on a small table, was a photo of Aliya, smiling, alive. Underneath it, in handwriting that matched her mother's, one line:
+"3B?" She frowned. "Nobody's lived there since 2009. The tenant passed away. It's been sealed up ever since."
 
-He was never supposed to be the one who left first. She was.
+"There's a man there," I said. "I see him every morning."
 
-I heard footsteps on the stairs and didn't turn fast enough.
+She gave me a long look. "You need to get more sleep."
 
-Natalie's dad stood there, not angry, just tired, the way a man looks when he's finally set down a secret he's carried too long. "You should never have come here," he said. "None of this was supposed to involve you. It was supposed to be her."
+I didn't argue. I just thanked her and walked away.
 
-"What was?" I could barely get the words out.
+That night, I didn't sleep. I sat by my window, watching the hallway. At 6:55 AM, I opened my door and stepped into the hallway. 3B was dark. The door was shut. No coffee cup. No cardigan. No old man.
 
-He looked past me, at Aliya's photo, and for the first time his composure cracked. "The accident wasn't an accident," he said. "It was supposed to take the one who was going to leave us. It was supposed to take Natalie."
+I knocked. No answer.
 
-Then he looked back at me, and something in his face went cold in a way I still can't fully describe. "It seems this family doesn't let go of a debt just because it collected the wrong daughter."
+I checked the peephole. Nothing.
 
-Everything after that gets blurry, even now. The lights went out. The humming came back, closer, from every direction at once, Aliya's name folded into it like a heartbeat. I don't remember leaving the house. I woke up in my car in their driveway at dawn, hands shaking too hard to hold the wheel, Natalie nowhere in the seat beside me.
+I told myself I was imagining things. The stress of work. The lack of sleep. My mind playing tricks on me.
 
-She hasn't answered a single call since. Her parents' phones go straight to voicemail every time.
+The next day I went to work early. I didn't look at 3B.
 
-Three days ago, an envelope showed up at my apartment. No return address. Inside was one photograph.
+The day after that, I came home late. I avoided the hallway.
 
-It was me. In my own kitchen. This week. Taken from an angle that would have needed someone standing inside my apartment to get it.
+But this morning, I heard something. A door opening. Soft footsteps. I got up and looked through my peephole.
 
-I haven't slept there since. I don't know who has Natalie, or if "have" is even the right word, or if she was ever really trying to leave that house at all, or if some part of her had been in on this from the very beginning.
+He was there. Standing by his door. Holding his coffee. Same cardigan. Same tired eyes.
 
-I keep thinking about that line under Aliya's photo. He was never supposed to be the one who left first. She was.
+I opened my door. He turned and looked at me. He nodded.
 
-I don't know which "she" they meant anymore. And I don't think I want to find out which one comes for me next.
+"Morning," he said.
+
+First time ever.
+
+Then:
+
+"You've been asking about me."
+
+He went back inside. The door clicked shut.
+
+I stood in the hallway for a long time. I didn't know what to do. I went downstairs to the lobby. Mrs. Chen was at her desk.
+
+"3B," I said. "I saw him again."
+
+She looked up from her paperwork. Her face went pale.
+
+"Don't talk about 3B," she said quietly. "Just don't."
+
+"Why? Who lives there?"
+
+She didn't answer. She just shook her head.
+
+That's when the woman from 3C came down the stairs. The one with the small dog. She must have heard us. She stopped and looked at me.
+
+"Everyone sees him," she said. "We all do."
+
+"How long has he been there?" I asked.
+
+She shrugged. "Since I moved in. Eight years ago."
+
+I nodded. That made sense. He'd been there before me.
+
+Then she added: "No. Actually, I think it started after you moved in."
+
+I stared at her. "What do you mean?"
+
+She frowned. "I don't know. I just don't remember seeing him before you arrived. And I've been here longer."
+
+"How long?" I asked. "How long has he been there?"
+
+She looked confused. "There?"
+
+"Mr. Weismann. The man in 3B."
+
+She stared at me for several seconds.
+
+"Nobody knows his name."
+
+Then she walked away.
+
+I don't know what that means. I don't know who he is. I don't know why he's there. But I know one thing. I wasn't the only one who saw him. But I was the only one who knew his name.
+
+And I don't know where I got it from.
+
+The next morning, I opened my door at 7 AM.
+
+He wasn't standing outside 3B.
+
+He was standing outside my door.
+
+Same coffee. Same cardigan. Same tired eyes.
+
+He nodded at me.
+
+"Morning," he said.
+
+"Morning," I managed.
+
+He looked tired. More tired than usual.
+
+"Don't tell anyone yours," he said.
+
+Then he went back inside.
+
+I stood there for a long time. I watched him unlock the door. I watched him step into 3B. I watched the door close.
+
+Then I looked down at the key in my hand.
+
+Apartment 3B.
+
+I stared at it. The brass was worn smooth. Old. Much older than the keys I'd gotten from Mrs. Chen four years ago. I reached into my pocket. My apartment key was gone. Only the 3B key remained.
+
+I don't remember dropping mine. I don't remember picking this one up.
+
+But that's not the part that scares me. The part that scares me is that when I looked up at the door to 3B, I knew exactly what was on the other side. Not guessed. Knew. The layout. The furniture. The smell. The old radio beside the window. The half-finished crossword puzzle on the kitchen table. The brown cardigan hanging on the back of the chair.
+
+I've never been inside 3B. At least... I don't think I have.
+
+The next morning I woke up before my alarm. 6:58 AM. I don't usually drink coffee. But I found myself making a cup anyway.
+
+At exactly 7:00, there was a knock at my door.
+
+When I opened it, nobody was there. Just the woman from 3C walking her dog. She stopped. Looked at me. Then looked at the coffee in my hand.
+
+Her face went white.
+
+"Oh," she whispered.
+
+Then she smiled sadly. The same way people smile when they recognize someone they haven't seen in years.
+
+"Good morning, Mr. Weismann."
+
+I started to tell her she was mistaken. Then I noticed the dog. It wasn't growling. It wasn't afraid. It was staring past me. At the hallway behind me. Its tail was wagging. Like it was happy to see someone.
+
+I turned around.
+
+The hallway was empty.
+
+Except for a man standing outside 3B. Holding a cup of coffee. Wearing a brown cardigan. Watching me.
+
+The woman from 3C frowned.
+
+"That's strange."
+
+"What?"
+
+She looked at the man by 3B. Then back at me. Her expression changed.
+
+"No."
+
+She took a step back.
+
+"There were two."
+
+"What do you mean?"
+
+She didn't answer. She just looked past me. At my apartment door. Slowly, she raised a shaking finger.
+
+"The other one is still inside."
+
+Behind me, a coffee cup clinked against the kitchen counter.
+
+I don't drink coffee.
+
+Not yet.
