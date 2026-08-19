@@ -1,200 +1,71 @@
-# The Old Man in Apartment 3B Told Me Not to Tell Anyone My Name
-&#x200B;
+# Something followed me in the dark but it's not what the story is about. Part 1
+Something crept out of the dark. It was a dark shadow. I couldn't see its shape in the gloom, but I could clearly see its eyes. They weren't glowing, nor were they completely dark; they were just staring out from a shapeless silhouette. As it moved, it made a sound like a deer walking through the brush, but the steps didn’t match its actual tempo. It sounded like a frantic run, yet the shadow itself was moving steadily and slowly.
 
-I moved into this building about four years ago. It's an old place, brick and ivy, the kind of building where the hallways smell like someone's cooking and the radiators clank all winter. I don't mind it. It's affordable and the neighbors keep to themselves.
+I stood paralyzed by the sight of what I could not describe. A little voice inside my head, a tiny whisper repeating: *"Run. It can’t end like this. Your life can’t end like this."*
 
-Well, most of them.
+Then, screaming: *"RUN!"*
 
-There's an old man who lives in 3B. I started seeing him my first week here. He'd be in the hallway around 7 AM, standing by his door, holding a cup of coffee. He always wore the same thing. A brown cardigan, slightly frayed at the cuffs. Grey slacks. Slippers that looked like they'd seen better days.
+In a fraction of a second, I bolted, running as fast as I possibly could. I didn't even know I was capable of running that fast until I was put in that exact situation. I tore through the woods, seeing nothing ahead of me but a desperate, phantom mirage of my own house's patio, until a small flash of light suddenly shone from the road.
 
-I said good morning to him the first time. He nodded. Didn't smile. Just looked at me with these tired eyes and went back inside.
+A car? Is this hope? Help?
 
-It became a routine after that. Every morning, 7 AM, I'd see him. Sometimes I'd be heading out for work. Sometimes I'd be coming back from the store. But he was always there. Same spot. Same coffee. Same cardigan. I'd say "Morning, Mr. Weismann." He'd give me that tired nod and go back inside. That was the extent of our relationship.
+"HELP!" I screamed repeatedly until the driver finally spotted me through the windshield.
 
-I never thought much about it. He was just the old man in 3B. Part of the building's background. Like the creaky elevator or the leaky faucet in the basement laundry room.
+The car screeched to a halt. Without looking behind me, I ran straight to the passenger door. "Help, please! Something is out there!"
 
-Last week, I ran into someone new in the hallway. A young guy, early twenties. He was carrying boxes, fumbling with a set of keys. New tenant. I helped him with the door.
+The brave man unlocked and opened the door. I threw myself onto the seat and rushed him to go with the little bit of breath I had left in my lungs.
 
-"Thanks," he said. "I'm in 3A."
+"I’m so sorry," I panted, trying to calm my racing heart. "There was something in the woods, I can’t even describe it... It wasn’t a human, it sounded like a deer but it wasn’t an animal. I’m sure that it was out there in the dark, watching and following me, but I couldn’t identify it. Thank you so much for letting me in, sir."
 
-"Nice," I said. "Your neighbor's pretty quiet. Old guy, keeps to himself."
+The man just nodded. He looked to be in his mid-forties, with a brown beard and a pretty athletic build, wearing a black shirt underneath a red-striped shirt. But he was entirely too calm. He didn’t utter a single word and wasn’t even surprised by my frantic behavior, which instantly gave me the chills. The car was clean, but it was too dark to see the license plate.
 
-He looked at me funny. "3B?"
+*What did I just step into this time?*
 
-"Yeah. Been here for years, I think."
+A heavy silence settled over us as we moved forward down the isolated forest road.
 
-He shook his head. "The landlord told me 3B's been empty since before I signed the lease. Like... a decade."
+"How big was it?" he finally asked.
 
-I laughed. I thought he was joking. But he just stared at me with this confused look on his face.
+"Sorry ?"
 
-"I see him every morning," I said. "He's always there, around 7 AM. Standing by his door."
+"The entity you saw," he repeated, his eyes fixed on the road ahead. "How big was it?"
 
-The guy shrugged. "Maybe you're thinking of another building."
+"Eeeh," I stammered, caught off guard. "It was around six feet. Why? Do you know anything about that, sir?"
 
-I wasn't.
+"No worries," he replied smoothly. "We are heading to the first ranger office. We will discuss everything there."
 
-I went back to my apartment that evening and tried to remember when I'd last seen Mr. Weismann. This morning, actually. 7 AM. Same as always. I'd said good morning and he'd nodded and gone back inside.
+I felt momentarily reassured, but I remained on my guard. He knew something. They knew something. *What if we are not heading to the forest ranger office at all?*
 
-I went to the landlord the next day. Mrs. Chen. She's been managing this building for twenty years. She knows everyone, everything.
+A few minutes later, we arrived at a cabin in the woods, just as he had promised. But the place was pitch black and smelled funny, like roasted meat. Suddenly, a second man stepped out from the shadows. He was dressed almost identically to the driver, but he looked noticeably younger.
 
-"3B?" She frowned. "Nobody's lived there since 2009. The tenant passed away. It's been sealed up ever since."
+"Hello gentlemen, can I help you?" the young man asked in a harsh, raspy voice.
 
-"There's a man there," I said. "I see him every morning."
+"Hello, I’m John," the driver announced. "I was driving and crossed paths with this young man. He was frightened, standing on the road between Rawlins Peak and Cherokee Peak. He says something dark, around six feet tall, followed him through the forest tonight."
 
-She gave me a long look. "You need to get more sleep."
+The two men looked at each other. There was a look of recognition in their eyes, like they knew exactly what it was—and worse, they looked happy about it.
 
-I didn't argue. I just thanked her and walked away.
+The younger man turned his gaze to me. "Did it say anything to you, young man?"
 
-That night, I didn't sleep. I sat by my window, watching the hallway. At 6:55 AM, I opened my door and stepped into the hallway. 3B was dark. The door was shut. No coffee cup. No cardigan. No old man.
+Something deep inside me warned me not to answer. Every instinct told me to just head for the door and get out.
 
-I knocked. No answer.
+"No, sir," I lied, my voice trembling. "I’m just really tired. Is there a place I can sleep tonight? I promise I will leave first thing in the morning."
 
-I checked the peephole. Nothing.
+The shaking in my voice was obvious now. Looking around, I realized with a jolt of horror that this was not a forest ranger station at all. It was just a house. And these two men... they looked exactly like the same person, just from different timelines. It was too much to handle. Panicking, I lunged backward and tried to force the front door open, but it was firmly locked. How? I hadn't seen anyone go near the door since we walked in.
 
-I told myself I was imagining things. The stress of work. The lack of sleep. My mind playing tricks on me.
+Where am I? Who are these people? My heart raced so violently it felt like it was about to stop entirely. The room began to spin, and I fainted.
 
-The next day I went to work early. I didn't look at 3B.
+A light breeze and the distant sound of birds woke me up.
 
-The day after that, I came home late. I avoided the hallway.
+It was early morning. I was still inside a cabin… but it was completely abandoned. The furniture was gone, and no one was there. I staggered outside, but there was no sign of the car. My clothes were completely drenched in sweat, even though the morning air felt to be around a mild 70°F.
 
-But this morning, I heard something. A door opening. Soft footsteps. I got up and looked through my peephole.
+Then reality hit me. I left my phone in my tent last night before I ever heard the footsteps of tha;; thing. What on earth was it?
 
-He was there. Standing by his door. Holding his coffee. Same cardigan. Same tired eyes.
+Where am I? How do I leave this place? How did I even get here, and what actually happened last night? Who were those men? I am entirely alone, completely lost in the woods, and I have no idea where to go. I have to keep walking, even though I'm starving and exhausted, until I can find some hikers or anyone who can help me… 
 
-I opened my door. He turned and looked at me. He nodded.
+I ran through the mountain with no direction, only the memories of my cosy home and my desk job that I hated. I wish that I didn’t come here, was any of it even real? I followed the trail until I found the road. I wasn't motivated by any help at this point, so I kept walking and walking until a sign pointing to a nearby town appeared. 
 
-"Morning," he said.
+I was hungry, dirty, lost and tired. How can this get even worse ?
 
-First time ever.
+I finally saw a teenage boy staring at me. With barely steady steps I reached him with a crooked smile: “Hello, I’m Ben. I was a bit lost last night and I don't have my phone. Where can I get help here ?”  
+He smiled back : “Howdie sir, let me show you the way to our local diner. We don't really have a police station here but they will help you”  
+I didn’t want to sound desperate again, so I just hummed a "thank you." 
 
-Then:
-
-"You've been asking about me."
-
-He went back inside. The door clicked shut.
-
-I stood in the hallway for a long time. I didn't know what to do. I went downstairs to the lobby. Mrs. Chen was at her desk.
-
-"3B," I said. "I saw him again."
-
-She looked up from her paperwork. Her face went pale.
-
-"Don't talk about 3B," she said quietly. "Just don't."
-
-"Why? Who lives there?"
-
-She didn't answer. She just shook her head.
-
-That's when the woman from 3C came down the stairs. The one with the small dog. She must have heard us. She stopped and looked at me.
-
-"Everyone sees him," she said. "We all do."
-
-"How long has he been there?" I asked.
-
-She shrugged. "Since I moved in. Eight years ago."
-
-I nodded. That made sense. He'd been there before me.
-
-Then she added: "No. Actually, I think it started after you moved in."
-
-I stared at her. "What do you mean?"
-
-She frowned. "I don't know. I just don't remember seeing him before you arrived. And I've been here longer."
-
-"How long?" I asked. "How long has he been there?"
-
-She looked confused. "There?"
-
-"Mr. Weismann. The man in 3B."
-
-She stared at me for several seconds.
-
-"Nobody knows his name."
-
-Then she walked away.
-
-I don't know what that means. I don't know who he is. I don't know why he's there. But I know one thing. I wasn't the only one who saw him. But I was the only one who knew his name.
-
-And I don't know where I got it from.
-
-The next morning, I opened my door at 7 AM.
-
-He wasn't standing outside 3B.
-
-He was standing outside my door.
-
-Same coffee. Same cardigan. Same tired eyes.
-
-He nodded at me.
-
-"Morning," he said.
-
-"Morning," I managed.
-
-He looked tired. More tired than usual.
-
-"Don't tell anyone yours," he said.
-
-Then he went back inside.
-
-I stood there for a long time. I watched him unlock the door. I watched him step into 3B. I watched the door close.
-
-Then I looked down at the key in my hand.
-
-Apartment 3B.
-
-I stared at it. The brass was worn smooth. Old. Much older than the keys I'd gotten from Mrs. Chen four years ago. I reached into my pocket. My apartment key was gone. Only the 3B key remained.
-
-I don't remember dropping mine. I don't remember picking this one up.
-
-But that's not the part that scares me. The part that scares me is that when I looked up at the door to 3B, I knew exactly what was on the other side. Not guessed. Knew. The layout. The furniture. The smell. The old radio beside the window. The half-finished crossword puzzle on the kitchen table. The brown cardigan hanging on the back of the chair.
-
-I've never been inside 3B. At least... I don't think I have.
-
-The next morning I woke up before my alarm. 6:58 AM. I don't usually drink coffee. But I found myself making a cup anyway.
-
-At exactly 7:00, there was a knock at my door.
-
-When I opened it, nobody was there. Just the woman from 3C walking her dog. She stopped. Looked at me. Then looked at the coffee in my hand.
-
-Her face went white.
-
-"Oh," she whispered.
-
-Then she smiled sadly. The same way people smile when they recognize someone they haven't seen in years.
-
-"Good morning, Mr. Weismann."
-
-I started to tell her she was mistaken. Then I noticed the dog. It wasn't growling. It wasn't afraid. It was staring past me. At the hallway behind me. Its tail was wagging. Like it was happy to see someone.
-
-I turned around.
-
-The hallway was empty.
-
-Except for a man standing outside 3B. Holding a cup of coffee. Wearing a brown cardigan. Watching me.
-
-The woman from 3C frowned.
-
-"That's strange."
-
-"What?"
-
-She looked at the man by 3B. Then back at me. Her expression changed.
-
-"No."
-
-She took a step back.
-
-"There were two."
-
-"What do you mean?"
-
-She didn't answer. She just looked past me. At my apartment door. Slowly, she raised a shaking finger.
-
-"The other one is still inside."
-
-Behind me, a coffee cup clinked against the kitchen counter.
-
-I don't drink coffee.
-
-Not yet.
