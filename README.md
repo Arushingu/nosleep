@@ -1,302 +1,264 @@
-# It Moves The Statue On My Porch. I Wish It Was Just A Ghost (Part 1)
-&#x200B;
+# My experience with "The Enemy Game" (Part 1)
+When I had to call someone to pick me up from the hospital, my first thought wasn’t my ex-wife, not my brother, not even my mother–well, she did live two states away–but good old Billy. And not just because of optics, either, even though getting hospitalized for an insomnia-induced accident definitely didn’t sound flattering; it was the kind of information I’d rather not tell the people closest to me.
 
-I’d like to say that I'm never one to make impulsive decisions. That any direction I took had a reason behind it, and I'd be able to articulate it. And it would almost be the truth. Indecision wasn't a quirk that my parents really cultivated in me growing up. My mom would say something along the lines of “idle hands are the devil's workshop”. And my dad would spout these fatherly proverbs that would almost always, in some way shape or form, translate to “just stop catastrophizing and make a decision”.
+Instead, it was because, even though it was three o’clock in the morning, Billy picked up the phone immediately and said he’d be here in thirty. 
 
-It was that mindset that caused me to go with my gut on various occasions, from taking a soul sucking job at a corner store because it paid well to moving into a dirt cheap apartment in a dangerous part of town.
+For all his faults, he was solid as a rock. And, like clockwork, he was standing by my bed twenty-eight minutes later. Worry pressed his eyebrows like they were under exceptional gravity, but the first words he said to me were jovial in tone “Jesus, what the shit did’ya get yourself into now, Tommy?”
 
-I probably would've been able to land something better if given time, but the positions I qualified for rejected my resume because they were looking for someone who “aligned more with company values”. And the ones I actually wanted required at least five years experience for an “entry level apprenticeship”.
+Shit, was it that obvious? I hadn’t been in front of a mirror since the accident, but Billy’s reaction made me scared to see what I looked like.
 
-A fat lot of good my degree did me.
+“Is it really that bad?” I asked. 
 
-Honestly though, my luck held for a while in that part of town. I wasn't going broke, and I hadn't gotten mugged yet. But the powers that be have a way of pulling the rug out from under you at times, replacing it with newer and more bizarre circumstances.
+“Half your face is black! Fuck, they even put a bandage around your head! That’s the corniest kind of bandage you could get,” he said with a stifled chortle.
 
-I want to make it clear that I didn't get fired. I quit. The clientele and the management at my old job made that place a living hell, and I needed to get away.
+“Fuck off,” I said, laughing then immediately suppressing it because it hurt my head. 
 
-But unfortunately the trade off was that I no longer had an income, and rent was right around the corner. So I started looking for jobs, sitting at my desk under the dim glow of a yellow lamp that should've gone out years ago.
+Billy was insistent in his humor, which made it both a blessing and a curse. There was no off-switch, so you just had to be in the mood. I wasn’t at all sure if I was.
 
-After staying up til 3am, and two energy drinks later, I finally found a job posting as a delivery driver in a remote town called Turnpike, a hundred miles or so east of Portland. I took a look at the benefits. For a small town position, the perks were pretty good. Medical, dental, the whole caboodle. And it seemed easy enough. Driving a delivery truck, how hard could it be?
+He sat down on the bench by the bed. “Alright, now tell me what really happened.”
 
-I called the company the next morning and they were more than happy to accept the extra set of hands. As they laid out what would be expected of me, they assured me the pay would be comparable to what I had at my old job. 
+I shrugged. “Fell down trying to catch a cat.”
 
-Turnpike was the size of a postage stamp; no more than five hundred people. It was the type of place where the one hotel was also a bar and that bar was also an antique store. It was two hours away, so the only real options were to either move there, or pass on one of the only opportunities that have cropped up since I got fired… I mean quit.
+“A cat?” he said, and leaned back. It reminded me of the way my therapist leaned back to write on her notepad whenever I said something of note; usually something fucked up, something we’d circle back to in a session or two.
 
-I searched their properties, looking for something affordable like a small mobile home or an apartment. But no such luck. I was about to give up hope when I remembered a house listing I'd seen three weeks before. It was on some rural property website that my college friend Darrin had sent me as a joke. 
+“Well, sort of. I was at work and went outside for a smoke break. Then, well, I think I heard something, and so I look up and there’s a black cat on the edge of the roof, its back legs tight like springs. Then the fella jumped, so I lunged forward, trying to predict where it would land, and it ended up with me faceplanting on the curb instead.”
 
-“Simon, you have to check this out,” he’d texted me with a teary eyed laughing emoji.
+“Shit. Was the cat okay?”
 
-It was a house in that same area at the base of a large mountain called Mount Iston. According to the listing, the place had been vacant for eleven months. Darrin's text message attached to the link described it as "the kind of place serial killers would retire to.”
+“Well, that’s the thing. There was no cat.”
 
-We had a good laugh at that. At the time, I agreed with him. I figured that house would’ve been a good set up for some kind of subpar thriller. 
+Billy leaned forward. “Huh?”
 
-But as I dug deeper, the pricing looked really good. Almost a steal. It was so low, that I could get a down on it and the mortgage would be less than my electric bill. And the view of the craggy slopes of Iston was absolutely stunning.
+“It’s embarrassing. I insisted they even check the CCTV footage. God. There was no fucking cat. I’d hallucinated the whole thing.”
 
-I went with my gut, and I bought it two weeks later.
+Billy’s face flushed. “You using something?” he asked, the usual jovial nature of his voice completely gone. 
 
-…
+“Shit, no! Fuck no! Nothing like that. You know I would never.”
 
-As I drove to Turnpike, the Portland skyline slowly melted away into suburbs, and the houses in turn faded into farmland. For a two hour drive in a u-haul, it wasn't all that bad. I had my favorite music and podcasts to listen to, and I packed some of my favorite snacks for the road.
+He leaned back again, crossing his arms. “Enlighten me, then.”
 
-As I pulled into town, I did a double take. I knew that Turnpike was going to be small. But I was still surprised by how much. It was barely the size of a college campus. The main street had a gas station, a diner, a post office where the delivery company operated from, and what I could only describe as the most multipurpose building I had ever seen in my life. A hand painted sign above the door read: GRAYSON'S HOTEL AND PROVISIONS; EST. 1947. Below it, two smaller signs hung on either side of the door. One read BAR. The other read ANTIQUES. Darrin was going to lose his mind when I sent him a picture.
+The fact was that we didn’t really talk about personal stuff when we hung out. That’s just how typical male relationships tend to be: he might be like a brother, but you don’t even know the name of the girl he last dated. Me and Billy’s relationship was no different, and so through gritted teeth and a pumping heart, I had to explain to him that for the last couple of weeks, I’d barely slept.
 
-I double checked my GPS. The house itself was on the other side of town, on the outskirts. A single road peeled away from the main street and stretched north, with Mount Iston growing larger and more imposing through the windshield with every passing second. It was a different thing entirely when you were looking at it for real rather than through a listing photo. In the photos it looked dramatic and picturesque, like something off a calendar. Up close, it looked heavy. That was the only word that came to mind. It sat low in the sky like its density was pressing down on something underneath it.
+Like, clinically not slept. Full-on insomnia. Probably due to burnout at work; it was taking me three energy drinks alongside a pack of cigarettes just to get myself through a shift. I know it sounds ironic, that I’d need stimulants throughout the day, but it wasn’t that they kept me unnecessarily awake. Just… aware. Hands on the wheel. Otherwise, it was like my brain didn’t even really work. I’d lose track of time, constantly forget what I was doing, and my eyes just wandered aimlessly. Caffeine and nicotine forced my body to at least go forward, even if it was running on fumes.
 
-I pulled up the gravel driveway to my new house. And I was greeted by a middle aged man with a grey jacket and well polished shoes who was waiting for me on the front porch.
+I’d had to stop wearing my smart watch because my resting heart rate had become scarily high.
 
-He smiled as I got out of the U-Haul and held out his hand. "Hello. I'm Keegan Ross. You're Mr. Belmont, I assume?"
+And I did try to get help, but the doctors gave me shit advice, and the pills didn’t work for more than an hour’s worth of sleep. 
 
-I nodded and took his hand in a firm shake. "Yes, that's me. Pleased to meet you."
+“Jesus,” Billy said. “That’s fucked up, man. I’m sorry… I didn’t know.”
 
-"The pleasure's mine." His smile stayed fixed, but there was a nervousness behind his eyes that caught my attention almost immediately. It wasn't the ordinary kind of nervousness you'd expect from a real estate agent hoping to close a deal. It was the kind that lived just beneath the surface, restrained by professionalism but not entirely hidden. 
+“Well, I didn’t tell you, did I?”
 
-"Allow me to show you around the place," he said, "then we can work on getting you all settled.”
+He laughed. “Guess not. Anyway, why am I here?”
 
-It was, objectively, a beautiful house.
+“Well, the doctors are quite aware of my situation, and would like to keep me overnight, at least. But I don’t wanna stay. I fucking hate hospitals. But they won’t let me go alone. Said that I need an escort.”
 
-Mr. Ross showed me through the interior. Three bedrooms, one and a half baths, a kitchen that had been updated sometime in the last decade, a living room with a stone fireplace, and a basement that smelled faintly of cedar and old mineral water. He explained the heating system, the well, the septic. He talked a lot. Faster than a realtor needed to, I thought. His hands moved when he spoke like his words needed to be scaffolded by his gestures.
+“Right, right. But–” Billy said, then hesitated for a moment before continuing, the words coming out slower now. “I get that you don’t like hospitals, I do. They suck every which way. But maybe there’s a point in keeping you overnight, no? I mean, they could probably give you something to knock you out, get some sleep.”  
 
-When we were back on the front porch, he turned and faced me with his clipboard and presented me with the keys.
+Then he smiled and looked in my eyes. “Just my two cents here, amigo, which I feel I’m entitled to, seeing as I gave up my beauty sleep for this. Pun not intended.”
 
-"I think you'll be very comfortable here," he said, and for the first time his smile had some genuine warmth in it. "It's a good property. Solid bones."
+He was right, in a sense. But mentally, I just couldn’t deal with it. There wasn’t a pill that would knock me out–they’d pretty much told me as much–but what they could do is just inject me with something though the IV. 
 
-"Why was it vacant so long?" I asked.
+I hated that idea more than I hated not sleeping. 
 
-He paused. Just a fraction of a second too long.
+And if I stayed there without drugs, I’d just wallow in pain and anxiety until they’d find another thing to charge me for. Another thing that wouldn’t help.
 
-"The previous owner relocated," he said. "Family situation. Nothing wrong with the house itself, it just sat on the market a while. Remote properties take time.”
+Really, I just wanted to get home. 
 
-I nodded and accepted the keys. We shook hands again, and he walked back to his car with slightly more purpose than was necessary. I watched him pull out and drive back toward town, and I stood there on the porch looking out at the field and the dirt road. The late afternoon light was turning amber across the grass.
+“You’re right,” I said. “Mostly, at least. Thing is… I’ve already tried everything. Pills, yoga, exercise, mindfulness, everything. I don’t think they can do much more, and–well, I just wanna get home.”
 
-As I turned back to the house, there was something on the door that I could've sworn wasn't there before.
+Billy looked around the room and sighed. “Yup, I get it.”
 
-To be fair, there was nothing that was really distinguishable about the mail clip on the door, except that it looked like a hand. I've never found that unnerving, except now it held a piece of yellowing paper against the door. 
+“So you’ll drive me?”
 
-That paper wasn't there before. At least… I didn't think it was there before. Mr. Ross and I kind of rushed into the house for the tour so maybe I just missed it.
+“Sure. But listen, there’s something that might help. I mean, if it’s really that bad, and you’ve tried everything else.”
 
-I unfolded the paper. It was almost soft in my hand, like it had been crumpled and straightened a thousand times. My frown deepened the more I read:
+What I thought he’d suggest is mushrooms. Reiki. Chamomile tea. Some bullshit thing that helped someone he knew somewhen. I didn’t want to be so stubborn in my belief, but I truly did not think there was any quick fix for my insomnia. Or a long fix. Thinking back on it, I mostly relied on the idea that, since the insomnia had come out of nowhere, that it would then go away by itself, too. Like a weird bump you get on your skin, and then two months later it would be gone. 
 
-*1. You will find it on your porch facing away from your front door towards the mountain. It's important that you don't move or damage it. Never interact with it unless otherwise stated.*
+The difference, of course, was that any prolonged duration of semi-hardcore insomnia would have “permanent negative effects, both mental and physical,” as the doctor had put it. 
 
-*2. Regardless of your activities during the day, the effigy must be on the porch facing away from the front door before the sun goes down.*
+“Yeah?” I said, knowing that I did, in fact, owe him enough to at least listen to what he had to say.
 
-*3. Before you go to bed, check outside to make sure the effigy is still facing away from your door. If you find it facing the door, lock all your windows and turn a lamp on until the morning.*
+Billy stood up and walked to the window, peeking through the half-open blinds. The city was almost completely dark outside, except for the odd constellations of streetlights that were stuck to the ink-black vista like fireflies in a glue trap.
 
-*4. If you notice a smell from the effigy like it's burning, this is normal. Don't touch it or try to cool it down no matter what happens.*
+“This might sound cuckoo, but hear me out,” Billy said, turning to look at me. “My grandma was a stubborn woman. Never did like doctors or any other man telling her what to do. But of course, she got sick just like the rest of us. But somehow she’d always find a way to kind of, I don’t know, get around it? It’s like, one day she’s coughing up blood, and the next she’s healthy as a horse.”
 
-*5. If you wake up to find the effigy's base empty, grab a lit candle and place it in front of the base. Go about your day as normal. It’ll be back by sunset.*
+“Okay.”
 
-*6. If you see the effigy in your house at any point, find the nearest window and place it facing out towards the mountain.*
+“Yeah, well.” Billy coughed and scratched the back of his head, like he was gathering his thoughts, or delaying what he wanted to say. “Years later I asked her how she did it, and she told me about this technique she had.”
 
-*7. Only you are allowed to start fires as long as the effigy inhabits your home.*
+“Uh-huh…”
 
-*8. If you hear someone trying to start a fire, whether they're a guest, a friend, or a family member, douse the wood with a large glass of water. If they light a fire before you’re able to, it's too late.*
+Billy threw his hands up and said “Aw fuck, I knew you’d look at me like that.”
 
-*9. Always keep a glass of water next to your bed. If you wake up in the night and the temperature is much hotter than you remember, and you can hear what sounds like hissing near the foot of your bed, do not react. Drink the water slowly and lie still until the morning.*
+“Like what?”
 
-I turned the paper over, hoping to find a signature or something. Any indication of who wrote it. But there was absolutely nothing.
+“Like I’m telling you some bullshit. Your eye might be black but it’s still rolling, man. Just… let me explain. Withhold judgement for like two minutes.”
 
-I wish I could say that I sat down with the paper and mulled it over, maybe reached out to Mr. Ross to figure out if the previous occupant left it for me.
+“Alright,” I said. “You have my word.”
 
-But I didn't. I didn't laugh, but I also didn't get angry or frustrated that this might be some kind of joke.
+“Alright, so. She got sick, and then it’d go away. Poof. Never saw a doctor in her life. And this wasn’t just some misremembered childhood memory; it happened even as I got older. I got curious, and at some point I was convinced she’d made a deal with the devil. It was that fucking weird. But I didn’t wanna bother her about it. That’s until she got sick and wasn’t getting any better.”
 
- 
+The last words had the timbre of tears. Billy took a second to breathe.
 
-For the first time since childhood, I wasn't sure what to do. And I wasn't sure which explanation was more likely.
+“What happened?” I asked him.
 
-When I was a kid, I always used to make up stories and worlds when I played by myself. There were monsters and dragons. And there were rules for all the games I played.
+“Cancer.”
 
- 
+“I’m sorry.”
 
-This was probably just a child's note for whatever game they enjoyed when they lived here. But what kind of kid was able to write rules like these? And with such good handwriting?
+“Thanks,” he said, cracking his knuckles and rolling his shoulders, like he was getting ready to lift something heavy. “Anyway, she got to be in such a bad spot that my mum forced her into the hospital. It was the first time she’d been in one since birth, or at least she said as much. And I could tell she was dying, that she couldn’t fix this. On what would become our last visit, I got to have a few minutes alone with her as mum went out to get us coffee. I couldn’t not ask her, and so I did, and she told me about the enemy game.”
 
-On the other side of the coin, maybe the previous tenant was just old or not all right in the head. Isolation can do that to people sometimes. And when they feel like life's falling apart, they try to reassert some sort of control. Whether it was a routine or a list of rules like this one. No matter how bizarre.
+“It’s a game?” I asked.
 
-Regardless of what the real reason was, I treated the note with the same effort and care I felt it deserved at the time. I crumpled it up, and threw it in the trash.
+“Game, technique, exercise. Whatever. The way it works is that you make whatever sickness or ailment you’ve got into an enemy: you make it into something that’s strictly not part of you. And once you do that, you can fight it, and hopefully defeat it. And if you do, it’s simply gone.”
 
-I didn't have time to think about junk mail. I needed to unload the U-haul and make the house into a home.
+“Well, shit,” I laughed. “That sounds easy!”
 
-…
+“I guess it does, doesn’t it? Anyway, first off, you need to give it a name. Any name, just something you can remember.”
 
-My first few days on the delivery job kept me busy. It was a great way to get to know some of the people in town, and the larger boxes I had to carry helped me gain the beginnings of healthy muscle. But in the back of my mind, that list of rules kept popping up again and again.
+“Like, what? Martha?”
 
-I'd thrown it away, and it along with whatever else was in the bin was taken to the landfill by the garbage truck the day before. And I still wasn't sure if I regretted that decision or not. But somewhere between loading packages and navigating the winding back roads outside Turnpike, my brain kept turning the words over like a stone it couldn't put down.
+“As in Stewart?” Billy said with a snort. “Well, you can call it whatever, so why not Martha. And then it becomes Martha of Insomnia.”
 
-*You will find it on your porch.*
+“Oh, so it gets a last name?” I joked.
 
-Find what? Well, an effigy obviously. No duh. But there hadn't been anything there. I'd looked after I read the note, more out of curiosity than anything else, and there was nothing. So whatever this supposed effigy was, it either hadn't arrived yet, or the whole thing was exactly what I'd decided it was. Just a crazy note from someone living alone at the base of a mountain for too long.
+“Yup,” he answered, not taking the bait. “Then you go somewhere where you can be alone. An empty room, a field somewhere, a parking lot if you’d like. Just as long as nobody else can hear or see you. Then you just say the magic words, and if it goes right, you’ll fight it, and if you win, you’ll never see it again.”
 
-On my way home from my shift, I decided to give Mr. Ross a call. I turned over the card he gave me in my fingers while I waited at the stoplight. 
+“This is the kookiest shit you’ve ever told me,” I said. Then I thought that he *must* be joking. “Actually, I think you’re pulling my leg.”
 
-The phone rang and rang. 
+“Shit, man,” Billy puffed out, the words like cracked shields. “All I know is that my grandma never fucked around, and she really was healthy. Never saw her sick for more than a day, not even once.”
 
-*This is stupid,* I told myself. *Why am I getting so bothered by a single note?*
+“Alright, say that what you’re saying is all true, and that she didn’t just have a good immune system and a lifestyle where she avoided people–” 
 
-I was just about to hang up when Mr. Ross answered the phone. “Hello?”
+Billy jumped in, “Hey, come on!”
 
-I slipped the card back in my pocket and gripped the steering wheel as the light turned green. “Hi, it's me. Simon Belmont. I had a couple questions about something I found at the house a few days ago.”
+“Let me finish! *If* what she did worked, then a) what the hell does it mean to ‘fight’, and b) what happens if you lose?”
 
-“Sure, go ahead. How can I help you?” I heard some rustling in the background, like he was getting some paperwork done. He probably had me on speakerphone.
+Billy shrugged. He was out of stamina, and I could finally see the tiredness in his eyes, but also the fact that he genuinely believed what he was saying. It was rude of me to bother him like this, especially considering he’d come to help me out. 
 
-I wasn't sure how to start, so I just went with my gut. “There was this strange note with a list of rules on it. Something about a statue, fires, keeping it outside. Or something like that. I threw it away, they didn't really seem like regular house rules. But I'm curious, did the previous tenant leave that for me to find?"
+“I don’t know what fighting means exactly. I’ve never done it. And if you lose, well, then whatever you were fighting wins.”
 
-There was a short *hmmm* of thought from the other end of the line. “I’ve seen notes like that crop up from time to time on some houses I've sold around here. From what I understand, it's kind of an inside joke among the locals, I wouldn't be too worried about it.”
+“You know how this sounds, right?” I asked him.
 
-“An inside joke.” I repeated.
+“Like a bunch of gobbledygook. Yeah, I know. I shouldn’t have even–”
 
-“Yeah,” he replied. “They usually do it for newcomers to town. But it's just local superstitions, I assure you.”
+“Fuck it. I’ll do it,” I said, forcing myself to sit upright on the bed. What’s them magic words I need to say, then?”
 
-“And if it's not a superstition?” I don't know why that question slipped out.
+Billy then told me what to say, and then suddenly grew more concerned. His tone was darker, almost like he was reprimanding me. 
 
-“Look,” Mr. Ross’s tone took a warmer turn. “I've been a realtor for twenty years. I know how anxious people get in a new place, especially one as remote as yours. I’ve been in the same boat. I wouldn't sell you a house that I knew had some kind of ghost in it. It's bad for business.”
+“You sure you want to do this? I mean, maybe it really is bullshit, but still, some part of me thinks that it isn’t. Just, y’know. Just wanna make sure you know what you’re getting into.”
 
-That relieved my worries but only a little. “Alright then, I appreciate your time. Thank you.”
+“Even you don’t know what I’m getting into, exactly,” I replied with a smile.
 
-“Absolutely. If you need anything else, don't hesitate to call.” He hung up, and I slid the phone back into my pocket.
+“Yeah. Right.”
 
- 
+“Relax. At this point if they offered me some mystery pill straight out of Pfizer’s experimental labs, I’d take it just to see if it helped. This isn’t any different.”
 
-Later, I pulled into my gravel driveway, and my stomach growled. I was starving. But I also really didn't want to cook tonight.
+“Anything except the IV, huh?” he asked. Not because he didn’t know, but because he did. 
 
-So, I ordered a classic burger and fries from the hotel… bar… whatever. From Grayson's. 
+“As long as I’m still around to say no.”
 
-Once the food arrived, the knot of anxiety that was coalescing in my stomach started to ease at the sight of the sesame seed bun and steak fries in the styrofoam container. Maybe I was just hungry. Maybe Mr. Ross was right. I was reading into this whole note thing way too much. 
+To that, he simply nodded in understanding. 
 
-I settled into my armchair for some dinner and a show on my laptop. It was a detective show that I had already half-forgotten the name of, Darrin recommended it to me. And it wasn't bad.
+“Well,” I said, “might as well get cracking.”
 
-I glanced out the window as the title sequence played and the snow on Mount Iston’s peak was turning a kind of orange-ish white from the sun's rays.
+Billy laughed. “Shit, this has been one weird fucking night, hasn’t it? Hope this helps you out, though.”
 
-My eyes trailed down the slopes. Just taking it all in. While the show began to play in earnest, my eyes skipped from tree to tree along the clearing. I found rocks and bushes, and I strained my eyes to see if I could catch a glimpse of any hikers out. The house was close to a hike and bike trail after all.
+“Hope so too.”
 
-There was no one.
+He lifted his hand up, right thumb pointed toward the door. “I’ll just be out in the hallway, alright? I’ll come back in like, I dunno, ten minutes if I don’t hear from ya? Otherwise just come get me when you’re ready and we’ll get the fuck out of dodge. You don’t need to stay here if you don’t want to.”
 
-But what I did see, I had to look again to register. There was someone there just beyond the tree line, slowly making their way between the trunks. I couldn't discern any features or details. I also couldn't find the glow of a headlamp or flashlight on them, and I was wondering who would want to go hiking without one this late.
+I stood up from the bed and took out the needle from the tip of my finger. My muscles felt a bit weird, but then again things feeling weird had been my primary state for weeks now. My eye ached, and I wanted to touch it because I could tell it was swollen, but I didn’t.
 
-That's when I realized I was looking too low. I lifted my eyes up the silhouette. 
+Billy watched me long enough to see that I could get up on my feet, and then walked to the door. Once outside, the door halfway closed already, he peered in from the crack and said “Good luck, buddy.”
 
-Its strides were too slow.
+“Thanks for everything. Even this weird grandma-juju.”
 
-It was tall.
+He laughed. “No problem, man. Be back in a bit.”
 
-Freakishly tall.
+Once the door was closed, I situated myself in the middle of the room. I breathed in, and breathed out. Then again. Then like seven more times, just to try and center myself. The night outside played with my eyes, so I closed them. The fluorescents buzzed above uncomfortably, but those I couldn’t control.
 
-A clattering jolted me back to reality and I found my lap was missing its food. I glanced at the floor. 
+After clearing my throat, as if I was about to do public speaking, I said Billy’s magic words.
 
-Shoot. 
+“Martha of Insomnia, that is your name. I invoke you to play the enemy game. If I win, you shall leave me be. If I lose, through my eyes you’ll see.”
 
-I dropped my plate. The fries skittered over the hardwood and my burger sat in a dejected lump next to the chair leg. I gathered up the food quickly and settled back into my chair to eat. 
+The buzz of the fluorescents stopped exactly when I finished saying the last word. Everything became quiet.
 
-Five second rule. Don't judge me.
+I opened my eyes and the room was dark. There hadn’t even been the crackle of the lights going out. I looked around, and something felt wrong. Not just in the room, but everywhere.
 
-I looked back at the window and sat there for a moment with a cooling french fry halfway to my mouth. The tree line was just a tree line again. Vegetation and pine needles and the last slant of amber light bleeding out of the sky. Nothing there that didn't belong.
+My eyes weren’t adjusted to the darkness yet, so I made my steps towards the door carefully. Once there, I scoured around the doorframe with my hands, until I hit a panel with a bunch of switches. I turned them all on–or what I thought was ‘on’–but nothing happened.
 
-I popped the fry into my mouth and turned to watch the show.
+Had there been a blackout? Even if there was, hospitals usually had their own backup generators. Otherwise people would die. But maybe they had a prioritization system, if such a thing even existed…
 
-I told myself it was a hiker. How could it not be? The trail was right there. People hiked at dusk sometimes, the stubborn ones with headlamps clipped to their hats. 
+To check, I turned around and made my way to the window. The half-open blinds didn’t reveal much unless you got right up in there like Billy had. As I followed in his footsteps, panic crept up my throat like a rough rock squeezing itself through my esophagus. 
 
-But hikers didn't usually move like that. And they didn't stand that tall. Eight feet was probably an exaggeration born from distance and fading light and a brain that was barely functional. I'd been driving all day. I was tired. My eyes were playing tricks.
+At the window, I put my finger between the blinds and bent the thin metal to form a little peep hole.
 
-I turned back to my laptop and ate my dinner in silence. And I didn't look out the window again.
+The city lights were gone. 
 
-As I continued my binge, slowly but surely, I started nodding off. Thankfully I had set the empty styrofoam container on an unopened moving box, so no more spillage. My eyes began to slide closed as yet another episode began to play. I was too tired to even close the laptop. I probably started to snore. I won't confirm or deny.
+This really was a blackout. 
 
-Then I heard a sound from the front porch.
+But there was something in that view that didn’t make sense. It was almost like… everything was *too* dark. My eyes had started adjusting to the darkness–I could finally make out the dimensions of the room around me–but out there, it was like the buildings were a messy blob of black.
 
-It was a heavy sound. The sound of weight settling onto old wood, a slow compression rather than a step. One, then another. Then a pause. Like something was moving on four legs.
+I realized then what it was, and the panic only grew stronger, like I couldn’t breathe.
 
-It was loud.
+The moon was no longer there.
 
-My eyes snapped open and I sat absolutely still. The sleep melted from my eyes as I sat up straighter and strained my ears.
+It didn’t make any sense. No. Fucking. Sense. Except, of course, if my insomnia would’ve brought on some extremely acute psychosis. But even with the previous hallucination I’d had, there was some part of me that knew it wasn’t real. Like the way you act in a dream: you do stuff that you might not normally do, even though it feels real, because deep down you know it isn’t.
 
-The porch creaked again. Slowly. Definitely a quadruped.
+This wasn’t like that at all. 
 
-Then silence.
+I turned around and walked back to the door. “Billy?” I called out. “Billy, you there?”
 
-I don't know how long I sat there before I finally got up. I told myself I should stay in the chair and continue my show. That it was nothing. A deer on the porch, maybe. An animal investigating the lights from the house. Something mundane and explicable. All of that crossed my mind, and I got up anyway. Because the alternative was sitting there listening to my own heartbeat more than the laptop for the rest of the night.
+When I opened the door, the hallway shared the darkness of the room. I could just barely make out that Billy was nowhere to be seen: the chairs and wiry, uncomfortable sofas were empty, the hallway quiet like no one was around *anywhere*.
 
-I walked down the hallway. The front door was to my right. The window next to it looked out onto the porch.
+I could only see because of a single, white light that bounced and curved from behind the corner of the hallway to my right. It flickered, like it was the last man standing, fighting against the army of darkness.
 
-I stood inches from that window for ten full seconds. The footsteps slowly made their way across the porch before I finally looked.
+“Billy?” I called out. “Where are you, man? What’s going on?”
 
-It was a deer. A simple brown deer. Just as I expected.
+Silence.
 
-I let out a breath I didn't know I held. The deer regarded me for a second with its blank eyes then continued to stroll around the deck a little.
+I moved towards the light slowly, carefully. There was nothing acutely dangerous that I could see, but something was definitely wrong, and I didn’t want to do anything stupid. If this was just another cat-jumping-off-the-roof situation, I didn’t want to embarrass myself. 
 
- 
+Walking was hard, because for some reason I felt like I needed to hide.
 
-But then it stiffened. It quickly raised its head and its ears were up. Like it had noticed something there that it didn't before. 
+With each step I took, the more sure I was that this wasn’t a hallucination. Everything was too… clear. Hallucinations came with a fugue state, like a fog that surrounded your senses. But now, with adrenaline pumping into my bloodstream, my eyes sharp and my steps rigid, I knew this was real. This was happening.
 
-It bolted into the night, and I was about to turn away. 
+When I rounded the corner, I could see the source of the light: a long, tubular fluorescent lamp, hanging from its wires, barely holding on. I looked around me and immediately realized that all the lights around were not in fact just not working, but the lamps themselves were completely gone. How the fuck was that possible?
 
-Then I saw it.
+And why was this one still here?
 
-At the far left edge, where the porch wrapped around the corner of the house, something was crouched. The single porch light didn't reach it fully. I could see the shape of it in the way you see things at the edge of dark; not clearly, but undeniably. It was large. Its back was to me. The crouch was not human. The angles were wrong, the proportions extended in ways that turned the stomach slightly without immediately explaining why.
+Further along the hallway, something moved in the ceiling. I jumped back, like I’d seen an animal move through the woods on a dark night. It was quick, precise, but I couldn’t make out what it was. All I could tell was that it was hiding in the darkness.
 
-As I watched, it shifted its weight. Slowly. The porch groaned under it.
+“Who’s there?” I yelled, and was immediately embarrassed of how non-threatening my voice sounded.
 
-Then it turned its head.
+For a long moment, silence. Then from the darkness came a woman’s voice, hoarse like smoke and gritted teeth, the words meandering and staccato at the same time. “What did you dream of as a child?”
 
-And even in the near dark, even at that distance, even through a pane of glass, I knew with absolute certainty and terror that it was aware of me. All I could make out was hollow sockets in the dreadfully elongated snout of the skull and the pinpricks of light in them.
+“What? What the fuck?”
 
-Then slowly…
+“What was it? Flying? Stopping time? Getting to be in an amusement park all by yourself, skipping the lines?”
 
-Very slowly…
+“What do you want?”
 
-It extended an arm that was far too long and set something on the second porch step with a soft gentle *click*. A little statue roughly fourteen inches tall. 
+It moved again, like a spider, covering a vast distance in a heartbeat. It was almost at the edge of the light. “Or were they dark, of monsters under the bed and ghosts roaming the streets?”
 
-The hiss of amusement that came out of the thing on the porch wasn't a laugh per se. It was almost satisfied. Kind of like that sound you make when you finally find that one foodstuff in the pantry that you've been craving all day. 
+Then it began to move slowly, not in rapid passages, but a slow crawl. I dreaded seeing what it was once it reached the fluorescent’s beam, but I couldn’t look away.
 
-It was like that. All put into a low hollow hiss.
+“I had nightmares,” I blurted out, hoping it would stop it from moving. And, at least for a moment, it did. 
 
-…
+“What kind of nightmares?” it said, and it sounded genuinely interested.
 
-That's when I snapped awake.
+“There was, uhh. There was one where I’d be falling down a volcano, but I was in freefall for a very long time. And my dad was there, too, and I got to say goodbye to him before we both, you know.”
 
-My head lurched forward and I caught myself on the armrest, breathing hard. The laptop was still playing, some scenes of dialogue I'd completely missed. My neck ached where it had been crooked against my shoulder. I sat there for a moment with my heart doing something unpleasant in my chest, trying to locate myself. 
+It was true, and I don’t know why I said it. I’d never told anyone else that. It was like I didn’t want to lie–that the thing would somehow know and punish me for it.
 
-Living room.
+The thing emerged into the light, and with its wretched body the nightmare got its stamp of approval from reality.
 
- 
+In some ways it was a human, and in some it was like a spider. Its skin was gray and hairless, and from all around its torso jutted out legs–as if surgically attached–which oozed some thick liquid that kept the thing glued to the ceiling. 
 
-Armchair. 
+Yet its head was not a human’s. It was bloated and wide, and most of it was taken up by two black eyes that shone like obsidian in the light. There were no eyebrows, no ears, no nose. The mouth, if you could call it that, was more like a gaping wound with hundreds of different-sized teeth arranged in tight rings that formed around each other. 
 
-My house.
+“I know,” it said, the voice coming from somewhere deep inside its hideous body. “I was there.”
 
-Right.
-
-The dream was already breaking apart the way they do, losing its edges. But the shape of that thing on the porch stayed with me longer than the rest of it. The way it had crouched. The way it had turned its head. The hollow eye sockets in that elongated skull catching whatever light the house offered.
-
-I rubbed my face with both hands and exhaled slowly.
-
-*What on earth was in that burger,* I thought to myself.
-
-The laptop had moved on to yet another episode by then. I checked the time. Just past midnight. I'd been asleep for nearly two hours in the chair. My back was going to resent me for it in the morning.
-
-I closed the laptop and sat in the dark for a minute, letting my eyes adjust. The house was quiet. Genuinely quiet in the way houses in cities never are. With no traffic, no neighbors, and no ambient hum of the city itself. Just the wood settling and the distant sound of wind off the mountain.
-
-And then, for no reason I could have named if you'd asked me, I got up and walked to the front door.
-
-I told myself I was just checking the locks. And that the noise I remembered from earlier, the weight on the porch boards, had been a deer anyway and I just heard it while unconscious.
-
- 
-
-I wasn't checking for anything specific. I was just being responsible. New house, new locks, good habit.
-
-I stood at the window next to the door and looked out.
-
-The porch was empty. I let out an exhausted sigh. Of course it was empty. I really needed to get to bed before I fell asleep standing up.
-
-I was about to turn back to head to bed when something at the edge of my vision caught my eye. I looked again.
-
- 
-
-My stomach churned. Sweat began to trickle down my neck despite the chill.
-
-There, facing away from me toward the mountain, sat a statue
-
-. 
-
-A small statue. Roughly fourteen inches tall. Made of dark material.
-
-It was right on the second porch step.
-
-Right where the thing had put it.
+I turned around and ran for my [life](https://wintersnoah.wordpress.com).
