@@ -1,264 +1,240 @@
-# My experience with "The Enemy Game" (Part 1)
-When I had to call someone to pick me up from the hospital, my first thought wasn’t my ex-wife, not my brother, not even my mother–well, she did live two states away–but good old Billy. And not just because of optics, either, even though getting hospitalized for an insomnia-induced accident definitely didn’t sound flattering; it was the kind of information I’d rather not tell the people closest to me.
+# I took a remote job clicking through a private street view map. I need someone in GIS or map software to tell me what I'm looking at before my internet cuts out.
+I know this is a wall of text, but please read it anyway. If you work in spatial data, GIS software, map API development, or automated QA testing, I need you to tell me what I'm dealing with. I can't call the police. If I end up in a psych ward tonight, I am going to die.
 
-Instead, it was because, even though it was three o’clock in the morning, Billy picked up the phone immediately and said he’d be here in thirty. 
+I live in Omaha. Keeping my real name out of this for now, for obvious reasons.
 
-For all his faults, he was solid as a rock. And, like clockwork, he was standing by my bed twenty-eight minutes later. Worry pressed his eyebrows like they were under exceptional gravity, but the first words he said to me were jovial in tone “Jesus, what the shit did’ya get yourself into now, Tommy?”
+Up until about three months ago I was broke. Laid off from a data entry job in late 2024, and the market has been garbage since. I was burning through savings in a cheap ground floor duplex in a not great neighborhood, spending six hours a day applying to remote jobs on LinkedIn, ZipRecruiter, Indeed, random Discord servers for remote work.
 
-Shit, was it that obvious? I hadn’t been in front of a mirror since the accident, but Billy’s reaction made me scared to see what I looked like.
+Sometime in May I found a listing on an obscure tech forum for a "Spatial Data Cleanser." Company was called Aegis Geographic Solutions. Bare bones website, generic corporate landing page, buzzwords like "hyper granular localized mapping" and "next gen B2B routing API integration." From what I could tell they were a private competitor to Google Maps, building proprietary street view data and selling it to logistics companies and autonomous vehicle startups.
 
-“Is it really that bad?” I asked. 
+$45 dollars an hour. Full-time, fully remote, set your own hours as long as you cleared a node quota every week.
 
-“Half your face is black! Fuck, they even put a bandage around your head! That’s the corniest kind of bandage you could get,” he said with a stifled chortle.
+I applied immediately, didn't expect to hear back since I don't have a GIS degree. Next morning I had an email from a generic HR address. No interview, no call. Just an offer letter, a huge NDA, a W9, and a contract. The NDA was intense, basically said I'd be sued into the ground for talking about their software. I had about two hundred dollars in my checking account. I signed everything and sent it back.
 
-“Fuck off,” I said, laughing then immediately suppressing it because it hurt my head. 
+Two days later a FedEx guy dropped a heavy black Pelican case on my porch.
 
-Billy was insistent in his humor, which made it both a blessing and a curse. There was no off-switch, so you just had to be in the mood. I wasn’t at all sure if I was.
+Inside was a laptop, thick and heavy, no logo anywhere, felt like military hardware. A mouse with a weird double scroll wheel. A physical security key that looked like a USB drive. And a single laminated sheet.
 
-He sat down on the bench by the bed. “Alright, now tell me what really happened.”
+That laminated sheet was my entire onboarding. I'm typing it out exactly as printed because you need the rules to understand where I am right now:
 
-I shrugged. “Fell down trying to catch a cat.”
+**AEGIS GEOGRAPHIC SPATIAL DATA QA GUIDELINES**
 
-“A cat?” he said, and leaned back. It reminded me of the way my therapist leaned back to write on her notepad whenever I said something of note; usually something fucked up, something we’d circle back to in a session or two.
+Welcome to the Aegis team. Your role is vital to ensuring our Pan-Optic StreetView API remains clean, accurate, and free of visual artifacts.
 
-“Well, sort of. I was at work and went outside for a smoke break. Then, well, I think I heard something, and so I look up and there’s a black cat on the edge of the roof, its back legs tight like springs. Then the fella jumped, so I lunged forward, trying to predict where it would land, and it ended up with me faceplanting on the curb instead.”
+You will use the pre-installed Argus Terminal on your company device. Navigate the assigned geographical nodes using the arrow keys, panning 360 degrees to scan imagery captured by our fleet of Aegis vehicles.
 
-“Shit. Was the cat okay?”
+You are looking for Anomalies. When you spot one, press F4 to drop a pin, select the Anomaly Type from the dropdown, and press Submit. The software will automatically blur, stitch, or delete the flagged data.
 
-“Well, that’s the thing. There was no cat.”
+**STANDARD ANOMALIES**
+1. Unblurred faces or license plates. Our AI catches 98% of these. You are looking for the remaining 2%.
+2. Stitch tears, where the 360 cameras misalign and create broken geometry (ex: a dog cut in half).
+3. Lens flares or smudges from debris on the camera rig.
 
-Billy leaned forward. “Huh?”
+**NON-STANDARD ANOMALIES (CRITICAL)**
+If you encounter any of the following, do NOT apply a standard flag. Press F9 immediately to isolate the node, lock the session, and ping your Supervisor.
 
-“It’s embarrassing. I insisted they even check the CCTV footage. God. There was no fucking cat. I’d hallucinated the whole thing.”
+Rule A. Timestamp metadata says the imagery was captured at night, but the sky in frame is daylight.
 
-Billy’s face flushed. “You using something?” he asked, the usual jovial nature of his voice completely gone. 
+Rule B. A pedestrian completely motionless, looking directly upward at the camera rig, mouth open. Do not zoom in on their face.
 
-“Shit, no! Fuck no! Nothing like that. You know I would never.”
+Rule C. The environment suddenly shifts into a grayscale or sepia palette. Severe rendering error. Close your eyes, mute your computer audio, hold Escape for 10 seconds.
 
-He leaned back again, crossing his arms. “Enlighten me, then.”
+Rule D. You pan the camera and see a grey 1998 Ford Taurus following the Aegis vehicle.
 
-The fact was that we didn’t really talk about personal stuff when we hung out. That’s just how typical male relationships tend to be: he might be like a brother, but you don’t even know the name of the girl he last dated. Me and Billy’s relationship was no different, and so through gritted teeth and a pumping heart, I had to explain to him that for the last couple of weeks, I’d barely slept.
+Rule E. Do not look into the reflections of freestanding mirrors, standing water, or unlit residential windows for more than 5 consecutive seconds.
 
-Like, clinically not slept. Full-on insomnia. Probably due to burnout at work; it was taking me three energy drinks alongside a pack of cigarettes just to get myself through a shift. I know it sounds ironic, that I’d need stimulants throughout the day, but it wasn’t that they kept me unnecessarily awake. Just… aware. Hands on the wheel. Otherwise, it was like my brain didn’t even really work. I’d lose track of time, constantly forget what I was doing, and my eyes just wandered aimlessly. Caffeine and nicotine forced my body to at least go forward, even if it was running on fumes.
+Rule F. The Aegis camera fleet operates exclusively on public roads. If a node places you inside a building, a private residence, or a subterranean tunnel, flag it as a Level 1 Breech and physically step away from the device for 15 minutes.
 
-I’d had to stop wearing my smart watch because my resting heart rate had become scarily high.
+(Yeah. "Breech." Misspelled on the actual laminate. I noticed it the first day and thought it was just a sloppy print job. I think about that typo a lot now.)
 
-And I did try to get help, but the doctors gave me shit advice, and the pills didn’t work for more than an hour’s worth of sleep. 
+I laughed reading it at my kitchen table. Figured it was IT humor, or a screening test to see if contractors actually read the docs. I set the laptop up in my spare room, plugged in the security key, booted it.
 
-“Jesus,” Billy said. “That’s fucked up, man. I’m sorry… I didn’t know.”
+Argus Terminal looked like Street View with a much denser HUD. LiDAR depth, coordinates, camera rig temperature, vehicle speed, all of it.
 
-“Well, I didn’t tell you, did I?”
+For two months the job was exactly as boring as it sounds. Log in around 10, podcast on, coffee, click through hundreds of miles of American suburbs. Fixed accordioned cars. Blurred kids playing basketball. Blurred license plates the AI missed. Never saw the day/night mismatch, never saw an open-mouthed pedestrian, never saw the Taurus. Forgot the weird rules existed.
 
-He laughed. “Guess not. Anyway, why am I here?”
+I was clearing eight grand a month before taxes. Paid off my credit card, ordered good takeout, actually felt secure for the first time as an adult. Started saving to break my lease.
 
-“Well, the doctors are quite aware of my situation, and would like to keep me overnight, at least. But I don’t wanna stay. I fucking hate hospitals. But they won’t let me go alone. Said that I need an escort.”
+Then three weeks ago things got weird.
 
-“Right, right. But–” Billy said, then hesitated for a moment before continuing, the words coming out slower now. “I get that you don’t like hospitals, I do. They suck every which way. But maybe there’s a point in keeping you overnight, no? I mean, they could probably give you something to knock you out, get some sleep.”  
+I was clearing a queue in downtown Chicago. Bright sunny day, sidewalks packed, the usual tourists. I grew up there, so it was a nice hit of nostalgia. I was blurring faces at a crosswalk. Clicked forward, image jumped fifteen meters down the street. Panned right.
 
-Then he smiled and looked in my eyes. “Just my two cents here, amigo, which I feel I’m entitled to, seeing as I gave up my beauty sleep for this. Pun not intended.”
+A man in a business suit standing dead center in the crowd. Everyone around him was slightly motion-blurred from walking. He was in perfect focus, meaning he'd been completely still when the car passed.
 
-He was right, in a sense. But mentally, I just couldn’t deal with it. There wasn’t a pill that would knock me out–they’d pretty much told me as much–but what they could do is just inject me with something though the IV. 
+Head tilted back at ninety degrees. Staring straight up at where the camera rig sits. Mouth open, not a little, jaw stretched down so far the skin at his cheeks looked like it was about to split. A black, empty hole.
 
-I hated that idea more than I hated not sleeping. 
+My stomach flipped. Rule B. I didn't hit F9 right away, don't know why, just hovered the mouse and zoomed in one click.
 
-And if I stayed there without drugs, I’d just wallow in pain and anxiety until they’d find another thing to charge me for. Another thing that wouldn’t help.
+The second I zoomed, my speakers blasted a high pitched screech, like a dial up modem run through a wood chipper. Argus doesn't have audio. It's a mapping program. I slammed my hands over my ears and hit F9.
 
-Really, I just wanted to get home. 
+Red border across the screen. Static cut dead. A chat box opened bottom right.
 
-“You’re right,” I said. “Mostly, at least. Thing is… I’ve already tried everything. Pills, yoga, exercise, mindfulness, everything. I don’t think they can do much more, and–well, I just wanna get home.”
+Terminal: `Anomaly flagged. Type?`
 
-Billy looked around the room and sighed. “Yup, I get it.”
+Me: `Rule B violation. Pedestrian looking up with mouth open.`
 
-“So you’ll drive me?”
+Long pause. Typing indicator bubbling.
 
-“Sure. But listen, there’s something that might help. I mean, if it’s really that bad, and you’ve tried everything else.”
+Supervisor_David: `Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue. Please remember to adhere strictly to all guidelines regarding zooming.`
 
-What I thought he’d suggest is mushrooms. Reiki. Chamomile tea. Some bullshit thing that helped someone he knew somewhen. I didn’t want to be so stubborn in my belief, but I truly did not think there was any quick fix for my insomnia. Or a long fix. Thinking back on it, I mostly relied on the idea that, since the insomnia had come out of nowhere, that it would then go away by itself, too. Like a weird bump you get on your skin, and then two months later it would be gone. 
+Dropped me onto a dirt road in rural Texas.
 
-The difference, of course, was that any prolonged duration of semi-hardcore insomnia would have “permanent negative effects, both mental and physical,” as the doctor had put it. 
+I told myself it was a rendering bug, the audio spike was my sound card choking on the error. Finished the shift anyway. Needed the money.
 
-“Yeah?” I said, knowing that I did, in fact, owe him enough to at least listen to what he had to say.
+Last Tuesday I was on a batch near Centralia, PA, the outskirts where the county roads still cut through the woods. Overcast sky, bare trees, late autumn. Clicked down a two lane blacktop. There was something familiar about it that I couldn't put my finger on.
 
-Billy stood up and walked to the window, peeking through the half-open blinds. The city was almost completely dark outside, except for the odd constellations of streetlights that were stuck to the ink-black vista like fireflies in a glue trap.
+Standing on the shoulder, surrounded by dead leaves, was a person in a heavy yellow rain slicker, hood up, no face visible. Alone in the woods, miles from any town.
 
-“This might sound cuckoo, but hear me out,” Billy said, turning to look at me. “My grandma was a stubborn woman. Never did like doctors or any other man telling her what to do. But of course, she got sick just like the rest of us. But somehow she’d always find a way to kind of, I don’t know, get around it? It’s like, one day she’s coughing up blood, and the next she’s healthy as a horse.”
+They were holding a massive antique wardrobe mirror upright, mahogany frame, brass casters, gripping the sides and angling it dead at the road. At the camera.
 
-“Okay.”
+Rule E. I didn't zoom this time, just looked at the reflection in the normal field of view. It didn't show the road or the camera car behind it. It showed a dark room, warm orange lamp light, the edge of a floral couch, scuffed hardwood.
 
-“Yeah, well.” Billy coughed and scratched the back of his head, like he was gathering his thoughts, or delaying what he wanted to say. “Years later I asked her how she did it, and she told me about this technique she had.”
+An interior living room, reflected in a mirror standing on the shoulder of a rural Pennsylvania highway.
 
-“Uh-huh…”
+I hit F9.
 
-Billy threw his hands up and said “Aw fuck, I knew you’d look at me like that.”
+Me: `Rule E violation. Freestanding mirror on side of road. Reflection shows interior room.`
 
-“Like what?”
+Supervisor_David: `Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue.`
 
-“Like I’m telling you some bullshit. Your eye might be black but it’s still rolling, man. Just… let me explain. Withhold judgement for like two minutes.”
+Dropped into a sunny Phoenix neighborhood, coincidentally one I used to live in a few years after college. I closed the laptop for the day, didn't care about my quota, spent the night on my personal phone with a VPN trying to find anything on Aegis Geographic. Tor, forums, everything. There was nothing. No employee LinkedIns, no Glassdoor, no press about a fleet of mapping cars driving the country. A company with that kind of infrastructure and zero digital footprint.
 
-“Alright,” I said. “You have my word.”
+I almost quit that night. I had my thumb over the HR email, ready to send it back. But I had twelve grand saved because of this job, and honestly a sick curiosity had already gotten its hooks in me. I told myself a few more weeks.
 
-“Alright, so. She got sick, and then it’d go away. Poof. Never saw a doctor in her life. And this wasn’t just some misremembered childhood memory; it happened even as I got older. I got curious, and at some point I was convinced she’d made a deal with the devil. It was that fucking weird. But I didn’t wanna bother her about it. That’s until she got sick and wasn’t getting any better.”
+Thursday, two days ago, I was in downtown Seattle, another one of my old neighborhoods. Rain, blurred lenses, pedestrians under umbrellas at a crosswalk. Panned left.
 
-The last words had the timbre of tears. Billy took a second to breathe.
+The person in the yellow slicker, standing on the corner, perfectly still while everyone else rushed past. Two thousand miles from where I'd seen them in Pennsylvania.
 
-“What happened?” I asked him.
+They had the mirror again, facing the camera. Pedestrians walked right past a massive piece of antique furniture sitting on wet pavement like it wasn't there.
 
-“Cancer.”
+I looked at the reflection. Same room. Floral couch, scuffed hardwood, but the lamp was brighter now. And in the corner, on a small end table, a brass diver's helmet lamp.
 
-“I’m sorry.”
+I own that lamp. Thrift store find from college. It's sitting on a wooden end table in my actual living room right now, twenty feet from where I was sitting.
 
-“Thanks,” he said, cracking his knuckles and rolling his shoulders, like he was getting ready to lift something heavy. “Anyway, she got to be in such a bad spot that my mum forced her into the hospital. It was the first time she’d been in one since birth, or at least she said as much. And I could tell she was dying, that she couldn’t fix this. On what would become our last visit, I got to have a few minutes alone with her as mum went out to get us coffee. I couldn’t not ask her, and so I did, and she told me about the enemy game.”
+I spun around in my chair and looked through the doorway into my living room. Same lamp. Same scuffed floor. Same couch, the one I inherited from my grandmother.
 
-“It’s a game?” I asked.
+It was my living room.
 
-“Game, technique, exercise. Whatever. The way it works is that you make whatever sickness or ailment you’ve got into an enemy: you make it into something that’s strictly not part of you. And once you do that, you can fight it, and hopefully defeat it. And if you do, it’s simply gone.”
+I hit F9 so hard I think I cracked a nail.
 
-“Well, shit,” I laughed. “That sounds easy!”
+Me: `I need to speak to someone right now. What is this?`
 
-“I guess it does, doesn’t it? Anyway, first off, you need to give it a name. Any name, just something you can remember.”
+Long pause. The typing bubble sat there for almost a full minute.
 
-“Like, what? Martha?”
+Supervisor_David: `Node locked. Please step away from the console for 15 minutes.`
 
-“As in Stewart?” Billy said with a snort. “Well, you can call it whatever, so why not Martha. And then it becomes Martha of Insomnia.”
+Me: `No. The room in the mirror is my apartment. My actual apartment. How?`
 
-“Oh, so it gets a last name?” I joked.
+Supervisor_David: `Do not look into the reflections of freestanding mirrors. This is Rule E. Please close the terminal and take your mandated break.`
 
-“Yup,” he answered, not taking the bait. “Then you go somewhere where you can be alone. An empty room, a field somewhere, a parking lot if you’d like. Just as long as nobody else can hear or see you. Then you just say the magic words, and if it goes right, you’ll fight it, and if you win, you’ll never see it again.”
+Me: `Who is the person in the yellow coat?`
 
-“This is the kookiest shit you’ve ever told me,” I said. Then I thought that he *must* be joking. “Actually, I think you’re pulling my leg.”
+The chat disconnected. Argus force closed to the desktop.
 
-“Shit, man,” Billy puffed out, the words like cracked shields. “All I know is that my grandma never fucked around, and she really was healthy. Never saw her sick for more than a day, not even once.”
+I texted my friend Marcus that night. Just "hey are you up, something weird is going on with my job, can I call you." Never got a reply. He's usually online at 1am, he's a night owl, but I figured he was just asleep and I didn't want to spiral about that on top of everything else.
 
-“Alright, say that what you’re saying is all true, and that she didn’t just have a good immune system and a lifestyle where she avoided people–” 
+I didn't sleep Thursday night. Checked every lock, closed every blind, shoved the diver lamp into the back of my closet under a pile of winter coats. Kept expecting to see yellow out the window every time I walked past one.
 
-Billy jumped in, “Hey, come on!”
+Friday morning I was a wreck, three cups of coffee just to steady my hands. I knew I was done with the job. I was going to box the Pelican case and take it to FedEx.
 
-“Let me finish! *If* what she did worked, then a) what the hell does it mean to ‘fight’, and b) what happens if you lose?”
+But first I needed to know what Argus was actually connected to. A few weeks back I'd found a shortcut, holding Shift and Control on boot skips the assigned queue and opens a global master map, a grid of the US with green lines showing mapped routes.
 
-Billy shrugged. He was out of stamina, and I could finally see the tiredness in his eyes, but also the fact that he genuinely believed what he was saying. It was rude of me to bother him like this, especially considering he’d come to help me out. 
+I booted it, used the shortcut. Zoomed to Nebraska, to Omaha, to my street. Bright green. Mapped. I dropped the little peg man icon right in front of my duplex.
 
-“I don’t know what fighting means exactly. I’ve never done it. And if you lose, well, then whatever you were fighting wins.”
+Sunny day, full green trees, a neighbor across the street walking their dog. I panned the camera to my building, two story brick quadplex, my windows bottom left.
 
-“You know how this sounds, right?” I asked him.
+Blinds wide open in the image. I zoomed in, pushing the resolution as far as it would go, and the camera tech on this thing is disturbingly good, you can read a flyer at fifty yards if you push it hard enough.
 
-“Like a bunch of gobbledygook. Yeah, I know. I shouldn’t have even–”
+Through my own window I could see the floral couch. The end table. The brass diver lamp, which I know for a fact was in my closet by then, not on the table.
 
-“Fuck it. I’ll do it,” I said, forcing myself to sit upright on the bed. What’s them magic words I need to say, then?”
+And I could see myself. Standing at my desk, leaning over it, staring straight out the window at the camera car. Mouth hanging open. Eyes wide.
 
-Billy then told me what to say, and then suddenly grew more concerned. His tone was darker, almost like he was reprimanding me. 
+Metadata timestamp, top left corner.
 
-“You sure you want to do this? I mean, maybe it really is bullshit, but still, some part of me thinks that it isn’t. Just, y’know. Just wanna make sure you know what you’re getting into.”
+Capture Date: August 1 2026, 23:14:00 EST.
 
-“Even you don’t know what I’m getting into, exactly,” I replied with a smile.
+I checked the clock on my wall. August 1st, 2026. 4:00 PM.
 
-“Yeah. Right.”
+Seven hours in the future. Tonight, 11:14 PM.
 
-“Relax. At this point if they offered me some mystery pill straight out of Pfizer’s experimental labs, I’d take it just to see if it helped. This isn’t any different.”
+I shoved back from the desk so hard my chair tipped and I hit the floor. Crawled away from the laptop like it was live ordnance. Sat against the hallway wall hyperventilating for I don't know how long.
 
-“Anything except the IV, huh?” he asked. Not because he didn’t know, but because he did. 
+Around 7:00 PM my personal phone buzzed. Unknown shortcode.
 
-“As long as I’m still around to say no.”
+AEGIS ALERTS: `Your weekly node quota has not been met. Please log into the Argus Terminal to prevent contract termination.`
 
-To that, he simply nodded in understanding. 
+I ignored it. Not going near that laptop.
 
-“Well,” I said, “might as well get cracking.”
+7:30. Buzzed again.
 
-Billy laughed. “Shit, this has been one weird fucking night, hasn’t it? Hope this helps you out, though.”
+AEGIS ALERTS: `Unscheduled route deviation detected. Supervisor David is requesting a live session.`
 
-“Hope so too.”
+I got up, legs like jelly, walked over and looked at the screen. It had overridden itself. My apartment street view was gone, replaced with a live real time map of the country. A single red dot pulsing on I-80 near Des Moines. Two hours east of me.
 
-He lifted his hand up, right thumb pointed toward the door. “I’ll just be out in the hallway, alright? I’ll come back in like, I dunno, ten minutes if I don’t hear from ya? Otherwise just come get me when you’re ready and we’ll get the fuck out of dodge. You don’t need to stay here if you don’t want to.”
+Scrolling readout underneath:
 
-I stood up from the bed and took out the needle from the tip of my finger. My muscles felt a bit weird, but then again things feeling weird had been my primary state for weeks now. My eye ached, and I wanted to touch it because I could tell it was swollen, but I didn’t.
+`ASSET: AEGIS RIG #44
+STATUS: ACTIVE DRIVING
+DIRECTION: WESTBOUND (I-80)
+DESTINATION: OMAHA NE
+ESTIMATED TIME OF ARRIVAL: 23:14:00`
 
-Billy watched me long enough to see that I could get up on my feet, and then walked to the door. Once outside, the door halfway closed already, he peered in from the crack and said “Good luck, buddy.”
+Same time as the photo. I hit F9.
 
-“Thanks for everything. Even this weird grandma-juju.”
+Me: `Why is it coming here. Cancel the route. I quit, I resign, I'm unplugging the machine right now.`
 
-He laughed. “No problem, man. Be back in a bit.”
+Supervisor_David: `You cannot resign while a localized anomaly is unresolved. You viewed the reflection. You established the tether. Rule E was explicitly clear.`
 
-Once the door was closed, I situated myself in the middle of the room. I breathed in, and breathed out. Then again. Then like seven more times, just to try and center myself. The night outside played with my eyes, so I closed them. The fluorescents buzzed above uncomfortably, but those I couldn’t control.
+Me: `I didn't establish anything, it was a glitch. Call the car off or I am calling the police.`
 
-After clearing my throat, as if I was about to do public speaking, I said Billy’s magic words.
+Supervisor_David: `The police cannot intercept Rig 44. It is not currently occupying physical geographic space. It is rendering the route. It is retrieving the anomaly.`
 
-“Martha of Insomnia, that is your name. I invoke you to play the enemy game. If I win, you shall leave me be. If I lose, through my eyes you’ll see.”
+Me: `What does that mean. What anomaly. I'm not an anomaly.`
 
-The buzz of the fluorescents stopped exactly when I finished saying the last word. Everything became quiet.
+Supervisor_David: `The discrepancy in the spatial data. The element that does not belong. It is coming to cleanse the node OP.`
 
-I opened my eyes and the room was dark. There hadn’t even been the crackle of the lights going out. I looked around, and something felt wrong. Not just in the room, but everywhere.
+He used my real name. Not my contractor ID.
 
-My eyes weren’t adjusted to the darkness yet, so I made my steps towards the door carefully. Once there, I scoured around the doorframe with my hands, until I hit a panel with a bunch of switches. I turned them all on–or what I thought was ‘on’–but nothing happened.
+I just put it together. I am sitting here typing this and I feel like I'm going to throw up. Chicago. Phoenix. Seattle. Omaha. And even a random road in Pennsylvania. I just realized why that road in Centralia felt so familiar. I got a flat tire on one of those backroads driving cross-country a few years ago.
 
-Had there been a blackout? Even if there was, hospitals usually had their own backup generators. Otherwise people would die. But maybe they had a prioritization system, if such a thing even existed…
+The Aegis car isn't just mapping streets. It's mapping *me*. It's driving through my past. Chicago was my childhood. Phoenix was after college. Seattle was my old neighborhood. Omaha is now. It's driving down my literal timeline and it's erasing me from it. That's what David meant by cleansing the node. I'm the element that doesn't belong.
 
-To check, I turned around and made my way to the window. The half-open blinds didn’t reveal much unless you got right up in there like Billy had. As I followed in his footsteps, panic crept up my throat like a rough rock squeezing itself through my esophagus. 
+I ripped the security key out of the USB port, screen went black instantly, shoved the whole thing back in the Pelican case.
 
-At the window, I put my finger between the blinds and bent the thin metal to form a little peep hole.
+Spent the next twenty minutes throwing clothes in a duffel bag, decided I'd drive to Kansas City and sit in a motel until I figured this out. Grabbed my keys, opened the front door.
 
-The city lights were gone. 
+Parked directly behind my car, blocking me in, was a grey 1998 Ford Taurus. Spotless paint, no rust, windows tinted black. Engine off, but I could hear a low mechanical thrum coming from it, not a combustion sound, more like a server rack fan at full speed.
 
-This really was a blackout. 
+Rule D.
 
-But there was something in that view that didn’t make sense. It was almost like… everything was *too* dark. My eyes had started adjusting to the darkness–I could finally make out the dimensions of the room around me–but out there, it was like the buildings were a messy blob of black.
+I dropped the bag on the porch, backed inside, deadbolt, chain, every blind pulled shut.
 
-I realized then what it was, and the panic only grew stronger, like I couldn’t breathe.
+That's where I am now. I have my personal laptop open on the kitchen island writing this. If someone finds this post or finds my laptop, you need to know about Aegis Geographic.
 
-The moon was no longer there.
+I couldn't sit with not knowing so a few minutes ago I plugged the Aegis laptop back in just to check the tracker. It bypassed the login screen on its own.
 
-It didn’t make any sense. No. Fucking. Sense. Except, of course, if my insomnia would’ve brought on some extremely acute psychosis. But even with the previous hallucination I’d had, there was some part of me that knew it wasn’t real. Like the way you act in a dream: you do stuff that you might not normally do, even though it feels real, because deep down you know it isn’t.
+The map is gone. It's just a live first person video feed. Pitch black, sound of tires on asphalt, wind past a mic. Moving fast. Bottom right corner, an ETA ticking down.
 
-This wasn’t like that at all. 
+ETA: 02:41:12
 
-I turned around and walked back to the door. “Billy?” I called out. “Billy, you there?”
+A few minutes ago the headlights flicked on for a half second. Lit up a highway sign. Welcome to Nebraska.
 
-When I opened the door, the hallway shared the darkness of the room. I could just barely make out that Billy was nowhere to be seen: the chairs and wiry, uncomfortable sofas were empty, the hallway quiet like no one was around *anywhere*.
+Standing on the shoulder in the flash of light was the person in the yellow slicker. No mirror this time.
 
-I could only see because of a single, white light that bounced and curved from behind the corner of the hallway to my right. It flickered, like it was the last man standing, fighting against the army of darkness.
+They were pointing straight down the highway. West. Toward Omaha.
 
-“Billy?” I called out. “Where are you, man? What’s going on?”
+I don't know what to do. Can't leave because of the Taurus. I have a baseball bat and a kitchen knife and I'm going to sit in the hallway away from every window. I am not going to look outside like I did in that photo. I'm changing the future. I have to.
 
-Silence.
+If anyone knows what Aegis Geographic actually is, or what the Pan-Optic StreetView API is really mapping, tell me in the comments, I'll be checking on my phone.
 
-I moved towards the light slowly, carefully. There was nothing acutely dangerous that I could see, but something was definitely wrong, and I didn’t want to do anything stupid. If this was just another cat-jumping-off-the-roof situation, I didn’t want to embarrass myself. 
+ETA: 01:28:00
 
-Walking was hard, because for some reason I felt like I needed to hide.
+It's moving faster than a car should be able to move.
 
-With each step I took, the more sure I was that this wasn’t a hallucination. Everything was too… clear. Hallucinations came with a fugue state, like a fog that surrounded your senses. But now, with adrenaline pumping into my bloodstream, my eyes sharp and my steps rigid, I knew this was real. This was happening.
+I have to go. I'll update if I make it through the night.
 
-When I rounded the corner, I could see the source of the light: a long, tubular fluorescent lamp, hanging from its wires, barely holding on. I looked around me and immediately realized that all the lights around were not in fact just not working, but the lamps themselves were completely gone. How the fuck was that possible?
+**Edit:** A car door just slammed outside....
 
-And why was this one still here?
+**Edit 2:** The fan noise from the Taurus got louder. Vibrating the floorboards. Something's on my porch steps. Posting this now, I'll update when I can.
 
-Further along the hallway, something moved in the ceiling. I jumped back, like I’d seen an animal move through the woods on a dark night. It was quick, precise, but I couldn’t make out what it was. All I could tell was that it was hiding in the darkness.
-
-“Who’s there?” I yelled, and was immediately embarrassed of how non-threatening my voice sounded.
-
-For a long moment, silence. Then from the darkness came a woman’s voice, hoarse like smoke and gritted teeth, the words meandering and staccato at the same time. “What did you dream of as a child?”
-
-“What? What the fuck?”
-
-“What was it? Flying? Stopping time? Getting to be in an amusement park all by yourself, skipping the lines?”
-
-“What do you want?”
-
-It moved again, like a spider, covering a vast distance in a heartbeat. It was almost at the edge of the light. “Or were they dark, of monsters under the bed and ghosts roaming the streets?”
-
-Then it began to move slowly, not in rapid passages, but a slow crawl. I dreaded seeing what it was once it reached the fluorescent’s beam, but I couldn’t look away.
-
-“I had nightmares,” I blurted out, hoping it would stop it from moving. And, at least for a moment, it did. 
-
-“What kind of nightmares?” it said, and it sounded genuinely interested.
-
-“There was, uhh. There was one where I’d be falling down a volcano, but I was in freefall for a very long time. And my dad was there, too, and I got to say goodbye to him before we both, you know.”
-
-It was true, and I don’t know why I said it. I’d never told anyone else that. It was like I didn’t want to lie–that the thing would somehow know and punish me for it.
-
-The thing emerged into the light, and with its wretched body the nightmare got its stamp of approval from reality.
-
-In some ways it was a human, and in some it was like a spider. Its skin was gray and hairless, and from all around its torso jutted out legs–as if surgically attached–which oozed some thick liquid that kept the thing glued to the ceiling. 
-
-Yet its head was not a human’s. It was bloated and wide, and most of it was taken up by two black eyes that shone like obsidian in the light. There were no eyebrows, no ears, no nose. The mouth, if you could call it that, was more like a gaping wound with hundreds of different-sized teeth arranged in tight rings that formed around each other. 
-
-“I know,” it said, the voice coming from somewhere deep inside its hideous body. “I was there.”
-
-I turned around and ran for my [life](https://wintersnoah.wordpress.com).
+**Edit 3:** I can't post the second part here. Every time I try, the connection drops or the text just vanishes. My digital footprint is being wiped. The only place the text would actually save without deleting itself for now is directly on my personal profile. [You can read Part 2 here.](https://www.reddit.com/user/nocturn-e/comments/1vehngn/i_took_a_remote_job_clicking_through_a_private/)
