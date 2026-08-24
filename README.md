@@ -1,240 +1,368 @@
-# I took a remote job clicking through a private street view map. I need someone in GIS or map software to tell me what I'm looking at before my internet cuts out.
-I know this is a wall of text, but please read it anyway. If you work in spatial data, GIS software, map API development, or automated QA testing, I need you to tell me what I'm dealing with. I can't call the police. If I end up in a psych ward tonight, I am going to die.
+# The Bug Man
+My son and I moved to a new apartment in Chicago. The apartment is one the 7th floor of an old downtown building. It's quite beautiful in my opinion, i\`ve always dreamt about moving to the big city and living in one of these buildings.
 
-I live in Omaha. Keeping my real name out of this for now, for obvious reasons.
+My wife no so much. She would become deaf to every word I said about the city. In her world the little suburb we grew up in had everything we could ever want. But I don't care anymore. She lost her vote when we divorced.
 
-Up until about three months ago I was broke. Laid off from a data entry job in late 2024, and the market has been garbage since. I was burning through savings in a cheap ground floor duplex in a not great neighborhood, spending six hours a day applying to remote jobs on LinkedIn, ZipRecruiter, Indeed, random Discord servers for remote work.
+It was a messy divorce and I still can't believe I got full custody of shaun. I was sure that I was gonna lose, as I was completely honest to the court about my plans to uproot him and get us both out of town.  But I guess her infidelity sealed the deal before we even entered the courtroom.
 
-Sometime in May I found a listing on an obscure tech forum for a "Spatial Data Cleanser." Company was called Aegis Geographic Solutions. Bare bones website, generic corporate landing page, buzzwords like "hyper granular localized mapping" and "next gen B2B routing API integration." From what I could tell they were a private competitor to Google Maps, building proprietary street view data and selling it to logistics companies and autonomous vehicle startups.
+The divorce drained me and I think it also affected shaun.  Although I\`m not quite sure, as he is really taking it like a champ so far.
 
-$45 dollars an hour. Full-time, fully remote, set your own hours as long as you cleared a node quota every week.
+Shaun is 8 years old, he is a good kid. A little too quiet at times, but he gets along with the other kids and never acts up. He also has decent grades and keeps his room tidy enough. There is nothing more a father could want at this age.
 
-I applied immediately, didn't expect to hear back since I don't have a GIS degree. Next morning I had an email from a generic HR address. No interview, no call. Just an offer letter, a huge NDA, a W9, and a contract. The NDA was intense, basically said I'd be sued into the ground for talking about their software. I had about two hundred dollars in my checking account. I signed everything and sent it back.
+We got to the apartment and shaun was astonished as soon as we entered the building. For a boy from a small suburb, this must have looked like a castle. He ran up the stairs as fast as he could.
 
-Two days later a FedEx guy dropped a heavy black Pelican case on my porch.
+I had a hard time keeping up with him, as I was carrying both out dufflebags up the stairs. I lost him after the second floor and so I just kept on pushing upwards, while my legs were starting to hurt.
 
-Inside was a laptop, thick and heavy, no logo anywhere, felt like military hardware. A mouse with a weird double scroll wheel. A physical security key that looked like a USB drive. And a single laminated sheet.
+After the fourth floor, I started to hear a male voice. I picked up some pace again and was soon at the seventh floor. My son was already there, before him was an old man, wrinkled face, old flannel shirt, flat cap rounded up by this slightly filthy smell. He was talking to my son as I turned the corner. His voice out of breath, not like he was running up the stairs, more like he was on his dying breath.
 
-That laminated sheet was my entire onboarding. I'm typing it out exactly as printed because you need the rules to understand where I am right now:
+"You have to look where you are going, young man! Do you know how long an ambulance would need to get here? Not to meeting all the stairs!"
 
-**AEGIS GEOGRAPHIC SPATIAL DATA QA GUIDELINES**
+  
+He stopped as he saw me.
 
-Welcome to the Aegis team. Your role is vital to ensuring our Pan-Optic StreetView API remains clean, accurate, and free of visual artifacts.
+"Ah, you must be Mr. Blonde (fake name, obviously). I was waiting for you. Is this little rascal your boy?"
 
-You will use the pre-installed Argus Terminal on your company device. Navigate the assigned geographical nodes using the arrow keys, panning 360 degrees to scan imagery captured by our fleet of Aegis vehicles.
+"Yeah, sorry, he is just excited to see his new home", I answered while reaching my hand out to greet him. 
 
-You are looking for Anomalies. When you spot one, press F4 to drop a pin, select the Anomaly Type from the dropdown, and press Submit. The software will automatically blur, stitch, or delete the flagged data.
+He shook my hand. It was like shacking a bag of leaves. Soft and misshapen with some hard bits in the middle.
 
-**STANDARD ANOMALIES**
-1. Unblurred faces or license plates. Our AI catches 98% of these. You are looking for the remaining 2%.
-2. Stitch tears, where the 360 cameras misalign and create broken geometry (ex: a dog cut in half).
-3. Lens flares or smudges from debris on the camera rig.
+I retracted my hand formally and he showed me to our new apartment.
 
-**NON-STANDARD ANOMALIES (CRITICAL)**
-If you encounter any of the following, do NOT apply a standard flag. Press F9 immediately to isolate the node, lock the session, and ping your Supervisor.
+7G, the door was strong and reinforced at the edges, but it looked just like every other door i\`ve seen on the way up. 
 
-Rule A. Timestamp metadata says the imagery was captured at night, but the sky in frame is daylight.
+He opened the door and we had a look inside, living room with enough space for the two of us, small, open kitchen to the right, bathroom to the left, and a hallway leading to our bedrooms behind the kitchen. 
 
-Rule B. A pedestrian completely motionless, looking directly upward at the camera rig, mouth open. Do not zoom in on their face.
+The apartment was nice over all. It even had a bit of furniture, just enough to get us through our first weeks. To single beds in two different rooms, a dining table with two chairs, a kitchen ,with oven, stove and microwave, and small couch with a small table in front. Sadly no TV.
 
-Rule C. The environment suddenly shifts into a grayscale or sepia palette. Severe rendering error. Close your eyes, mute your computer audio, hold Escape for 10 seconds.
+We had a small tour and shaun jumped at the opportunity to get the front bedroom. It had a nearly perfect view of the streets below, if it wasn't for the old fire escape in front of the window. I wasn't too pleased with the idea of giving him the room with the fire escape access, but I wasn't about to argue either, as I was just happy he was adapting so fast. 
 
-Rule D. You pan the camera and see a grey 1998 Ford Taurus following the Aegis vehicle.
+We ended our tour of the small two bedroom apartment about 5 minutes after starting it. The landlord gave me our keys and went about his way. He was a bit odd, but otherwise a nice guy. 
 
-Rule E. Do not look into the reflections of freestanding mirrors, standing water, or unlit residential windows for more than 5 consecutive seconds.
+We spend the rest of the day getting settled in. I got us noodle cups for dinner and we spend our first evening in our new apartment. Joking around about the age of the building and what dark secrets would wait behind every apartment door. 
 
-Rule F. The Aegis camera fleet operates exclusively on public roads. If a node places you inside a building, a private residence, or a subterranean tunnel, flag it as a Level 1 Breech and physically step away from the device for 15 minutes.
+  
+We went to bed at about 9pm and I fell asleep in a matter of seconds. I haven't slept this well in months. Finally a place of our own.
 
-(Yeah. "Breech." Misspelled on the actual laminate. I noticed it the first day and thought it was just a sloppy print job. I think about that typo a lot now.)
+  
+I woke up in the morning and turned towards my phone. 10am...
 
-I laughed reading it at my kitchen table. Figured it was IT humor, or a screening test to see if contractors actually read the docs. I set the laptop up in my spare room, plugged in the security key, booted it.
+I stood up right away and walked over to my son's room. I was a bit worried. I didn't knew why exactly, but leaving him up alone for so long in this big building wasn't sitting right with me. I knocked softly at his bedroom door and put my ear to his door. I heard his voice, but not from inside the room, it was coming from the living room.
 
-Argus Terminal looked like Street View with a much denser HUD. LiDAR depth, coordinates, camera rig temperature, vehicle speed, all of it.
+I walked over and he was sitting on the couch, looking outside the window while talking on his phone.
 
-For two months the job was exactly as boring as it sounds. Log in around 10, podcast on, coffee, click through hundreds of miles of American suburbs. Fixed accordioned cars. Blurred kids playing basketball. Blurred license plates the AI missed. Never saw the day/night mismatch, never saw an open-mouthed pedestrian, never saw the Taurus. Forgot the weird rules existed.
+"No, you don't understand. Its awesome. All the people are so tiny from up here..."
 
-I was clearing eight grand a month before taxes. Paid off my credit card, ordered good takeout, actually felt secure for the first time as an adult. Started saving to break my lease.
+I knew only one person would start to talk him out of this place this early on. 
 
-Then three weeks ago things got weird.
+"Hey champ, can I also talk with mommy?" 
 
-I was clearing a queue in downtown Chicago. Bright sunny day, sidewalks packed, the usual tourists. I grew up there, so it was a nice hit of nostalgia. I was blurring faces at a crosswalk. Clicked forward, image jumped fifteen meters down the street. Panned right.
+I asked him softly.
 
-A man in a business suit standing dead center in the crowd. Everyone around him was slightly motion-blurred from walking. He was in perfect focus, meaning he'd been completely still when the car passed.
+He turned to me, and spoke to the phone:
 
-Head tilted back at ninety degrees. Staring straight up at where the camera rig sits. Mouth open, not a little, jaw stretched down so far the skin at his cheeks looked like it was about to split. A black, empty hole.
+"Hey mommy, dad wants to talk to you"
 
-My stomach flipped. Rule B. I didn't hit F9 right away, don't know why, just hovered the mouse and zoomed in one click.
+He handed the phone over to me.
 
-The second I zoomed, my speakers blasted a high pitched screech, like a dial up modem run through a wood chipper. Argus doesn't have audio. It's a mapping program. I slammed my hands over my ears and hit F9.
+I stoked his head and motioned him to go to his room.
 
-Red border across the screen. Static cut dead. A chat box opened bottom right.
+As soon as I heard his door click, I put the phone to my ear.
 
-Terminal: `Anomaly flagged. Type?`
+"Can you stop ruining things just because they don't go your way"
 
-Me: `Rule B violation. Pedestrian looking up with mouth open.`
+I told my ex-wife firmly.
 
-Long pause. Typing indicator bubbling.
+She answerd:
 
-Supervisor_David: `Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue. Please remember to adhere strictly to all guidelines regarding zooming.`
+"You are making a mistake by putting him in a place like this. Especially because he is so far away from his mother!"
 
-Dropped me onto a dirt road in rural Texas.
+I admit, I got really angry at this point, but I focused myself to stay calm. I was certain she was only waiting for me to slip, so she could call child services on me. 
 
-I told myself it was a rendering bug, the audio spike was my sound card choking on the error. Finished the shift anyway. Needed the money.
+"I\`m not putting him in any danger, he is with me in a beautiful house. I don't know how much you listed the stuff your son said, but he actually likes it here a lot."
 
-Last Tuesday I was on a batch near Centralia, PA, the outskirts where the county roads still cut through the woods. Overcast sky, bare trees, late autumn. Clicked down a two lane blacktop. There was something familiar about it that I couldn't put my finger on.
+She started mumbling some stuff about me being irresponsible and resentful towards her, but I wasn't really listening, my focus wandered towards a small bug on the windowsill. It was a nasty bug, but I don't know what kind. All black and big. Like a dung beetle, but without the horn in the middle. 
 
-Standing on the shoulder, surrounded by dead leaves, was a person in a heavy yellow rain slicker, hood up, no face visible. Alone in the woods, miles from any town.
+"Are you even listening to me?" 
 
-They were holding a massive antique wardrobe mirror upright, mahogany frame, brass casters, gripping the sides and angling it dead at the road. At the camera.
+She asked through to phone. This sentence broke through to me, as it wasn't in the same rhythm her usual mumbling was in.
 
-Rule E. I didn't zoom this time, just looked at the reflection in the normal field of view. It didn't show the road or the camera car behind it. It showed a dark room, warm orange lamp light, the edge of a floral couch, scuffed hardwood.
+"To be honest, no, I wasn't.  Gotta bounce."
 
-An interior living room, reflected in a mirror standing on the shoulder of a rural Pennsylvania highway.
+I hung up, putting the phone on silent before putting it down on the table.
 
-I hit F9.
+The bug made me curious. How did it get in here? I mean, it wasn't impossible that the bug would have been here for some time, as we didn't search the apartment for bugs after moving in, but a bug that size would probably die in days without food. 
 
-Me: `Rule E violation. Freestanding mirror on side of road. Reflection shows interior room.`
+I opened the window and gave the bug the push with the back of my hand. It dropped out the window and flew back inside, straight by my face and into the open kitchen. 
 
-Supervisor_David: `Received. Locking node. Thank you for your diligence. Take a 5 minute break and resume on the next queue.`
+I followed it swiftly, while it landed in one of the noodle cups from yesterday. 
 
-Dropped into a sunny Phoenix neighborhood, coincidentally one I used to live in a few years after college. I closed the laptop for the day, didn't care about my quota, spent the night on my personal phone with a VPN trying to find anything on Aegis Geographic. Tor, forums, everything. There was nothing. No employee LinkedIns, no Glassdoor, no press about a fleet of mapping cars driving the country. A company with that kind of infrastructure and zero digital footprint.
+I took a look inside and there were two more of these bugs inside. I was disgusted by the look and picked the cup up and dumped it in the trash in one quick motion. The bugs were trying to leave, while I tied the trash bag together and sealed them in. 
 
-I almost quit that night. I had my thumb over the HR email, ready to send it back. But I had twelve grand saved because of this job, and honestly a sick curiosity had already gotten its hooks in me. I told myself a few more weeks.
+Without hesitation I took the bag downstairs and dumped it in the dumbster in the ally. The dumpster was directly beneath my window. Well seven floors beneath it, but still direct underneath it. Great trade I thought. My son was getting the street view, while I was getting the dumpster and the brick wall next door. 
 
-Thursday, two days ago, I was in downtown Seattle, another one of my old neighborhoods. Rain, blurred lenses, pedestrians under umbrellas at a crosswalk. Panned left.
+I walked up the stairs while thinking about how great the invention of the elevator was.
 
-The person in the yellow slicker, standing on the corner, perfectly still while everyone else rushed past. Two thousand miles from where I'd seen them in Pennsylvania.
+At the door, I scrambled for my keys, but I couldn't find them. It dawned on me, that I must have left them on the table inside. I knocked on the door and shouted for my son to open. I saw motions at the inside of the peephole. I thought he was about to open the door, when I heard the sound of this bedroom door opening. 
 
-They had the mirror again, facing the camera. Pedestrians walked right past a massive piece of antique furniture sitting on wet pavement like it wasn't there.
+What was that at the other side of the peephole?
 
-I looked at the reflection. Same room. Floral couch, scuffed hardwood, but the lamp was brighter now. And in the corner, on a small end table, a brass diver's helmet lamp.
+I waited for a second while thinking about that. 
 
-I own that lamp. Thrift store find from college. It's sitting on a wooden end table in my actual living room right now, twenty feet from where I was sitting.
+Shaun reached the door and asked: "yeah?"
 
-I spun around in my chair and looked through the doorway into my living room. Same lamp. Same scuffed floor. Same couch, the one I inherited from my grandmother.
+I asked him to open the door for me.
 
-It was my living room.
+He was hesitant and after a moment answered: "I think I can do that."
 
-I hit F9 so hard I think I cracked a nail.
+I was puzzled by that answer, but soon the doorknob turned and the door opened. 
 
-Me: `I need to speak to someone right now. What is this?`
+Shaun was standing there behind the door, while I pushed beside him to see what moved in front of the peephole. I searched the living room and asked him, what was taking him so long to open.
 
-Long pause. The typing bubble sat there for almost a full minute.
+He said "the bugs didn't like what you did" 
 
-Supervisor_David: `Node locked. Please step away from the console for 15 minutes.`
+I stopped searching and turned my head to him. I asked him what he meant by that and he repeated:
 
-Me: `No. The room in the mirror is my apartment. My actual apartment. How?`
+"The bugs didn't like what you did"
 
-Supervisor_David: `Do not look into the reflections of freestanding mirrors. This is Rule E. Please close the terminal and take your mandated break.`
+It was a really weird answer, but on the other hand, I knew that feeling as a kid, when you feel sorry for animals and other things. Nearly turned me vegan at his age.
 
-Me: `Who is the person in the yellow coat?`
+"I know it wasn't nice of me, but this is our apartment and the bugs don't pay rent. Do they?"
 
-The chat disconnected. Argus force closed to the desktop.
+He shook his head. 
 
-I texted my friend Marcus that night. Just "hey are you up, something weird is going on with my job, can I call you." Never got a reply. He's usually online at 1am, he's a night owl, but I figured he was just asleep and I didn't want to spiral about that on top of everything else.
+"See buddy, it's all good."
 
-I didn't sleep Thursday night. Checked every lock, closed every blind, shoved the diver lamp into the back of my closet under a pile of winter coats. Kept expecting to see yellow out the window every time I walked past one.
+He looked at me for a moment and asked:
 
-Friday morning I was a wreck, three cups of coffee just to steady my hands. I knew I was done with the job. I was going to box the Pelican case and take it to FedEx.
+"Can I have my phone back" 
 
-But first I needed to know what Argus was actually connected to. A few weeks back I'd found a shortcut, holding Shift and Control on boot skips the assigned queue and opens a global master map, a grid of the US with green lines showing mapped routes.
+I agreed and he took it to his room.
 
-I booted it, used the shortcut. Zoomed to Nebraska, to Omaha, to my street. Bright green. Mapped. I dropped the little peg man icon right in front of my duplex.
+Still puzzled by the whole situation I started to go about my day. Enough trouble for know. 
 
-Sunny day, full green trees, a neighbor across the street walking their dog. I panned the camera to my building, two story brick quadplex, my windows bottom left.
+The rest of the day went by really fast. We had pizza in the evening. ( I know, A1 dad. Noodle Cups and Pizza)
 
-Blinds wide open in the image. I zoomed in, pushing the resolution as far as it would go, and the camera tech on this thing is disturbingly good, you can read a flyer at fifty yards if you push it hard enough.
+I brought the Cardboard boxes down as soon a we were finished. 
 
-Through my own window I could see the floral couch. The end table. The brass diver lamp, which I know for a fact was in my closet by then, not on the table.
+A cockroach landed on the top box as soon as I opened the entrance door. Normal enough. It's a big city and these things gotta eat as well, I thought. I dropped the box in the dumpster and the cockroach road the box to the ground of the dumpster like Slim Pickens sitting on an Atombomb.
 
-And I could see myself. Standing at my desk, leaning over it, staring straight out the window at the camera car. Mouth hanging open. Eyes wide.
+  
+I closed the lid and got back up. Haven't forgotten my keys this time, I got right in, watched some YouTube on my phone with Shaun and we got to bed soon after. 
 
-Metadata timestamp, top left corner.
+The next morning I woke up early enough. It was time for me to go job searching after all. 
 
-Capture Date: August 1 2026, 23:14:00 EST.
+Shaun was still asleep, so I made some breakfast. PBJ Sandwiches for our lunch, some spam for me and a bowl of cereal for his breakfast. It took me a while to realize, that the cherries I poured were moving. I stood frozen and dropped the box. Maggots all over the bowl.
 
-I checked the clock on my wall. August 1st, 2026. 4:00 PM.
+A moment went by, before I took the bowl and the box and I ran to my room, dropping them from my window onto the dumpster lid. It hid the ground and an echoing noise went through the ally. I closed my window shut, as I feared someone would see me doing stuff like that. I didn't know why I did it, I just had enough of these bugs.
 
-Seven hours in the future. Tonight, 11:14 PM.
+I felt bad about the whole thing and made another PBJ for Shaun, who had woken up by now. Probably from the loud noise in the ally. 
 
-I shoved back from the desk so hard my chair tipped and I hit the floor. Crawled away from the laptop like it was live ordnance. Sat against the hallway wall hyperventilating for I don't know how long.
+We had a brief breakfast and I headed out.  Looking at the dumpster while getting on the sidewalk. The bowl was shattered to pieces and the cereal box lay there like it was planted in a crime scene. Maggots all around. Some alive, some dead.
 
-Around 7:00 PM my personal phone buzzed. Unknown shortcode.
+I walked by it. Not giving it a second look.
 
-AEGIS ALERTS: `Your weekly node quota has not been met. Please log into the Argus Terminal to prevent contract termination.`
+The jump hunt was hard. I walked into some small businesses and asked if they needed a new accountant, as that was all I pretty much knew how to do.
 
-I ignored it. Not going near that laptop.
+I never really learned the job, but I did the books for my In-Laws small mom and pop store since I gratuated high-school, so it was everything I had.
 
-7:30. Buzzed again.
+Some people told me no in a polite way, others just straight up rejected me. Two offered me a job interview in the next two weeks. I accepted, but both seemed kinda spooked when I asked them if we could hurry things up a little. 
 
-AEGIS ALERTS: `Unscheduled route deviation detected. Supervisor David is requesting a live session.`
+Overall I don't think any of them will work out. But it was a start. 
 
-I got up, legs like jelly, walked over and looked at the screen. It had overridden itself. My apartment street view was gone, replaced with a live real time map of the country. A single red dot pulsing on I-80 near Des Moines. Two hours east of me.
+When I got back home, the bowl was still laying there. Everything just as I left it. Box and maggots included.
 
-Scrolling readout underneath:
+I felt bad for what I did and picked the box up. I used a shard of the broken bowl to scoop the maggots up and put them in the box. When all was done, I threw everything in the bin.
 
-`ASSET: AEGIS RIG #44
-STATUS: ACTIVE DRIVING
-DIRECTION: WESTBOUND (I-80)
-DESTINATION: OMAHA NE
-ESTIMATED TIME OF ARRIVAL: 23:14:00`
+Afterwards I haded up, expecting Shaun to question me about my job hunt. 
 
-Same time as the photo. I hit F9.
+I opened the apartment door to him sitting on the couch motionlessly. I asked him what was going on and he said:
 
-Me: `Why is it coming here. Cancel the route. I quit, I resign, I'm unplugging the machine right now.`
+"Why did you do it to them?"
 
-Supervisor_David: `You cannot resign while a localized anomaly is unresolved. You viewed the reflection. You established the tether. Rule E was explicitly clear.`
+I stood frozen. 
 
-Me: `I didn't establish anything, it was a glitch. Call the car off or I am calling the police.`
+"Did what to who?" 
 
-Supervisor_David: `The police cannot intercept Rig 44. It is not currently occupying physical geographic space. It is rendering the route. It is retrieving the anomaly.`
+I asked back.
 
-Me: `What does that mean. What anomaly. I'm not an anomaly.`
+"The bugs in the cereal. Why did you throw them out of the window?"
 
-Supervisor_David: `The discrepancy in the spatial data. The element that does not belong. It is coming to cleanse the node OP.`
+He replied.
 
-He used my real name. Not my contractor ID.
+The fact that he knew I did it was bad enough, but it was made worse by the fact that he seems to care for them so deeply. I thought about a good answer for a moment.
 
-I just put it together. I am sitting here typing this and I feel like I'm going to throw up. Chicago. Phoenix. Seattle. Omaha. And even a random road in Pennsylvania. I just realized why that road in Centralia felt so familiar. I got a flat tire on one of those backroads driving cross-country a few years ago.
+"We talked about this. They don't pay rent, so they don't live in our apartment"
 
-The Aegis car isn't just mapping streets. It's mapping *me*. It's driving through my past. Chicago was my childhood. Phoenix was after college. Seattle was my old neighborhood. Omaha is now. It's driving down my literal timeline and it's erasing me from it. That's what David meant by cleansing the node. I'm the element that doesn't belong.
+He wasn't impressed by my answer.
 
-I ripped the security key out of the USB port, screen went black instantly, shoved the whole thing back in the Pelican case.
+"But why throw them out of the window? You really hurt them"
 
-Spent the next twenty minutes throwing clothes in a duffel bag, decided I'd drive to Kansas City and sit in a motel until I figured this out. Grabbed my keys, opened the front door.
+I said down next to him.
 
-Parked directly behind my car, blocking me in, was a grey 1998 Ford Taurus. Spotless paint, no rust, windows tinted black. Engine off, but I could hear a low mechanical thrum coming from it, not a combustion sound, more like a server rack fan at full speed.
+"I know, i\`m sorry. Its just, that they spooked me so badly"
 
-Rule D.
+He seemed to take this answer a little better. 
 
-I dropped the bag on the porch, backed inside, deadbolt, chain, every blind pulled shut.
+He hugged me and I asked him about his day. A couple of stories about his adventures in the castle later, we talked about diner. 
 
-That's where I am now. I have my personal laptop open on the kitchen island writing this. If someone finds this post or finds my laptop, you need to know about Aegis Geographic.
+I told him that I wasn't going to buy unsealed foods for a while, because I didn't want to risk hurting any more of his crawling friends. He took that quiet well.
 
-I couldn't sit with not knowing so a few minutes ago I plugged the Aegis laptop back in just to check the tracker. It bypassed the login screen on its own.
+After a moment of debating, I went and got us some cans of tomato soup for diner. We ate and went to bed soon after.
 
-The map is gone. It's just a live first person video feed. Pitch black, sound of tires on asphalt, wind past a mic. Moving fast. Bottom right corner, an ETA ticking down.
+My eyes felt heavy and started to close, when I look at my door for the last time. A small silhouette was standing in my open door. Surrounded by blackness the silhouette was clearly looking at me. I pushed myself up and hit the light switch. It was shaun, standing there with his teddy in his arms. He looked at me, as I asked him what's wrong.
 
-ETA: 02:41:12
+"The bug man doesn't like your new rule."
 
-A few minutes ago the headlights flicked on for a half second. Lit up a highway sign. Welcome to Nebraska.
+"The bug man?", I asked, audibly worried. 
 
-Standing on the shoulder in the flash of light was the person in the yellow slicker. No mirror this time.
+"He doesn't like it when you seal away the food", he replied.
 
-They were pointing straight down the highway. West. Toward Omaha.
+I tried to play it off, while a bit of fear started to climb up my spine.
 
-I don't know what to do. Can't leave because of the Taurus. I have a baseball bat and a kitchen knife and I'm going to sit in the hallway away from every window. I am not going to look outside like I did in that photo. I'm changing the future. I have to.
+"Well he should buy his own food then." 
 
-If anyone knows what Aegis Geographic actually is, or what the Pan-Optic StreetView API is really mapping, tell me in the comments, I'll be checking on my phone.
+"He can't", Shaun answered before turning around and leaving my room.
 
-ETA: 01:28:00
+I was sitting there frozen. After a minute or two of deciding what to do, I decided I was best to go back to sleep. Maybe I thought the whole thing was over by tomorrow, maybe I just wanted to sleep, but that was what I did that moment.
 
-It's moving faster than a car should be able to move.
+I closed the door and went back to sleep. Father of the year at it again.
 
-I have to go. I'll update if I make it through the night.
+I woke up the next morning, got up, 3 PBJs and a grilled spam sandwich for the one and a half men in the house and went about my day. I didn't talk to shaun in the morning, as he was still sleeping when I took a peek inside his room.
 
-**Edit:** A car door just slammed outside....
+Walking down the streets, as I enternd ever store I came across was exhausting. But I didn't give up. "It's for the both of us" , I told myself every time the thought of quitting entered my mind. 
 
-**Edit 2:** The fan noise from the Taurus got louder. Vibrating the floorboards. Something's on my porch steps. Posting this now, I'll update when I can.
+I ate my grilled spam sandwich on a bench near millennium park and walked around for another hour or two, before heading home. I got inside and greeted Shaun, he was cheerful, which took my mind off of everything that had happened the last days. We talked about the Minecraft world he build on his phone and the different people he saw walking around downstairs. 
 
-**Edit 3:** I can't post the second part here. Every time I try, the connection drops or the text just vanishes. My digital footprint is being wiped. The only place the text would actually save without deleting itself for now is directly on my personal profile. [You can read Part 2 here.](https://www.reddit.com/user/nocturn-e/comments/1vehngn/i_took_a_remote_job_clicking_through_a_private/)
+I asked him if he saw them from the window and he said, that he got out on the fire escape. I got angry at him and told him, that he wasn't allowed to go there. Even though I never specifically stated this rule, I thought he was well behaved enough not to go there. 
+
+He started to cry a little and went to his room. I felt like shit. My ex-wife called me a couple of minutes later, because Shaun told her what happened. We had a long talk and I admitted to everything and expressed how sorry I was. I didn't want to show weakness in front of the woman who hurt me so badly, but I also felt true remorse. I never shouted at Shaun. It's not that I was one of those parents that thinks you should never scream at a kid, it's more that he never gave me a reason to shout. After a while the phone call got a bit more emotional and we talked in a way we haven't talked for years. 
+
+We agreed that I should apologize to him and tell him that I only shouted, because I was afraid for his well being. 
+
+We hung up and I walked over to his room. I knocked and opened the door. 
+
+Shaun wasn't in his room. I look around and he was no where to be seen. I panicked and looked over to the window. It was open. I walked over and looked around. Shaun was sitting there, just a couple of steps downstairs, with a plate in his hand. I told him to get inside. 
+
+I tried to stay calm, but I gotta admit, I lost it again. 
+
+He got inside and I tried to talk to him. It was a mixture of apologies, explanations and building boundaries. He sat there, not saying one word. I waited for a response, but he wouldn't talk to me. I looked at the plate and saw what's left of an PBJ sandwich. There wasn't much left, but what was left was full of cockroaches and maggots. 
+
+I looked at him, my face filled with a mixture of anger, disbelieve and fear.
+
+"Are you feeding the god damn bugs???"
+
+He looked at me.
+
+"Yes, the bug man said, that he would leave you alone if I fed them" 
+
+I was standing there in shock. I didn't knew what to do, so I grabbed the plate and went out. On my way I told him to never do anything like this again, and that we would talk tomorrow. 
+
+I slammed the door by accident, walked over to the kitchen and put the sandwich in the trash, tying the bag up as soon as the bread hit the ground. I sat on the couch for hours, trying to figure out what was going on. 
+
+After some time, I fell asleep. 
+
+Waking up in the middle of the night, I felt a cool breeze coming over me. I looked around and realized that I fell asleep on the couch. The window was open. I couldn't remember opening it, but I didn't question it either. I got up, walked over and closed it. 
+
+While walking towards my bedroom, Ive heard Shaun talking in his room. He sounded apologetic and frighten. 
+
+I opened his door without warning, and I saw him sitting beside the window. He was afraid. I told him to get away from there and asked him what was going on.
+
+He told me: "the bug man is angry with us" 
+
+I asked him what he meant, but he couldn't get a single word out. Filled with fear, he was just looking at me. 
+
+I closed the window and took him to my room. I wasn't angry with him, I was just worried. I told him, that the bug man wasn't real, and that he could talk to me, if something bothers him. I also told him, that it was natural for him to be confused. There was a lot going on in his life and no one expects him to be emotionless about the whole situation. He calmed down a little and we slept together in my bed that night. In the morning I got up and made breakfast. Shaun clearly noticed me getting up, as he was in the kitchen mere minutes after me. I made 3 PBJs and a grilled spam sandwich as always and we sat down to eat. I told him that the second sandwich was for him alone and no bug man had the right to take it from him. We shared an awkward laugh as I packed my grilled spam sandwich and I got outside. I headed down the roads and looked for stores yet again. My spine was still shivering from last night, but I still tried to pull through. The conversations with the store owners were worse than before. I can't blame them. I looked sleep deprived and miserable. I didn't even make it to lunch, when I finally called it quits and headed home for the day.
+
+When I got around the corner to the apartment building, I looked up to see Shaun. He sat on the fire escape yet again. He was laying on the grid of the platform. I started to sprint towards the door. Running up the stairs like my life depended on it. 
+
+When ich reached the seventh floor I opened the door of 7G in one swift motion and ran towards Shauns room, not even closing the apartment door behind me. Shaun was still laying on the fire escape. 
+
+"Shaun, get in here. Now!"
+
+I screamed at the top of my lung. 
+
+"No dad, you don't understand", he answered whimpering, 
+
+"What do you mean", I asked him, while I reached out to him.
+
+He finally looked at me and answered: "the bug man is really mad with us..."
+
+I looked at him: "What do you mean?"
+
+He starred at me and said: "He told me, that if I don't want to help him, I might as well jump."
+
+I looked at him shocked, but I still managed to reach out and pull him into the apartment, closing the window behind him. 
+
+I told him that he would never do something like this, or listen to this bug man ever again. I told him, that we would switch rooms from now on. 
+
+It wasn't my goal to punish him, but I couldn't give him any access to this window again. I brought him to the living room and talked some sense into him. Afterwards we both headed out to get some fresh air and a hot dog. 
+
+When we got back, he nearly went to his old room, but was reminded about our new arrangement, when he realized his door was locked. 
+
+He looked at me like he got the hint, turned around and entered his new room. I stayed in the kitchen for a while and watched some Netflix on my phone. After an hour or so, I looked inside my old room. I gotta admit, I was expecting everything from pentagrams to a full on exorcism going on in there, but I just found Shaun sleeping in the bed. 
+
+Relieved I closed the door and unlocked the door to my new room.
+
+The window was open. I didn't realize it at the time, but in hindsight I knew I closed it. Not thinking to much of it, it closed it again and locked the door. I got to bed and fell asleep in my new bed.
+
+Hours later I woke up to a cold breeze filling the air. The window was open again.
+
+I went to close it again, but this time it hit me, that I definitely closed it before. I looked at the windowsill and sow these black bugs crawling all over it. I took a step back and looked at the window again. The bugs weren't crawling aimlessly, they were headed in my direction.
+
+I should have been afraid at this point, but they were just simple bugs. No fangs, no stingers, just bugs. That's when I realized, that they are all crawling a single line with me at the end. If I´m at the end, what's at the beginning? I took a deep breath and climbed through the bug infested window. I looked around and saw the bugs crawling up the wall from two floors beneath me. I felt my heart beating in my chest as I walked down the fire escape stairs. Sometime I felt the cold grid of the fire escape beneath my feet, sometimes I felt a soft shell breaking, oozing with warm gruel, I wasn't looking down. Not because im afraid of heights, but because the breaking of soft shells, combined with a quiet cracking noise, was getting more frequent by the step. The only thing that kept me going was getting to the bottom of all of this. For Shaun.
+
+The stench of whatever was waiting at the end of those stairs hit me. It smelled like someone soiled his pants and tried to hide it underneath a sack of old newspaper.
+
+I reached the sixth floor and peeked through the window. A young woman was sleeping in her bed. I didn’t give her too much attention and continued my way downwards. The cracking of beetle shells continued beneath my feet, while I felt some of them making their way up my legs. 
+
+Soon I reached the source of their journey. The window on the fifth floor. 
+
+It was open and I didn’t hesitate to make my way into the room.
+
+The bedroom was empty. I looked around for a bit, but there was nothing that caught my attention, except for the trail of small bugs making their way across the room.
+
+I followed them outside the bedroom door and into the hallway. The bedroom door on the other side of the hallway was slightly open, enough so I could take a quick peek inside, but it was empty as well. I focused on the bugs again and followed their trail. The hallway and living room were filled with flies. The walls, ceiling, and air was filled with flies. 
+
+This was the end of the line, I knew it. I tried to step as lightly as possible, because I didn’t know what to expect. One step after another, until I reached the living room. It was empty as well and the kitchen look abandoned. Except for one thing. One piece of furniture stood out. The armchair by the window. I took a close look at it. It was definitely the source of the trail.
+
+I walked towards it, step by step. Looking back on it, I don’t know why I still wanted to get closer to this chair, but I did. 
+
+Walking over to it, I put my hand on the backrest and pulled the chair towards me. 
+
+It was my Landlord. He still looked as dead, as the day I met him. But this time he was really dead. Bugs crawling out of his mouth, his eyes so clear you could practically see through them. And then there was the stench. It was unbearable at this distance. The constant struggle between running and puking hit me fast and I barely made it outside the aparment door. 
+
+
+
+The next couple of hours went by in a haste. I can’t remember everything, so I try to recall the situation by looking at the police report. 
+
+
+
+
+
+The police report said, that my landlord had suffocated the day we moved in. It couldn’t have been more than a couple of hours after our conversation. Maybe just minutes.
+
+They said he had fly eggs in his lungs. By now it must have been maggots. I can’t imagine what he must have been through. But I can’t say I was surprised, the way he looked when I first met him. 
+
+It looks like the police arrived at 1:17 am. That’s when they started to question me. Another round of questioning at 1:54 am. Of course they forced me to wake up shaun, so they could get his side of the story. This was at about 2:11 am. I was furious that they wanted to get my son into the whole situation, as I didn’t want him to suffer through the trauma of his neighbor dying after everything that happened, but what was I supposed to do. Fight the cops in front of my son? 
+
+He told them that he has heard his landlords voice from the fire exit the last couple of nights. Strangely, he never told me as much. But he probably named the landlord „Bug Man“ as he never got his real name. He also didn’t tell the police about the bugs talking to him. Which was for the better in my opinion. 
+
+
+
+He messaged his mom in the middle of the questioning, which I didn’t realize until about 4:21 am, when his mom showed up. How do I know this? 
+
+Because the police report was really specific about the vocabulary both me and my wife used towards each other. 
+
+
+
+At about 5:35 am she took him with her. 
+
+
+
+It’s now 11:17 pm and I’m finally laying in my new bed. Im writing all of this, so someone else can try and make some sense out of it.
+
+I should have been mad, because this will definitely turn things upside down in our custody battle. But you know what. I’m not angry.
+
+Actually I’m glad. glad my son is out of this house. In the arm of his caring mother.
+
+I still don’t know the reason for all the bugs in this building and what happened to my landlord, but as the bugs start to crawl up my legs I know, that I will soon find out.
