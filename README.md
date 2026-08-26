@@ -1,22 +1,105 @@
-# My joints are cracking and they just won't stop
-My life’s been really stressful lately. I do R&D at a… Well, let’s just say it’s a pharmaceutical company, what they make isn't really relevant. I do a lot of drug testing, and sometimes things go well, but usually they don't. And when they don’t, the people above me start getting antsy, they start asking me questions, start slapping me with deadlines as if that’s going to magically make things better. They take away my break time, they have people watch me work to make sure I’m not making any mistakes, they limit my bathroom trips to five minutes max before they start deducting my pay. So, that’s how things have been. Lots of work, no progress. And as most people do when they’re under a lot of pressure, I developed a bit of a nervous tic, I started cracking my knuckles.
+# I kept hearing a heartbeat, and it wasn't mine
+It all started on a night like any other. An uneventful Saturday evening watching movies, a few cold beers to keep me company. It was no surprise then, that I woke at 2am with a full bladder. This was the first time I heard the noise.
 
-Historically I haven't been much of a cracker, I just sort of started doing it one day at work, it felt almost… therapeutic. Scientifically speaking it’s not harmful or anything, so I didn't give it much thought. I mean, some people chew their hair when they're under stress, and then they end up either throwing up a hairball or dying due to sepsis when their intestines become totally clogged with hair. Anyway, what I’m saying is that I didn't do anything to curtail the knuckle cracking, so it very quickly became something of a compulsion for me. I was cracking at work, I was cracking during meetings, I was cracking on the damn toilet. And look, we could get into the psychology of what drives people to do these things, but that’s not really the problem here. No, the problem was what came later.
 
-It had been a couple of weeks, I think, since I’d acquired the tic. Without warning, my knuckles began to crack on their own. For example, I would grab a coffee mug, and as I did I would hear that distinct popping sound, feel something shift in my fingers. At first, I wasn't really worried. As you get older, all sorts of strange things happen to your body. Then it began to spread, like a disease. I could feel a clear… stiffening in my joints any time I sat down for a while or laid in bed. And when I got up, said movement would be accompanied by a series of audible cracks from my shoulders, my knees, my back. As if work wasn't bad enough, I began to worry that I was developing some sort of early-onset arthritis. But there was no pain, and when I visited the doctor they couldn't find anything wrong with my body.
 
-With time, the cracking and the clicking became more frequent. My coworkers began to take notice. I’d walk into the lab in the morning, creaking like the Tin Man, and be met with these strange looks of fear and confusion, like Europeans that had just learned about air conditioning. “What the hell was that noise?” they would say, and all I could do was try to laugh it off. The higher ups were the ones I had to be careful around. During meetings, I tried my best not to move a single muscle, else I might draw the gaze of Sauron. I was, after all, still on thin ice. But, as often happens, I was ratted out by my own. I was a distraction to others, HR said, and by putting me on temporary leave they were just giving me time to sort things out in my personal life.
+A rhythmic thumping, maybe a few streets away. Music, I assumed, from a party running late. I stumbled to the bathroom, relieved myself, and headed back to bed. As I lay down, drifting back to sleep, I noticed the sound had stopped. I assumed someone had complained. I smiled, and fell back into a dreamless sleep within seconds.
 
-With that, I suddenly had a lot of free time on my hands. Time to think. Time to worry. What I was going through, of course, was far from normal. I couldn't even walk into a grocery store and buy a carton of eggs without drawing stares. Children and small animals feared me. I visited the doctor again, but they were totally puzzled. I went through all their tests, all their scans, but in the end all they could do was shrug their shoulders and tell me to get more fiber. Even my friends seemed uncomfortable when I was around. I began to go out less and less, all the while afraid that a day might come when the cracking turns to breaking and my joints simply cease to function.
 
-The days in my apartment felt like torture. It was that sound, that horrible creaking, every time I so much as moved a muscle. I couldn't escape it, and now that I was alone it was hard to just laugh it off. Plugging my ears did nothing since the sound came from within, like one’s own heartbeat. Instead, I tried to drown it out with noise, specifically harsh noise via the works of the musical visionary Masami Akita. Of course, that didn’t work when I was trying to sleep. Once I’d found a comfortable position I would try my best not to move out of it, but even then I’d often wake up to a loud cracking, look at the clock, and realize that it was two in the morning. My quality of sleep was poor, to say the least.
 
-Eventually it reached the point where I was only sleeping, well, maybe two or three hours per night. The cracking woke me up, the lack of sleep made me more sensitive to the cracking, the cracking woke me up more often than before, and so it created this feedback loop that seemed like it could only end in disaster. As a person who works with pharmaceuticals I knew that trying to medicate myself into a good night’s sleep was a terrible idea. Instead, I decided, I would tire myself out through exercise.
+I awoke the next night around the same time, a little after 2am. Something startled me, but I wasn't sure what. A bad dream, perhaps? If so, any memory of it was already lost. I slowed my breathing and rolled around to get comfortable again. That's when I heard it.
 
-There's a lake near my apartment, and at night the place is totally deserted. That seemed like a good place to go. And go I went, each night out to that lake. I ran and I ran, around and around until I felt like I was going to pass out. When I got back to my apartment, sometimes I would just collapse on the floor then and there, but what mattered was that I slept soundly and without interruption. With each passing day I could feel my sanity returning, and the creaking of my joints bothered me just a bit less than the day before. In fact, I soon came to a certain realization. The cracking and the popping, there was something… beautiful about it. Maybe it was because the acoustics were better out near that lake, being all open and shit, but each of my joints made a slightly different sound. The pitch, the timbre of the joint at my left elbow was not the same as that of my left shoulder, and neither of these was identical to that of my right hip. And together, with all of my joints working with their comrades, they formed a symphony. The simple act of walking - no, my very existence - was musical.
 
-That realization marked the end of my self-imposed exile. Even if others stared, it didn’t really bother me. They simply didn’t understand, is what I told myself. Some forms of music are an acquired taste. And as I’ve explored the melodies my body can produce, I’ve found a new appreciation for the small things. Putting on a pair of pants, opening a door, walking up stairs, movements that would mean nothing to the average person all carry with them a unique tune, a unique texture that I now find myself looking forward to hearing every single time. Getting into bed and trying to find a comfortable position, an act that nearly drove me insane a month ago, now sounds to my ears as though it were a lullaby.
 
-Only, there’s one other thing. I noticed it the night before last, as I was lying in bed. I was wiggling around, of course. Once I’d found the right position I closed my eyes and began to drift away. And yet, in that silence, I heard something far, far away. A familiar sound, the sound of cracking and creaking, a melody not unlike the one I’d produced moments ago. It continued for a few seconds, then stopped. I was curious, to say the least. Maybe I was imagining things. So, I shifted around some more. And, as if in response, I heard that sound again, so distant yet so…  focused? Directed? Whatever it was, it was clearly aimed at me. The exchange continued for a while after that, and as it did I could feel my stomach sinking lower and lower. At last I laid still, but that sound, whatever it was, repeated a few times before seeming to give up.
+The same rhythmic thumping, almost like a heartbeat. I grumbled at the thought of some selfish asshole throwing a party on a Sunday night. I had work tomorrow, and didn't appreciate being woken up. But surely someone will complain soon, the sound will stop, and I'll be back asleep before I know it. But as I lay there, growing impatient, unable to focus on anything but the sound, I noticed something.
 
-I got a call yesterday from my employer, they said they hoped I’d used my time well and that they were ready to give me another “chance”. I wasn’t really paying attention. The sounds that I’d heard the night before - not from me, but from whatever else was out there - that was all I could really think about. The day, though, it’s far too noisy. People, cars, birds. All I could do was wait. And as soon as night fell and all became silent, I leapt into bed and waited. Sure enough, in response to my own creaking there was a creaking from somewhere distant. Except, it wasn’t quite as distant as it had been the night before, that much I’m sure of. And so, as I tried to sleep, my mind was left to race. The noises that are coming out of my body - the pitches, the patterns - perhaps they’re some kind of signal. Or maybe they make up a language, something impossible for you or me to truly understand. If that’s the case, then, what am I saying, and to whom? The very thought is enough to paralyze me with fear. But maybe that’s for the better, as long as I’m not moving.
+
+
+The whole time, the sound hadn't changed. I looked over at the clock. I had been awake for over 15 minutes. Either this was one very long music track, or I was hearing something else entirely. My mind started wandering, entertaining all sorts of crazy ideas about what this sound could be.
+
+
+
+And then in that moment, almost as if someone, or something, had heard my thoughts, the sound stopped. I waited in the silence, expecting its return. Sleep arrived first.
+
+
+
+By night three I was exhausted. Two nights of interrupted sleep were reminding me how distant my youth was. I went to bed early, hoping for a full night of rest. You can only imagine my fury, then, when I awoke at 1am.
+
+
+
+It was back again, that dreadful thumping. But it sounded closer tonight, as if maybe it was in the next street.
+
+
+
+Curiosity dragged my feet away from the warm blankets and onto the cold floor. I shuffled toward the curtains to peer outside. A light fog hung from the street lights, painting an unsettling view. I let out a long sigh - a mixture of both fatigue and frustration. I was just about to return to my bed when something caught my eye. Movement.
+
+
+
+My heart raced as my breathing halted. There was a figure walking down the middle of the road.
+
+
+
+I squinted my tired eyes. It was a woman. Her feet dragged as she shuffled sleepily along the road. I considered going out to see if she was okay, but by the time I mentally walked through the effort of finding the appropriate clothes and shoes to go outside, she had disappeared into the foggy darkness that existed beyond my view.
+
+
+
+I dismissed any illogical thoughts, returned to bed, and slept better than I had in days.
+
+
+
+After two nights of peace, I had almost convinced myself the heartbeat was something I had imagined. That it was some creation from a dream so deep that my mind believed it was real. I was quickly proved wrong on two counts.
+
+  
+First, I started seeing posters around town asking for information about a woman who had gone missing. Looking at the poster, I recognised her immediately. It may have been dark and foggy, but I had no doubt - this was the woman I had seen shuffling down the road in the middle of the night.
+
+
+
+But I couldn't answer the poster. How would I explain that? I couldn't even explain it to myself, and I had been there. I wondered - was I the last person to see her alive? The thought was concerning. But even more concerning is the second count: that night the heartbeat came back.
+
+
+
+Fear had robbed me of my sleep. I spent the whole night sitting up listening to the sound. Had it really taken that woman? If so, was she dead? As the morning sun crept over the horizon, the heartbeat slowly faded. Forgetting about any normal life that I once had, I slept through the day.
+
+
+
+When I woke up it was already late afternoon. I wasted a few hours waiting for the cover of darkness to bring the sound back to me. It was almost midnight when I noticed it. A cold chill ran down my spine, and I stood frozen for several hours. Listening. Waiting.
+
+
+
+It was calling to me. Whispers woven into the constant thumping. Unable to make out what they were saying, I stepped outside. If I could get closer, I'd know what they were saying.
+
+
+
+The cold night air latched onto my skin, causing my muscles to tense as I shivered. But I was unable to focus on anything but the sound. It was much louder out here. Stepping off the porch, I turned to face the end of the street. There it was. Calling through the soft fog.
+
+
+
+My feet carried me forward. As I moved closer, it started to come into view. It's hard to explain what I saw. Even now, I'm struggling to find the right words.
+
+
+
+It was as captivating as it was frightening. I can only describe it as a floating mass of light and static. The most terrible thunderstorm, condensed into something no bigger than an exercise ball.
+
+
+
+Pulsing. Flashing. Glitching. The sound was almost deafening now. So loud. So complex.
+
+
+
+The whispers had been replaced by sounds unlike those ever heard. But there was a kindness to them. An invitation.
+
+
+
+My hand reached out…
+
+
+
+I don't remember much else from that point.
+
+
+
+I reached toward light and found nothing but darkness. I don't know how much time has passed. I don't even know where I am, or how I'm writing this.
+
+
+
+But if you hear the heartbeat - run.
