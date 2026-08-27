@@ -1,105 +1,246 @@
-# I kept hearing a heartbeat, and it wasn't mine
-It all started on a night like any other. An uneventful Saturday evening watching movies, a few cold beers to keep me company. It was no surprise then, that I woke at 2am with a full bladder. This was the first time I heard the noise.
+# I work at a 24-hour laundromat, but after tonight, I think I'm quitting.
+It started like any other night. I was greeted by rows of identical washers and dryers sitting under buzzing fluorescent lights. The entire place was monotone with remnants of neon signage.
 
 
 
-A rhythmic thumping, maybe a few streets away. Music, I assumed, from a party running late. I stumbled to the bathroom, relieved myself, and headed back to bed. As I lay down, drifting back to sleep, I noticed the sound had stopped. I assumed someone had complained. I smiled, and fell back into a dreamless sleep within seconds.
+I spend most of my time in the dark, cramped back office scrolling on my phone, doing whatever. No hard rules, as long as I glance at the security monitor on the tiny metal desk every now and again and keep the place clean.
 
 
 
-I awoke the next night around the same time, a little after 2am. Something startled me, but I wasn't sure what. A bad dream, perhaps? If so, any memory of it was already lost. I slowed my breathing and rolled around to get comfortable again. That's when I heard it.
+The weird shit started around 2:00 AM when one of the regulars, I’ll call her Barb, came in. I was sitting in the office, watching her on the screen, when she beelined it to the change machine. I watched her feed a bill in, and it spat it right out. 
 
 
 
-The same rhythmic thumping, almost like a heartbeat. I grumbled at the thought of some selfish asshole throwing a party on a Sunday night. I had work tomorrow, and didn't appreciate being woken up. But surely someone will complain soon, the sound will stop, and I'll be back asleep before I know it. But as I lay there, growing impatient, unable to focus on anything but the sound, I noticed something.
+She lost it immediately. Literally went berserk, hitting the machine. She even kicked it a couple of times. I was listening intently, waiting for the inevitable profanities to come through the paper-thin drywall, but they didn’t.
 
 
 
-The whole time, the sound hadn't changed. I looked over at the clock. I had been awake for over 15 minutes. Either this was one very long music track, or I was hearing something else entirely. My mind started wandering, entertaining all sorts of crazy ideas about what this sound could be.
+I actually didn’t hear anything. No metallic thud when her foot met the machine. No clanging of the change inside when she rocked it. Just the hum of the CRT screen.
 
 
 
-And then in that moment, almost as if someone, or something, had heard my thoughts, the sound stopped. I waited in the silence, expecting its return. Sleep arrived first.
+So, I went out to the lobby to tell her to knock it off, that I’d fix it. I scanned the space. Nothing but the low drone of the fluorescent lights and thrum of a dryer somewhere.
 
 
 
-By night three I was exhausted. Two nights of interrupted sleep were reminding me how distant my youth was. I went to bed early, hoping for a full night of rest. You can only imagine my fury, then, when I awoke at 1am.
+I headed to the change machine, and when I rounded the corner, Barb wasn’t there.
 
 
 
-It was back again, that dreadful thumping. But it sounded closer tonight, as if maybe it was in the next street.
+The rows of machines looked unnaturally long. Like they were stretching into an abyss where the lights seemed dimmer the farther I looked. 
 
 
 
-Curiosity dragged my feet away from the warm blankets and onto the cold floor. I shuffled toward the curtains to peer outside. A light fog hung from the street lights, painting an unsettling view. I let out a long sigh - a mixture of both fatigue and frustration. I was just about to return to my bed when something caught my eye. Movement.
+"Very funny, Barb, you can come out now." I was convinced she was messing with me, which, if you knew Barb, was very much in the realm of possibilities. 
 
 
 
-My heart raced as my breathing halted. There was a figure walking down the middle of the road.
+No answer. I shook my head. Rubbed my eyes. I walked over to the restroom. "Barb?" I squeaked. I knocked on the door, and it creaked open -- nothing but a flickering bulb over the stained sink.
 
 
 
-I squinted my tired eyes. It was a woman. Her feet dragged as she shuffled sleepily along the road. I considered going out to see if she was okay, but by the time I mentally walked through the effort of finding the appropriate clothes and shoes to go outside, she had disappeared into the foggy darkness that existed beyond my view.
+I turned around, and just then, Barb walked through the front door. She beelined it to the change machine and began hitting it. She even kicked it. She matched every single thing I just saw on the monitor minutes before.
 
 
 
-I dismissed any illogical thoughts, returned to bed, and slept better than I had in days.
+I felt the room spin. Barb just looked at me. Asked if I was going to keep standing there like an idiot or help her. I don’t know what I replied, probably just gibberish.
 
 
 
-After two nights of peace, I had almost convinced myself the heartbeat was something I had imagined. That it was some creation from a dream so deep that my mind believed it was real. I was quickly proved wrong on two counts.
+I went back to the office. Took a big swig of water. Splashed some on my face. My heart was pounding out of my chest.
 
-  
-First, I started seeing posters around town asking for information about a woman who had gone missing. Looking at the poster, I recognised her immediately. It may have been dark and foggy, but I had no doubt - this was the woman I had seen shuffling down the road in the middle of the night.
 
 
+A bit later, another customer, I'll call him John, came in through the front door on my monitor.
 
-But I couldn't answer the poster. How would I explain that? I couldn't even explain it to myself, and I had been there. I wondered - was I the last person to see her alive? The thought was concerning. But even more concerning is the second count: that night the heartbeat came back.
 
 
+I watched his lips move, but there was no sound. I scrambled to my feet and bolted into the lobby faster than a bat out of hell.
 
-Fear had robbed me of my sleep. I spent the whole night sitting up listening to the sound. Had it really taken that woman? If so, was she dead? As the morning sun crept over the horizon, the heartbeat slowly faded. Forgetting about any normal life that I once had, I slept through the day.
 
 
+And it was empty. Nothing but the thrum of a dryer that was getting louder, and the lights somehow more offensive.
 
-When I woke up it was already late afternoon. I wasted a few hours waiting for the cover of darkness to bring the sound back to me. It was almost midnight when I noticed it. A cold chill ran down my spine, and I stood frozen for several hours. Listening. Waiting.
 
 
+I ran to the front windows, which seemed to take longer than usual. Outside, the parking lot lights flickered and were more distant than before.
 
-It was calling to me. Whispers woven into the constant thumping. Unable to make out what they were saying, I stepped outside. If I could get closer, I'd know what they were saying.
 
 
+I busied myself with the change machine, and then, like clockwork, John actually came in. He was whistling a happy tune. 
 
-The cold night air latched onto my skin, causing my muscles to tense as I shivered. But I was unable to focus on anything but the sound. It was much louder out here. Stepping off the porch, I turned to face the end of the street. There it was. Calling through the soft fog.
 
 
+After a brief hello, I ran back to the office and pulled out my phone: 2:10 AM. Then I looked at the timestamp flickering in the bottom corner of the security monitor: 2:20 AM.
 
-My feet carried me forward. As I moved closer, it started to come into view. It's hard to explain what I saw. Even now, I'm struggling to find the right words.
 
 
+Was I in some weird time space continuum? Only one way to find out. 
 
-It was as captivating as it was frightening. I can only describe it as a floating mass of light and static. The most terrible thunderstorm, condensed into something no bigger than an exercise ball.
 
 
+My eyes were glued to the screen when I saw a pool of soapy water spontaneously leak from under a washer. I grabbed a mop, raced into the lobby, and lo and behold, the floor was dry. So I posted up and waited.
 
-Pulsing. Flashing. Glitching. The sound was almost deafening now. So loud. So complex.
 
 
+John walked by. Gave me an extremely puzzled look as I proudly stood there with a mop and no water in sight. And then, it happened. The washer made a choking sound, and soapy water sputtered out from underneath.
 
-The whispers had been replaced by sounds unlike those ever heard. But there was a kindness to them. An invitation.
 
 
+I cheesed so hard. I felt like God and did a few more "tests."
 
-My hand reached out…
 
 
+Fast forward to a little after 3:00 AM. I was back in the office, eyes bloodshot by this point, when I saw movement on the monitor.
 
-I don't remember much else from that point.
 
 
+A figure standing at the far end of the lobby, their back turned to the camera. 
 
-I reached toward light and found nothing but darkness. I don't know how much time has passed. I don't even know where I am, or how I'm writing this.
 
 
+Same messy bun as me. Same hoodie as me.
 
-But if you hear the heartbeat - run.
+
+
+**It was me.**
+
+
+
+I leaned so close to the monitor that I could feel the static on my forehead. On the screen, Future Me whipped her head around and skittishly scurried out of the frame.
+
+
+
+I bolted out into the lobby. It was empty. But the rhythmic thrum of the dryer was growing louder, echoing through the never-ending rows of machines.
+
+
+
+I deadbolted the entrance and turned off the "Open" sign.
+
+
+
+When I got back to the office, Future Me was running past the washers on the monitor, constantly looking over her shoulder at something, and sprinting directly toward the front door.
+
+
+
+About ten minutes later, I was running toward the front door, constantly looking over my shoulder. And I was painfully aware that "*I"* had just done this. But I couldn’t stop.
+
+
+
+I got to the door. Still locked. I turned around, and now one of the dryer doors was hanging wide open.
+
+
+
+Back in the office, I checked my phone: 3:10 AM. The monitor: 3:15 AM.
+
+
+
+The gap was closing.
+
+
+
+I watched Future Me race back onto the monitor. She climbed on top of that open dryer. She just sat there, her legs dangling like a little kid, staring directly at the security camera. 
+
+
+
+Staring directly at me.
+
+
+
+That’s when I screamed at the screen, "What are you looking at!?"
+
+
+
+Future Me jumped down, slammed the dryer door shut, huffed her breath onto the glass, and frantically dragged her finger over the condensation before sprinting away.
+
+
+
+Minutes later, I found myself racing to that aisle. The fluorescent lights hummed louder. The thrum of a dryer was now more like a thud, pulsing, slower, more deliberate.
+
+
+
+The dryer door was wide open. I climbed up, sat on the dryer, and stared directly at the camera. 
+
+
+
+But nothing happened.
+
+
+
+I hopped off and lost my footing, and my shoulder slammed the dryer door shut. I instinctively huffed on the glass and dragged my finger over the condensation.
+
+
+
+I wrote the word: *RUN*
+
+
+
+And boy did I. I ran so fucking fast into the office and slammed the door. I stared at the monitor. I pulled out my phone. My hands were shaking so bad, I could barely see the screen as I started typing.
+
+
+
+On the monitor, Future Me was now standing right outside of the door, looking directly into the camera. She just stood there like a statue. But then she pulled out her phone and started typing. 
+
+
+
+Just like me.
+
+
+
+Then the monitor showed Future Me’s gaze shoot past the camera. Her face contorted -- absolute terror.
+
+
+
+I watched something slip into frame behind her. I couldn't make anything out, but whatever it was, it completely blocked the lobby’s fluorescent lights.
+
+
+
+It extended itself toward her shoulder.
+
+
+
+I looked at my phone: 3:24 AM. The monitor timestamp: 3:25 AM.
+
+
+
+The feed and my reality had caught up with each other.
+
+
+
+Then everything went completely silent.
+
+
+
+I braced myself for whatever was going to happen next -- squeezed my eyes shut. Shit, I probably even said a prayer.
+
+
+
+And then I found myself on the other side of the door. Right where Future Me just was.
+
+
+
+Our timelines finally collided.
+
+
+
+But the laundromat was empty. No Barb. No John. Just the monotonous thrum of a dryer and the soft drone of the overhead fluorescents.
+
+
+
+I looked around. Called out. Nothing.
+
+
+
+So I bolted to the front door and unlocked it as fast as my fingers would let me.
+
+
+
+Which brings me to now.
+
+
+
+In the parking lot. In my shitty little sedan. With what looks like a burn mark on my shoulder. Still shaking from whatever the fuck just happened. 
+
+
+
+Definitely calling in tomorrow at the very least.
