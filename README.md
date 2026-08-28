@@ -1,246 +1,28 @@
-# I work at a 24-hour laundromat, but after tonight, I think I'm quitting.
-It started like any other night. I was greeted by rows of identical washers and dryers sitting under buzzing fluorescent lights. The entire place was monotone with remnants of neon signage.
+# I'm Being Hunted Down
+I’m a 32 year old guy who is running fucking scared for his life. Ten months ago I was at the top of my world: well respected, earned money hand over fist - which I used to buy time with women, alcohol, drugs… fuck. 
 
+I really don’t know who to turn to. Just to be as open as possible, since it doesn’t matter anymore, I’m part of La Cosa Nostra, a soldier for the Bonanno family. Yes, a soldier, a made man at 32. How’d I do it? Having a father and older brother in the life helps, and also figuring out some nice crypto scams that made the family some good fucking money. I also kept up nice appearances: nice house, a car, and a wife with a baby on the way. 
 
+Then things got fucked up, really fucked up. My wife found out about a woman I had been seeing on the side. Well, I guess not just seeing, but living with nearly every weekend. Got her a nice apartment in the city, and helped fund some of her college education in graphic design… or whatever bullshit she’s studying. My wife found out, and ten months ago took her own life while pregnant with our son, who would have been our firstborn. I found her in her robe… she hung ourself in our bedroom. I put my hand on her belly, looking for something to say… nothing came out. Then came the funeral, then a bunch of condolences. I couldn't even look at my girlfriend, didn't want anything to do with her. I blamed her and called her a whore, a home wrecking and selfish whore, and stoped paying her rent and tuition. Don't know what ended up happening to her, and I didn't care at the time. But she wasn't the fuckin' home wrecker, and she didn't have a spouse she cheated on. Guess I did whatever made me feel better, and that's my Goddamned problem... Fuck, now I'm just rambling... 
 
-I spend most of my time in the dark, cramped back office scrolling on my phone, doing whatever. No hard rules, as long as I glance at the security monitor on the tiny metal desk every now and again and keep the place clean.
+Anyway, that was all ten months ago. The next seven months were a fuckin’ spiral, and that’s when I met Gia.
 
+Gia was a stunning woman, inside and out. Smart, sophisticated, beautiful. She was what I needed. The relationship was rocky, crazy, and just full of fuckin’ passion. But as the relationship got crazier, so did my drinking and coke use. One night, I don’t know what happened, but I was under the influence of the shit I was shoving down my nose and throat, and we stated arguing, and I lost it. I don't know how I did it, but I hurt that poor girl so fucking badly that she ended up in a coma, and three months later I still don’t know how she is... don't know if she ever woke up. Issue is, Gia is the boss’s niece. His fucking niece, his blood. 
 
+I became a pariah immediately, and knew I wasn’t welcome anymore, especially when my own father and brother shunned me. I tried laying low and stayed with my younger brother, Al. He isn’t in this life, and I plan to leave his apartment when I can get some shit in order. Anyway, tonight I was falling asleep on his couch in his apartment when I heard a knock at the door. I shot up and got my pistol cocked, and hid behind the couch. I told Al to stay in bed. The knocks continued and got louder. Then the fucking door flew off its hinges. A man in a grey, pinstripe suit was standing there. A blue handkerchief neatly poked out of his breast pocket. His skin was pale white, his eyes were bright green, and he had this big, fucked up smile that was ear to ear. His jet black hair was slicked back super neatly.
 
-The weird shit started around 2:00 AM when one of the regulars, I’ll call her Barb, came in. I was sitting in the office, watching her on the screen, when she beelined it to the change machine. I watched her feed a bill in, and it spat it right out. 
+I immediately shot at him twice. The bullet holes I left in his chest cleared up. The man looked down at his chest, still grinning and said: “Good shot, Robby! That tickled!” He walked into the apartment, and looked around. I fell back onto the couch, trembling. What the fuck was this guy wearing? How the fuck did his bullet holes clear up!?
 
+He turned his head towards the bedroom and saw my brother standing there. He chuckled, and before I could tell my brother to run, this guy lifted his hand, and it turned into some kinda blade or some shit, and he jumped at my brother and shoved the blade between his eyes. My brother made a gurgling like sound and just dropped. The man’s arm returned to normal as he laughed, wiped the blood off, and said “Cool, isn’t it.”  
+  
+“W-what the fuck are you?” I uttered out.
 
+The man said, “A guy looking to settle a score!”
 
-She lost it immediately. Literally went berserk, hitting the machine. She even kicked it a couple of times. I was listening intently, waiting for the inevitable profanities to come through the paper-thin drywall, but they didn’t.
+I got up and bolted out of the room. I made the mistake of looking behind me and saw this thing lunge out of the room and run along the walls on all fours, almost catching up with me. I ran into a stairwell and slid down it, almost busting my ass on the way down. As I got into the lobby, a bunch of people looked at me and started scurrying away. I heard one man calling the cops. I looked at myself in a mirror near the doorman’s desk and saw myself in my pajamas, covered in my brother’s blood and still holding the gun. I started to panic, then heard people scream. The man was behind me and threw me to the floor. I tried turning my head back as I struggled to get up, but he had me pinned down with one leg. His hands began to crack and make splintering noises as they formed into claws. He began to rip pieces of my flesh out of my back and he laughed, saying: “I GOT A BIG PAYOUT FOR THIS! I WAS TOLD TO ENJOY THIS, ROBBY!”
 
+I was in excruciating pain, a shockwave of hurt just traveling through me every time he dug his claws in and out of my back. Things went black for a while, and I woke up in the hospital handcuffed to my bed inside a room by myself, A nurse came in to talk to me. She wore a mask, so I could only see her eyes. She sat down at the foot of the bed and said, “Hi, I’m your nurse, Joy!”. She then pulled her mask down and began to smile a wide-toothed grin. Her eyes went from blue to bright green. She began to speak, saying: “Enjoy your stay, Robby.” She kept repeating it, and her voice went from soft and feminine to deep and gravelly. She pulled out a syringe from her scrubs pocket and injected me with something that knocked me out. 
 
+I’m back awake now. When I woke up, I had a bunch of of the hospital staff surrounding me, calling my name to wake up. I told them I didn’t want nurse Joy, and the doctor said, “There is no nurse Joy here, sir.”
 
-I actually didn’t hear anything. No metallic thud when her foot met the machine. No clanging of the change inside when she rocked it. Just the hum of the CRT screen.
-
-
-
-So, I went out to the lobby to tell her to knock it off, that I’d fix it. I scanned the space. Nothing but the low drone of the fluorescent lights and thrum of a dryer somewhere.
-
-
-
-I headed to the change machine, and when I rounded the corner, Barb wasn’t there.
-
-
-
-The rows of machines looked unnaturally long. Like they were stretching into an abyss where the lights seemed dimmer the farther I looked. 
-
-
-
-"Very funny, Barb, you can come out now." I was convinced she was messing with me, which, if you knew Barb, was very much in the realm of possibilities. 
-
-
-
-No answer. I shook my head. Rubbed my eyes. I walked over to the restroom. "Barb?" I squeaked. I knocked on the door, and it creaked open -- nothing but a flickering bulb over the stained sink.
-
-
-
-I turned around, and just then, Barb walked through the front door. She beelined it to the change machine and began hitting it. She even kicked it. She matched every single thing I just saw on the monitor minutes before.
-
-
-
-I felt the room spin. Barb just looked at me. Asked if I was going to keep standing there like an idiot or help her. I don’t know what I replied, probably just gibberish.
-
-
-
-I went back to the office. Took a big swig of water. Splashed some on my face. My heart was pounding out of my chest.
-
-
-
-A bit later, another customer, I'll call him John, came in through the front door on my monitor.
-
-
-
-I watched his lips move, but there was no sound. I scrambled to my feet and bolted into the lobby faster than a bat out of hell.
-
-
-
-And it was empty. Nothing but the thrum of a dryer that was getting louder, and the lights somehow more offensive.
-
-
-
-I ran to the front windows, which seemed to take longer than usual. Outside, the parking lot lights flickered and were more distant than before.
-
-
-
-I busied myself with the change machine, and then, like clockwork, John actually came in. He was whistling a happy tune. 
-
-
-
-After a brief hello, I ran back to the office and pulled out my phone: 2:10 AM. Then I looked at the timestamp flickering in the bottom corner of the security monitor: 2:20 AM.
-
-
-
-Was I in some weird time space continuum? Only one way to find out. 
-
-
-
-My eyes were glued to the screen when I saw a pool of soapy water spontaneously leak from under a washer. I grabbed a mop, raced into the lobby, and lo and behold, the floor was dry. So I posted up and waited.
-
-
-
-John walked by. Gave me an extremely puzzled look as I proudly stood there with a mop and no water in sight. And then, it happened. The washer made a choking sound, and soapy water sputtered out from underneath.
-
-
-
-I cheesed so hard. I felt like God and did a few more "tests."
-
-
-
-Fast forward to a little after 3:00 AM. I was back in the office, eyes bloodshot by this point, when I saw movement on the monitor.
-
-
-
-A figure standing at the far end of the lobby, their back turned to the camera. 
-
-
-
-Same messy bun as me. Same hoodie as me.
-
-
-
-**It was me.**
-
-
-
-I leaned so close to the monitor that I could feel the static on my forehead. On the screen, Future Me whipped her head around and skittishly scurried out of the frame.
-
-
-
-I bolted out into the lobby. It was empty. But the rhythmic thrum of the dryer was growing louder, echoing through the never-ending rows of machines.
-
-
-
-I deadbolted the entrance and turned off the "Open" sign.
-
-
-
-When I got back to the office, Future Me was running past the washers on the monitor, constantly looking over her shoulder at something, and sprinting directly toward the front door.
-
-
-
-About ten minutes later, I was running toward the front door, constantly looking over my shoulder. And I was painfully aware that "*I"* had just done this. But I couldn’t stop.
-
-
-
-I got to the door. Still locked. I turned around, and now one of the dryer doors was hanging wide open.
-
-
-
-Back in the office, I checked my phone: 3:10 AM. The monitor: 3:15 AM.
-
-
-
-The gap was closing.
-
-
-
-I watched Future Me race back onto the monitor. She climbed on top of that open dryer. She just sat there, her legs dangling like a little kid, staring directly at the security camera. 
-
-
-
-Staring directly at me.
-
-
-
-That’s when I screamed at the screen, "What are you looking at!?"
-
-
-
-Future Me jumped down, slammed the dryer door shut, huffed her breath onto the glass, and frantically dragged her finger over the condensation before sprinting away.
-
-
-
-Minutes later, I found myself racing to that aisle. The fluorescent lights hummed louder. The thrum of a dryer was now more like a thud, pulsing, slower, more deliberate.
-
-
-
-The dryer door was wide open. I climbed up, sat on the dryer, and stared directly at the camera. 
-
-
-
-But nothing happened.
-
-
-
-I hopped off and lost my footing, and my shoulder slammed the dryer door shut. I instinctively huffed on the glass and dragged my finger over the condensation.
-
-
-
-I wrote the word: *RUN*
-
-
-
-And boy did I. I ran so fucking fast into the office and slammed the door. I stared at the monitor. I pulled out my phone. My hands were shaking so bad, I could barely see the screen as I started typing.
-
-
-
-On the monitor, Future Me was now standing right outside of the door, looking directly into the camera. She just stood there like a statue. But then she pulled out her phone and started typing. 
-
-
-
-Just like me.
-
-
-
-Then the monitor showed Future Me’s gaze shoot past the camera. Her face contorted -- absolute terror.
-
-
-
-I watched something slip into frame behind her. I couldn't make anything out, but whatever it was, it completely blocked the lobby’s fluorescent lights.
-
-
-
-It extended itself toward her shoulder.
-
-
-
-I looked at my phone: 3:24 AM. The monitor timestamp: 3:25 AM.
-
-
-
-The feed and my reality had caught up with each other.
-
-
-
-Then everything went completely silent.
-
-
-
-I braced myself for whatever was going to happen next -- squeezed my eyes shut. Shit, I probably even said a prayer.
-
-
-
-And then I found myself on the other side of the door. Right where Future Me just was.
-
-
-
-Our timelines finally collided.
-
-
-
-But the laundromat was empty. No Barb. No John. Just the monotonous thrum of a dryer and the soft drone of the overhead fluorescents.
-
-
-
-I looked around. Called out. Nothing.
-
-
-
-So I bolted to the front door and unlocked it as fast as my fingers would let me.
-
-
-
-Which brings me to now.
-
-
-
-In the parking lot. In my shitty little sedan. With what looks like a burn mark on my shoulder. Still shaking from whatever the fuck just happened. 
-
-
-
-Definitely calling in tomorrow at the very least.
+They walked out after the doc said something about imaging, and told me not to move too much or I’d tear the stitching in my back. I’m gonna try and get some shut-eye, then when I’m good enough to leave I can send updates and maybe get to the fucking bottom of this. 
