@@ -1,72 +1,186 @@
-# My dad told me not to go outside that night. He never explained why
-I (Jason) don't talk about this much. My wife knows the short version. My buddies from high school know there's a version of this story, but I've never actually told it start to finish, not even to my dad, and he was there for the worst part of it.
+# Microplastics Are Good For You
+“Microplastics are good for you, actually.”
 
-I grew up on a corn and soybean farm about forty minutes outside Cedar Falls, Iowa, on a stretch of county road that doesn't even show up right on GPS half the time. Our closest neighbor, the Hendricksons, was almost three miles down the road. My mom died of ovarian cancer when I was twelve, so from then on it was just me and my dad in that farmhouse. He worked the fields, I went to school, and in the fall I rode my bike to football practice because he was usually out working until dark and couldn't drive me.
+She blinks once. Twice.
 
-I'm telling you all this because I need you to understand that being alone outside at night wasn't unusual for me. I did it all the time. I biked two miles home from practice in the pitch dark more times than I can count. It never bothered me. My dad never once told me not to.
+“Excuse me?” is all she manages to say.
 
-Until that one night in September of my sophomore year.
+“I said,” Dominic leans over the table. “Microplastics are good for you, actually.”
 
-I remember it was late September because we'd just finished the second cutting on the hay and the beans were still green, not ready for harvest yet. I got home from practice around 8, put my bike in the shed like always, and when I walked in the house my dad was standing in the kitchen instead of sitting at the table like usual. He wasn't doing anything. Just standing there.
+“Says who?”
 
-He said, "Don't go outside tonight. Not even to the shed, not even for your bike. I mean it."
+“My new roommate.”
 
-I asked him why. He just said, "Just don't." His voice wasn't angry. It was flat in a way I'd never heard from him. My dad was not a nervous guy. He'd worked that land his whole life, dealt with coyotes getting into the chicken coop, dealt with tornado warnings, dealt with burying his own wife. Nothing rattled him. So when he told me that and wouldn't explain it, it stuck with me more than if he'd yelled.
+“Oh, and he’s a scientist?”
 
-I didn't push it. I ate dinner, did some homework, and around 11 I couldn't sleep, so I got up for a glass of water. My room faced the back of the house, toward the fields. We had four sodium floodlights on poles out there, the kind that buzz a little and throw this orange-yellow light in patches. My dad kept them on at night because we'd been having trouble with deer and, that summer, something that had been getting into the grain bins that he never did identify.
+“He is, actually. Really smart. Mesiarik University School of Environmental sciences.” He takes a long victorious sip out of his plastic straw. “I trust the science. Jan knows what he’s talking about.”
 
-I looked out my window like I always did, not thinking about anything, and that's when I saw someone standing in the field.
+“Okay,” Lenka says, after a long exhale. “So what exactly is *good* about our food and water supply being irreversibly polluted with plastic?”
 
-It was maybe four hundred yards out, past the second light pole, in one of those gaps where the light barely reached. Most of the bean field was just black. But there was this one patch, lit orange from the pole, and there was a person standing dead center in it, not moving.
+“They’re forever,” he says.
 
-I want to be clear about something. From that distance, at night, under sodium light, you can't see color right. Sodium lights wash everything into this orange-brown. But this person looked wrong even accounting for that. The color on them wasn't just orange from the light. It was darker in patches, almost rust-colored, like something had dried on their skin or their clothes. I remember thinking it looked like they'd been out in the mud, or maybe it was just work coveralls stained up from field work, which honestly wouldn't have been that strange around here.
+Lenka’s hands shoot up, nearly flipping the table over. “That’s precisely *why* they’re bad!” she yells. “They’re in our blood and lungs and placenta and they’re giving us cancer! How is that good? How can anyone say that’s good?!”
 
-I watched for probably a full minute, telling myself it was nothing, maybe Hendrickson's boy messing around, maybe some hunter who'd wandered onto our land, which happened sometimes even though we didn't allow it.
+There are three other tables around us. All chatter has died down. We are undeniably the center of attention. The atmosphere is most certainly not romantic.
 
-Then the figure lifted one arm, slow, and waved me toward it. Not a big wave. Just one motion, arm up, hand open, and then it went still again.
+“Guys,” I say, draining my cider. “How about we leave the debates for when we’re drunker. Let’s go dance.”
 
-It didn't call out. It didn't move any closer to the light. It just stood there after that, like it was waiting to see what I'd do.
+“Fine by me,” Dominic says, getting up. “Peace?”
 
-I know how this sounds. I know the smart thing was to wake my dad up right then. But I was fifteen, and I told myself it might be somebody who actually needed help. Maybe somebody's car broke down on the county road. I didn't let myself think too hard about the alternative.
+“Peace,” she says, after a moment of consideration. I try to take my shot and ask her to dance, but before I gather the courage, he’s already holding her hand. By the time my shoes are off, the two of them are already spinning round the parquet.
 
-I put on my shoes and went out the back door quiet, not through the front where my dad might hear the screen door.
+I had never been much of a dancer. In fact, outside of drunken grinding in highschool, I had never danced at all. With the existential dread of early 30s nipping at my heels though, I decided to try something new. When I saw Forró workshops being offered in one of Prague’s decommissioned churches, I figured it’d be a good place to start. The moment I met Lenka, I knew I would be coming every week.
 
-The night was warm still, that late September Iowa warm where the air feels thick even after dark. I could hear crickets, and somewhere off toward the Hendricksons' a dog barking at something, on and off. My legs felt fine walking the first hundred yards or so, right up until I got past our old grain bin and the ground dipped down into the field proper, and then I started sweating in a way that had nothing to do with the temperature.
+I take a seat in the pews and watch them dance. She moves with a hypnotizing elegance. He moves with a confidence that is wholly foreign to me. As I watch them, I try to convince myself that I am simply observing foot work. When that lie refuses to stick, I remind myself that people dancing at dance socials is normal and means nothing. When that thought provides no solace, I remind myself that Dominic is Brazilian. Forró is in his blood. If we were to engage in trench warfare, I’d probably have the upper hand.
 
-The bean rows are only about knee high that time of year, so I could see over them fine, but once I got in among them the sound changed completely. Up by the house, the wind moving through beans just sounds like wind. Once you're inside it, walking through it, every gust sounds like something is moving through the rows near you, and not always in the direction the wind is actually blowing. I kept stopping because I'd hear a rustle off to my left, and then a second later one off to my right, closer than it should've been able to get that fast.
+They dance for three songs. There are other women in the church. Women that sit down next to me and make small talk and hint towards wanting a dance, but I only have eyes for her. When they finish, Dominic goes off to the bathroom. I leap at the opportunity like a hungry animal.
 
-I told myself it was rabbits. We had plenty of rabbits in that field. I still tell myself that.
+She’s out of breath when I ask her to dance, but acquiesces anyway. Holding her hand, I feel a rush of joy. It dissipates the moment I start moving my feet.
 
-I lost sight of the figure for a stretch because I dropped into a low part of the field, and when I came back up I couldn't find the patch of light I'd been walking toward. Everything looked the same in every direction, four floodlights all throwing the same orange glow onto different empty rows, and for a second I genuinely didn't know which way the house was behind me.
+Lenka is local, but she’s been dancing Latin since she could walk. I step on her feet immediately. I continue to do so throughout the rest of the dance, but once she takes the lead all of my stomps miss. The dance is nice. As we float around the Hussite church to tunes of Latin funk, my soul feels lighter. She pulls back from the embrace and spins me. For a moment, it feels emasculating — but then our bodies come crashing together and her hand travels down my back. Our cheeks brush past each other. She smiles.
 
-I kept walking anyway. I don't know why. My legs just carried me forward like they'd already decided something my head hadn't agreed to yet. And then, without me really understanding how, I was standing right where the figure had been.
+And lingers.
 
-There was nobody there. Just an empty patch of bean rows and one of those strange circular flattened spots in the dirt, like the plants had been pressed down and stayed that way. The hair-thin stalks around the edge of it were bent and snapped in a way that didn't look like wind damage or deer damage. It looked broken by hand, almost deliberate, like something had pushed the stalks down one at a time instead of trampling through.
+There’s something here.
 
-My eyes started to go strange on me right about then. Not blurry like I was going to cry, more like the edges of everything got soft, the way things look right before you fall asleep sitting up. I remember thinking that was wrong, that I should be more scared than I was, and not being able to make myself feel it the way I should have.
+I feel alive.
 
-That's when a hand landed on my shoulder from behind, like it was trying to pull me backward.
+I, also, feel very sweaty. Luckily, once the song finishes another one doesn’t start.
 
-I spun around fast, and my dad was standing right there. The second I saw his flashlight beam swing across my face, it was like something let go of me. I came back to myself all at once, the way you do when you wake up out of a dream you didn't know you were having.
+“How was I?” I ask, trying to hide the stains on my shirt.
 
-He didn't yell. He grabbed my hand and held it so tight it actually hurt, and I remember that more than almost anything else from that night, because my dad never grabbed me like that, not once in my life, not even when I was little and about to run into the road. He didn't say much. Just told me, quiet, that he'd told me not to come out here.
+“Better than last week,” she winks.
 
-I looked back toward that flattened circle before he pulled me away. There was a stone sitting right in the middle of it, wedged down between the broken stalks. It was smooth, almost polished, like something you'd find in a riverbed, except we don't have a river anywhere near that field, never have. It was dark red, and the red wasn't just on the stone. It looked like it had bled out a little around the edges into the dirt, like the color belonged to more than just the rock itself.
+The organizer makes end of mass announcements and the dancers start making their way out of the hall. As we get to the bar, we meet Dominic, already dressed in his coat.
 
-I bent down without really thinking about it, reaching for the stone, and my dad yanked my hand back so hard I nearly lost my footing. He didn't explain. He just started walking, straight toward the house, fast, not looking left or right, not looking behind us even once. I kept feeling like something was moving along behind us in the dark, staying just far enough back that I couldn't be sure, and I think my dad felt it too, because he didn't slow down until we were through the back door and he'd thrown the deadbolt.
+“Burza?” he asks.
 
-Once we were inside, I asked him what that was. He told me again, in that same heavy voice, that he'd said not to go out there. He wasn't angry. I could hear something else in it, something closer to fear, like he was more scared of what almost happened to me than he was of whatever was actually out there.
+I nod. “Burza?” I ask, Lenka.
 
-I asked him two or three more times over the next few days. He never gave me a real answer. That night, neither of us slept. I know because I could hear him in the kitchen at two in the morning, and again at four. I'd never heard him up like that, not even the week my mom died.
+“Burza,” she says, without much thought.
 
-The next morning, walking to catch the bus, I ran into Mr. Hendrickson at the end of our driveway. He didn't waste time on hello. He just asked me straight out why there'd been screaming coming from our place the night before. I told him it was probably an animal. I could see in his face he didn't believe that for a second, but he didn't push it either.
+We walk through the crowd of smoking dancers, asking the question. A couple of them join us. Once a headcount is done, we pile into Bolts and ride across to Holešovice. From a reformed church, we travel to a slaughterhouse with jazz.
 
-A few days after that, maybe three, I don't remember exactly, I woke up early and heard my dad's voice out by the gate, talking to someone I didn't recognize. He was telling the man he wanted to sell the property, all of it, the house and the land both. He didn't want me hearing it, because the second I stepped outside he stopped talking mid-sentence.
+The lights are low and there’s a man with a bongo and another with a trumpet and far too many with saxophones. I get a cider, Lenka gets a beer and Dominic gets another gin and tonic. His plastic straw provokes another argument.
 
-I asked him about it later that day. First he told me I shouldn't be listening in on his conversations. Then, after a while, he said it different, said something like we couldn't keep running the place by ourselves anymore, and that whatever we got for the land, we'd move into town, maybe get a little shop, somewhere easier. I didn't ask any more questions after that. It felt like there was a reason under the reason, and I think some part of me already understood he didn't want to say it out loud, maybe because he didn't want to lose me the way he almost had that night.
+Lenka cites facts about irreversible damage done to our eco system. Dominic, on the other hand, just keeps deferring to his roommate. “I don’t know. Jan just seems certain. And he’s a smart guy,” Dominic finally relents, “You can talk to him yourself sometime. We’re at Delnicka, just a couple blocks away.”
 
-We moved into town before the year was out. He's sixty-five now. I don't bring up that night with him anymore, because the last few times I tried, he just said he doesn't remember it clearly. I know that's not true. I've never believed that's true.
+“I think microplastics are bad,” I add, before the conversation changes topic.
 
-I still wonder what that was, standing out there in the light. I wonder if my father saw it too, the same way I did, or if he only knew enough to be afraid of it. And I wonder, more than anything, what would have happened if I'd picked up that stone before he got to me, or if he'd been thirty seconds slower walking out that back door.
+The night carries on. We groove out to the music, smoke some grass and entertain visitors to our table. Around midnight, Dominic spots his Ukrainian ex going outside for a cigarette. He quickly excuses himself. Lenka and me are left alone.
 
-Some nights it still gets to me, thinking about it. I don't have an answer. I don't think I ever will.
+“Microplastics,” she says, watching the Brazilian half-run to the door. “What a weird hill to die on. Inarguably terrible for the body. Inarguably terrifying. We can’t get rid of them. They’re forever.”
+
+“Do you think his roommate is an actual scientist?”
+
+“I doubt it. Dominic is a nice guy but he’s pretty…”
+
+“Gullible?”
+
+“Yes.”
+
+She laughs and nods and clinks her beer against my cider. We can see Dominic outside animatedly talking to his old flame and a couple of the dancers that joined us from the church. The Brazilian and his strange views on microplastics quickly become irrelevant. Lenka starts telling me about her childhood and the rest of the bar dissipates into background noise.
+
+Dominic comes back to the table after last order is called. He has his black-haired beauty around his arm and a couple of the drunker dancers in tow. No need for the party to end yet, he says. Afterparty at his.
+
+Lenka works corporate. So do I. Drinking more at one AM on a Thursday is a terrible idea, but neither of us feel like going home. When she says yes, so do I.
+
+Most of the group ends up thinning out by the time we get to Delnicka. Only two others remain by the time we get to the flat. They stay for a drink and then leave us alone with Dominic and his ex.
+
+The four of us open a bottle of prosecco and start off a drinking game of vague parameters. Once the glasses are refilled, Dominic announces he wants to show his friend something in his bedroom. They promise to come right back, but they don’t. Judging by the sounds coming from the room, the thing Dominic is presenting is for her eyes only.
+
+We’re drunk and comfortable on the couch, but the night is clearly coming to an end. We each have an arm around the other, but our free hands work at our phones trying to tell the price differences between Bolts and Ubers. Briefly, I consider inviting Lenka over to mine but then all thoughts of romance are wiped out in an instant.
+
+The door to the other room opens. The being that walks out is scarcely a man.
+
+His body is sleek and muscular and hairless. The skin reflects light like something lifeless. There’s a unsettling blue tint to it. The strange hued man stands in the doorway wearing nothing but gray sweatpants. In one hand he holds a plastic tumbler. In the other, a plastic bag filled with a sand-like material.
+
+“Good evening,” he says, his voice deep and hollow.
+
+Lenka’s hand grasps mine. She squeezes. The man also makes me uncomfortable, but I do my best to hide the fact.
+
+“Hi,” I say. “You must be Jan, Dominic’s roommate?”
+
+“He is I,” the man says, his eyes unblinking.
+
+“Dominic invited us for a nightcap after forró. Hope we did not wake you. We’re just on our way out.”
+
+In the other room, the Ukrainian’s calls to passion quiver up an octave. Jan turns his head in the direction of the moans for a moment. His face betrays no emotion.
+
+“I sleep little,” he says, turning towards us. A thin, lipless smile stretches across his face. “I do not need sleep. I have grown past it. Because of the microplastics.”
+
+Lenka grips my hand again. She’s scared. As am I, but I want to be brave.
+
+“You think microplastics are good for you?” The laugh I let out sounds more like a shriek. “That’s really silly. They’re bad for you. They give you *cancer*.”
+
+The blue man’s forehead shifts. Had he eyebrows, they would be raised. “Microplastics are *bad* for you? Who are you to make such a bold claim.”
+
+“We did our research.” The words come out hollow. When I look over to Lenka, she’s staring out at the street lights. “Microplastics are really unhealthy.”
+
+“You did your research.” He tilts a bit of the colorful dust into his tumbler and swirls it. His face recoils at the taste of the liquid, yet he drinks it regardless. “As did I, friend. I did my research and it led me to the undeniable fact that microplastics are *necessary*.
+
+“For six long years I labored at the Mesiarik Life Sciences Faculty, trying to understand. I wasted precious time dreaming up ways to remove plastic from our diet, to limit its effects on human health — but after years, my folly became clear. Microplastics aren’t an enemy to be annihilated. They are *necessary*. They are the next step. They will raise humanity to a new age. This century does not belong to *homo sapiens*. It belongs to *homo plasticus*.”
+
+She squeezes my hand again. “My Bolt is almost here,” Lenka says. “We should get going.”
+
+“No.” The blue man steps before the couch. “Do not leave in blindness. Do not leave ignorant. Microplastics are *good* for you. Just give them a try.”
+
+As muscular as he is, his body moves with little grace. With each step that Dominic’s roommate takes, I can hear a unnatural, artificial squeak. With slow movements he undoes the bag of colorful dust. He pours into what’s left of our prosecco.
+
+“They say plastic harms the body, but it merely improves it. It binds to our cells. It creates scaffolding. Life adapts to the dominant substrate. Once, it was soil. Now it is polymer.” His poreless face is close. His breath smells of disinfectant. “The earth made flesh. Flesh made plastic. Plastic will reshape the flesh for what is to come.”
+
+“I’m leaving.” Lenka stands up. There’s tears in her eyes.
+
+“Me too,” I say. I don’t let go of her hand. She’s still squeezing.
+
+Before Dominic’s show and tell reaches a climax, we are out of the apartment. Lenka does not say a word until we are out of the stairwell. Even as she speaks, she keeps her face tilted towards the window of the apartment.
+
+“Do you think that was fake? Like, some sort of performance art?”
+
+I don’t respond. We both know it wasn’t.
+
+“Terrifying.” She shudders. “Scariest part is, I think he believed it.”
+
+“I think so too.”
+
+Next week, at forró, Dominic is nowhere to be found. When I ask around the other dancers, they say they haven’t seen him either. Some say he’s been sick. Some say he’s on some sort of a health cleanse. When Lenka asks if I heard anything, I say I haven’t. The two theories are beyond discomforting to discuss.
+
+When we migrate to Burza later in the evening, Dominic is not there either. Neither does he show up to forró the following week. As we go out for post-dance drinks, however, we do see a familiar face — his ex girlfriend.
+
+“You are friends of Dominic, yes?” She bee-lines straight towards our table and sits down.
+
+“Yes,” Lenka says. “Have you seen him?”
+
+“Yes. And never again,” the woman says. “He is gone crazy. He tries to make me eat the plastic.”
+
+“Eat the plastic?” I ask, finding Lenka’s hand gripping mine under the table.
+
+“Yes. It is his roommate. Crazy. They eat the plastic,” the woman says, looking like she’s about to spit in disgust. “I think the two are fucking. If you see Dominic, you tell him to never speak to me again.”
+
+“I don’t think they’re fucking,” I say, with confidence, but it matters not to the conversation.
+
+On the third week, we meet Dominic. He’s in the church well before Lenka and me arrive. The moment he sees her, he asks her to dance. Overjoyed that he’s not dead, she takes his hand and goes to the dance floor. Soon, she regrets her decision.
+
+His dancing has changed. All the smoothness has gone out of his steps. Dominic sways without rhythm, completely deaf to the music. For a moment, Lenka tries to lead, but he doesn’t let her. About halfway through the song, she excuses herself and rushes to the bathroom.
+
+“He’s *shedding*,” she whispers, as she rushes past me. Her palms are covered by a thin white dust. “His skin is *shedding*.”
+
+I wait for Lenka outside the bathroom for a solid five minutes. When she exits she is no less distraught. She tells me she can’t be here anymore. She tells me she needs to go home to take a shower to get all the toxins off of her skin.
+
+I wait with her for her Bolt. I try to suggest we go straight to Burza, or another bar, or meet some other night, yet all the mirth has drained from our conversation. Dominic’s state, his theories, his confidence about the sickness in his bloodstream — it is all too much for her.
+
+As she gets into the car, I fear I will never see her again. I try to assuage that fear by reminding myself that there are other women to dance with in the church. As I make my way up the steps, however, I bump into someone I have no intention dancing with.
+
+“For a moment, I thought she was right,” he says, taking a sip out of a plastic bottle. “When I first started taking Jan’s supplements, I felt sick.”
+
+“Supplements?” I ask. “The microplastics, you mean.”
+
+He laughs good naturedly and swirls the plastic bottle. The colorful sediment at the bottom rises up giving the liquid a terrible hue. “They change you,” he says. “At first it hurts, but then it doesn’t. I don’t feel tired anymore. I don’t sweat anymore. I don’t feel bad anymore. I just feel… ready.”
+
+He offers me the plastic bottle.
+
+I decline.
+
+“It’s in the tap water anyway,” he says. “Jan just concentrates it. It’s in every raindrop and every fish and every vegetable you consume. All we are doing is controlling the dosage. All we are doing is speeding the process up.”
+
+In the lamplight of the church, almost obscured by the darkness of the night, I notice the gentlest of blue hues in his [skin](https://www.reddit.com/r/MJLPresents/).
