@@ -1,143 +1,174 @@
-# I participated in the Blood Sport games
-The middle of the Everglades is the last location you would want a flat tire.
+# My First Job After College Was More Horrific Than I Could’ve Ever Imagined [Part 3]
+[Part 1](https://www.reddit.com/r/nosleep/s/UUXnEvHJhH)
 
-Day 1
+[Part 2](https://www.reddit.com/r/nosleep/s/2RLieHMxCO)
 
-“Git up”  
-I looked up. A man stood before me. He was wearing a dingy undershirt stained with mud, undoubtedly from the swampwater. His jeans looked about half as old as he was. “I said, geet up. Worthless sack o’ sheet.” His accent was as thick as his skull. I slowly rose to my feet. I must’ve been, what, 10, 20 pounds lighter than I was when I stumbled upon this little village.
+The plan was simple in principle, but complicated by a few facts. The first was purely external: we were surrounded on all sides by a swarm of flesh eating corpses, designated as ‘soldiers’ due to their following a queen. Further complicating the plan was that it involved luring them away from the house. Fine for the people inside, not so great for Casey, Fredrick, and I, who would be doing the drawing away. 
 
-The man pushed the door to the crude cell I was in. He must’ve let out the other prisonmates earlier. I looked around the cell. All that was in there was hay. Hay and shit. I weakly stumbled out of the door. The man stuck his foot out, which I almost stripped on. I walked past him without saying anything. He kicked my calf and I fell onto one knee. He snickered. I could’ve beaten the man had I been at full strength, even with my handcuffs on, but it had been almost 24 hours since my last meal. Besides, even if I was at full strength, I would not be prepared for the backup that would follow.
+Not to mention, they would have particular interest in us. Quite smart from Frank, we’d be carrying the emitters. They produce a special frequency, one that is very agitating, disrupting the soldiers echolocation and sending them into a rage and a blind chase to stop it. Therefore, they’d be focused on us, and then the trees we would be attaching the emitters to, preferably as far away as possible. 
 
-The man went past me and walked up the stairs. I trailed slowly behind, climbing the stairs like an animal. I suppose, to them, I was little more than one. The humid air blasted me as soon as I walked out of the tiny shed the basement with the cell was in. It must’ve been 10:00 in the morning, but it felt like 4:00 in the afternoon. The man heavily walked on the mud trail in the middle of the two puddles surrounding it. It flew onto my shins, some specks even reaching up as far as my groin.
+That could be manageable if it wasn’t for the main complication, which was internal: I was shitting myself. Not literally, but damn near close. I had those anxiety farts, the ones that smell something awful. Like a rat died in your stomach and people can’t even politely ignore. You can usually do that, pretend nothing is amiss and silently judge. But not here, the stench was unavoidable and so were the faces that confirmed one had inhaled it. I stood by the front door, pretending to ignore said faces, and dug my thumb nail into the side of my pointer finger until it bled. 
 
-At the camp were the other prisoners. I must’ve been the last one grabbed for our daily feeding. In the middle sat a large bowl, with what I assumed to be our food in it. The bowl was about the size of a small table, and it was hung over a dead campfire. I hazily walked toward it, but the man held me back. “What’s yer rush? Don’t be greedy! Wait for yer rahvals! Mm.. hehe.” The other prisoners slowly lined up in a circle around the campsite; the food in the bowl appeared to be gruel. A skinny man with a gut and a pistol started counting down. “Ready? 3…2…” he shot one of the feet of the man to the right of me. He yelped in pain and fell to the floor. “GO F\*\*\*\*TS!” The man started shooting the ground more and more. We rushed toward the center, lacking coordination. Two of the seven rushing toward the center stripped on the way. I was lucky. I had made it second, so I got a good serving of the gruel. I scooped it with my dirty hand. Unfortunately, the man with a bullet in his foot didn’t get any. I felt bad. 
+If I didn’t do this, I was screwed. I wouldn’t be able to live with myself, for one, the guilt and all. More selfishly I preferred not to live on the streets, and that would undoubtedly happen if my mom found out I was fired for causing multiple fatalities at work. Indirectly? Is one responsible for the tornado of karma one generates and the destruction it wreaks? I guess that’s up for God to decide. All I knew for sure was I felt like I was getting ready to run the one hundred meter dash. Frank's hand at the door, me and the others poised to run. All that was needed was the starting *bang* and we’d be off.
 
-Afterward, they lined us up by height. “Ahright! Today’s the day of the Blood Sport games! After three days, one of yew lucky fellers’ll get to leave the village! Only one o’ ya, though.” The skinny man with a gut sized us all up. His name was Lee, or as the people of the village called him, Lazyeye Lee. You could picture why. “Hmmm… ew-kay. CURTIS! SHANE! MAE! Less figger out the games fer today.  Homer, you make ‘em kick rocks or sum’in.” Curtis was a short and stubby man. He looked similar to Homer, but different enough to not be related. Shane wasn’t as lanky as Lee, but he was on the taller side (for the village) and had greenish eyes. Mae looked much older, maybe around her mid 60’s, but she looked rather mean. Homer complained in a childlike voice. He was my keeper. “Awww, you nev’r let me help make the game.” Lee looked up, at Homer again. “Jes shut the fuck up. For once in your damn life, shut the fuck up.” Homer sighed. He started walking away. We followed.
+Accordingly, Emma was near the window, one of those hose contraptions called a suction-burst in hand. A small metal rod was inserted over the trigger, duct tape to keep it in place, and a wild smile on her face. We had cleared the impact zone, and she said she understood the physics of this. Claimed that it was an uninterrupted stream that would shoot straight out. All that was left was for her to tighten and adhere the tape. If this was even necessary, or if she was just bullshiting, I couldn’t deny she was having a blast. It was unbelievable. *Psychoooooo* bitch. Maybe Fredrick was right. Not about the sexism, I don’t like her for less prejudiced and more personal reasons; but I did not want to be in this landmine house a second longer either.
 
-In my cell the previous day, Homer talked to me. “Well mister. I bet yer wonderin’ why yer cooped up in here, and why we don’t jest let you go.” I grimly looked ahead. He had a huge grin on his face. “Yer gunna play in our famous Blood Sport games! They’re tuns o’ fun. An’ ya know what?” He leaned in toward me and whispered. “I think *you* gotta gooooood shot at winnin’ this thing.” The Blood Sport games. I could only wonder what that meant.
+“Remember, you have around thirty minutes. The bomb’ll mask our escape in the car. So if you can make it out, keep going, don’t come back,” Frank said. “You each have a bag of fifteen, space them out about twenty feet apart. Knuckle dusters should save you in a pinch.”
 
-He showed us to an alligator. “Kill that thing, er sumthin.” He sighed, and walked away, not even taking off our handcuffs. The alligator was sleeping, and besides, we had no way to immediately kill it. The man with the bullet in his foot was still in agony. Another one of the prisoners, Barney, waited until he was out of sight. He said, “We could make a run for it,” rather ambitiously. We all stared at him. “Where would we go? We’re in bumfuck nowhere. The only path out of this patch of dirt these people call their home is on the other side of the camp,” I said. He glumly looked down. 
+Martin handed us each a sack filled with emitters, along with brass knuckles that had coils on their ends and wires that fed into them. I put them on, and hit them against each other, generating a spark of energy. Everyone's eyes were focused on the door, and awaiting Frank's command. He nodded at Emma, who, with relish, taped the rod to the trigger, waited for the engine to rev up, and let go.
 
-We waited. The alligator slept like a stone. A small hispanic woman inched up to me. “Hey. I think you’ve got the best chances of getting out of here.” She looked around. “I’m Aurora. You are…?” I put my hand out. “Isaac. Nice to meet you.” She shook it. “Listen… all I want to do is help my little brother. I’m not sure if I’ll last very long, considering I’m the smallest one here. If I don’t make it… could you find a way to help my little brother get out?” I was a little surprised. “How? What other ways could there be?” She looked down. “I don’t know…” I looked ahead, beyond the trees. “Which one is he?” I asked. She pointed to one of the prisoners, one of the ones I hadn’t noticed. “That’s him. Santiago.” The resemblance was there. However, he couldn't have been older than 14. He was skinny, and his hair was a weird middle part. He looked incredibly frightened, but was holding back tears, most likely for his older sister. “How do you know if *he’s* gonna make it through these rounds?” She had a grim expression. “I don’t. I talked to some of the other prisoners, and they said some of the same things.” She paused, then sighed. “This is a tall ask. I know it is. But he has so much to live for. If you go against him, would you…?” I thought about it for a second. Was my life more important than that of this random kid I didn’t know?
+ It was a smooth, expertly timed motion. If she let go too soon, in all likelihood it would have dropped and spun around the room, killing us all. Too late, and it would’ve taken off her hands. As it was, it blasted pink energy out, blowing out the floor boards where no one was standing, shattered the window, and shot out like a rocket. 
 
-I didn’t respond. Aurora got up. “It’s okay. I didn’t expect you to.” She started walking away. I grabbed her before she left. “Wait. Let me sit on it.” She let out a weak smile. “For even considering… thank you.”
+“Go!” Frank shouted and flung open the door.
 
-Some time later, Homer grabbed us, with a bit more excitement in his eyes. “Coooooooome to papa!” He didn’t check if we killed the alligator or not, fortunately. That seemed to be the end of my luck. He led us back to the camp. 
+I was the first one out, shoved by Casey and Fredrick behind. On the porch, I just caught the suction-burst soar through the air, hit the treeline, fall to the ground, and spin around. The soldiers nearest were torn in half, their blood splattering the trees and grass. It would not be an exaggeration to say that there must have been thousands of them outside. Some were large, much larger than any person could be, and others were average or even small. Most were proportioned normally, but a few had extra limbs or eyes. The eyes contained that same bewildered, conscious misery and horror, darting around and wet with crying. In the field, on the steps, they were drawn to the commotion, and shambled towards it. 
 
-The sun was far on the west side. It must’ve been 3 or 4:00 PM at this point. Lee had a huge smile on his face. “Awright everyone! Gather ‘round! Yer gunna play…” He paused. “A good ol’ game o’ roulette!” 
+The tape must have loosened, as with a final few sputters, the energy beam died down. But, it gave us just enough of an opening, a path between them, to sprint down the steps, and each run in opposite directions, weaving and shoving past figures. 
 
-After taking off our handcuffs, the gamemasters had us sit in a circle around the area of the campsite where the gruel used to be. An 8 chambered revolver sat in the middle. Oddly enough, there were black burn marks on the handle. Behind us were the residents of the village. Despite the small size of the village and initial crowd, there were lots of people here, some struggling to get a good view. Lee came into the middle. “ALL RIGHT EVERYONE! I’ve loaded this here gun with *one* bullet. Atta these lucky fellers, four of ‘em are gunna be, well… unlucky! This ain’t any old roulette game, though. We’ve added a *twist*!” 
+My destination was directly ahead, to the woods in front of the house. I ran on the barren dirt, a sharp line between it and overgrown grass. About twenty feet, I passed a scarecrow. It had a straw hat and black rock eyes. It gave me a start, as I thought it was a soldier, yet they were generally still distracted. Only a few turned around and moved in a lazy fashion, as if they weren’t entirely aware of us. I stuck my tongue out at it, and the universe, or the scarecrow if it was secretly alive, swiftly punished my insolence: my bag shook and vibrated violently, all of the emitters going off at once. The figures snapped to me, each letting out a screech and convulsing, covering their heads. The bag stilled after a few seconds, but the damage had been done.
 
-He loaded a bullet into the chamber, before lighting the revolver on fire, and tossing it to the man who got shot in the foot earlier. He yelped and dropped it to the ground. Curtis knocked him on the head with a shovel. A crack could be heard. At the very least, the man was knocked out. He dragged the man away. Lee stomped on the revolver repeatedly, putting it out. “Damn bastard ruined our game! Oh well. Guess that means less rounds for y’all.”
+In shock, I looked at the house, where those inside were piling at the window and watching. Martin made a mock pouting face, and Frank mouthed something, maybe an apology, and gave me a thumbs up. 
 
-The audience maintained their excitement. Lee reloaded the gun and lit it on fire. I nervously looked around. He tossed it to Santiago. His hands were trembling, and his mouth was hung right before a scream, but he put it under his head and hit the trigger.   
-It clicked.  
- He threw it to the next man, Barney. Barney let out a squeal. He put the barrel next to his head very quickly.   
-Click.  
- Barney threw the thing onto me. It landed onto my lap. I resisted the urge to jump up, and grabbed it tenderly. It hurt like a bitch. At that point, I wished for the bullet to come out and end my misery.  
-Click.   
-I tossed it to my left. My hands were in a state of shock. Skin was peeling off. It was deep red. I couldn’t get up to put it in the water, not yet at least. Although, who knew if I would get an infection or not. I didn’t even pay attention to the woman next to me. The gun clicked for her. I looked up. She was above average height for a woman, with long, silky and black hair. She passed it to Aurora. She juggled it in her hands, and bit down on her lip, before putting it to her head.  
-Click.  
-She passed it to the left, to a very large man, at least four inches taller than me (and I’m 6’1). He was crying a bit, but he stoically lifted it up to his head. It clicked. He tossed it as quickly as possible.  
-The last one was a short Indian man. He had accepted his fate, despite the chance there was still another slot in the barrel. He barely reacted to the flame, lifting the gun up to his head.
+“What!” I shouted and Frank cringed.
 
-BANG!
+The soldiers charged at me, some on all fours and others arms flailing at their sides. I ran, pushed my legs as hard as I could, and reached into the bag and clutched an emitter. It had a timer, set to three seconds, and an activation button. I blindly increased the timer, pressed the button and tossed it with all my strength into the field. A lion's share of the figures sharply turned and followed it, but many were still on my tail. When I made it to the trees a few stepped out and blocked my path. 
 
-The people cheered. Mae hauled off his body this time. Lee loaded three bullets into the chamber this time. His grin said it all. He paused. Two men were making a bet. One pointed at me, the other pointed at Barney. I didn’t have much time to question a bet for a game like this. Lee lit the gun on fire, and tossed it. I knew only two of us at the most would die this time, as he needed four players for the next round of his tournament. He threw it to Santiago. I could tell it hurt more this time, but he lifted it up regardless.  
-Click.  
-Next was Barney. He was close to dropping it, but he hit the trigger.
+One lunged at me, falling into me with its weight and tearing at my skin and shirt. I pushed it off, and hit it with my fist. Its chest exploded with blood, it fell to the ground, and I got on top of it and pummeled with a guttural roar. I punched through bones and organs, the sparks and electricity from the knuckle dusters eviscerating them, and finally the ground. Dust and blood erupted up, blanketing the surrounding area in a rusty red mist. I pushed myself up, and, expecting to be attacked by more, was surprised to find the figures blindly stumbling nearby. They were moving towards me generally, but not on target.
 
-BANG!
+I seized the opportunity and sprinted into the forest. I left the mist, found a trail and followed it. The air was crisp and fresh and trees loomed overhead, mostly conifers. They were spaced out, ferns and fallen logs in between them, and it was deadly silent. Except for my beating heart, pounding footsteps, and the occasional shriek from behind me,  the vegetation absorbed the sound. I reached into the bag once more, and having more time to adjust the timer, set it to thirty minutes. I ripped off the adhesive on the back, and jumped as high as I could and attached it to a tree. 
 
-His body slumped. Instead of taking it away, Shane and Homer lifted the body, and threw it into the nearby water. The current would take it away. Lee picked it up with tongs and threw it to me.   
-Click.  
-I tossed it to the long-haired woman. I thought for a moment that her and the big man might be related, considering their similar facial features, hair, and height.   
-Click.  
-This would soon be dismissed.
+I turned around, a group of about fifteen directly behind me. Some stopped and clambered for the emitter or banged their heads on the trunk, but most showed no signs of slowing down. And so, I was forced to continue this routine. For about ten minutes I ran, leaped over fallen logs, attached more emitters to trees, and eventually shook the soldiers off. I gasped for breath, hands on my knees, and rested on a stump, my back to a steep ridge. My senses were on high alert, and I continuously checked my surroundings, but I was, as far as I could tell, in the clear. 
 
-BANG!
+I stewed, and in spite of the adrenaline and fear, I was furious. The assholes had set me up, no doubt about it; set off the emitters with a remote activation or something. It was a willful, incomprehensible betrayal. So that’s how it was going to be, huh? I was their sacrificial lamb. Not entirely unjustified, I had committed the sin, after all. Fine, if I was to bear this weight, so be it. No, not fine! I would kill them when I got back. I slapped my forehead and it echoed, a bird flying away in response. Of course I couldn’t do that, I would be fired, then what would I have?
 
-She didn’t react.  
-Curtis and Mae had still not returned. Homer was a little confused on how to carry this man. He must’ve been 230 pounds of muscle. Lee clapped his hands. “WOO! Now THAT was a fun one!” He put his arms up in the sky like he was some sort of deity. I suppose to the people of this village, he was, as they started cheering like their team won the Super Bowl. I looked at the men who were betting. One was beating the other. No one was paying attention to them, though. Lee whispered something to Homer and Shane, and they took us away, back to our prisons.
+A deep, trumpeting roar permeated the empty forest, rustling the underbrush and branches.  I sprung up and searched around. It was undoubtedly much louder than the soldiers, and sounded like it came from an elephant. There was nothing in my immediate vicinity, and as far as I could tell, the sound had come from over the ridge. A sardonic smile parted my lips, which were quite dry, cracking and trickling blood. 
 
-My heart was still beating very loudly. I felt dead tired. I collapsed against the ground. The woman with the long hair sat on the other side of the cell. She didn’t say a word. I fell asleep.
+That had to be the queen, no doubt about it. I thought back to the employee manual, and how it explicitly detailed that the queen, to put it simply, served as the command center. When eliminated, it would, if not completely incapacitate the hoard, at the very least disorientate them. Enough that they would be easy pickings for any clean up crew, reduce the danger level, maybe even prevent more casualties. That would be the best case scenario. But I wouldn’t have been too outraged if, by some freak accident, it served as pretext for my revenge. Either way I would win, or I would die.
 
-I woke up many hours later to her looking at the stairs leading out of the basement. She didn’t say anything. “Hey..” I coughed out. She jumped a little. “Uhh… did I scare you?” She breathed. “A little, yeah.” She adjusted herself. “What did they say your name was?” I adjusted myself as well. “Isaac.” She smiled. “Nice to meetcha, Isaac.” I sat still for a second. “You’re not gonna give me your name?” She looked back dismissively. “Does it even matter? Chances are, one of us is going to die in a couple hours.” I looked down again. “You asked me my name, I deserve to know y-” She cut me off. “Do you ever think about what you would do following something like this?” I was confused. She saw my confusion. “This is so… fucked up. Whoever’s ‘lucky’ enough to escape this place is gonna be scarred for life.” I said, “You seem fine to me.” She turned. “Everyone looks fine on the surface. That’s how PTSD works. No one has a look that says, ‘I was raped! I saw my comrades die in war!’ They hide it beneath layers and layers of guilt that only come out at their worst moments.” She paused. “Well, I guess some people do. But those’re only the *really* fucked-up ones.” I chuckled. “Very flowery language you got there.” “Shut your mouth,” she reciprocated.
+I wiped my forehead. It was drenched in blood and sweat, and it streaked across the back of my hand. I inspected it, stark red and dripping down my fingers. Something vaguer arose, a constricting of my heart and a void in my stomach, similar to a tight, sinking feeling. I looked back to the trail, paused a moment, and then clambered up the ridge. 
 
-Day 2
+I grabbed hold of roots and dirt, and slid back a few times, but was able to drag myself over the crest. The entire forest opened up in front of me. It was an inferno of green that spread out into the distance. But, perhaps a half a mile away, there was a hole in the trees, as if a fire had carved it out or a meteor had struck. I slid down the hill, and brazenly marched forward. There was no trail, and I had to duck under branches and fight through underbrush. I stepped into a blackberry bush without realizing, and it scraped and tore my pant leg. I swore and circumnavigated it, and soon arrived at the charred clearing. 
 
-I must’ve fallen asleep again. Homer came in again to grab me. I stood up before he could speak. “Wow! Yer a good doggy, aincha?” The woman had also fallen asleep. He took me to do the same ritual as yesterday. Everything about the feeding ceremony was regular, apart from the fact that we ate in less of a rush. Some of the higher-ups, specifically Lee, seemed impatient. I’m not exactly sure if they expected us to eat faster or what, but we didn’t. The crowd from yesterday had already gathered. I presumed that they had already figured out what we were playing, and that there wouldn’t be any last-second decisions like there were yesterday. Every one of the remaining prisoners looked grim.
+It was large, the size of a small lake, and the trees near the edges were shriveled, their nutrients sucked out. Further in, there were no plants, and the ground was sandy and slopped downwards into a black pit in the ground. Much more hesitant, I inched forward, each step swallowed by the loose ground. The stench of rotting garbage and sewage wafted from the pit, and I covered my nose with my arm. It was overcast now, and the clouds were dark and ready to dump rain any minute.
 
-After we were all finished, Lee clapped his hands. “OH-KAY! I bet y’all are wonderin’ what we’re gonna have you play today!” The crowd cheered. “Make yer guesses right now! What’s the game gunna be?” The audience chattered. Many answers were yelled out. Lee shook his head to each, a sheepish smile on his face. “We’re playin’ volleyball!” He walked toward the group of us. “Hmmm… I think we’re gunna do boys verses gurls. How do y’all feel about that?” The crowd roared. I would have to be working with Santiago. I looked at him. He seemed to be hyperventilating. Then it set in. Either him or his sister were going to die today. I grimly thought, “He’s going to the finals….”
+I got an emitter, tossed it in my hand, considered, and then threw as near as I could to the pit.
 
-The game was set up. Some tattered cloth that appeared to be from a tent was strung in between two trees. We were at the disadvantage, as our side was flooded with water, but it was only ankle-deep and it hardly made a difference. The people of the village didn’t seem to care, as many of the men were gathered behind us. In turn, the women were gathered behind Aurora and the long-haired woman. This was all quite childish, although obviously not being the worst thing to come out of this place. We were waiting for the ball. Santiago actually was crying here. Aurora walked up to the “net” and spoke to him. “Santi… I knew this was gonna happen. You’re gonna have to be strong for me. You’re going to get out of here. The nice man on your team will help you.” She paused to look at me. I played along. “ Whatever happens, I’ll love you.” Santiago sniffed. “B… I’m never gonna see you again…” Aurora’s face looked grim. “Sure you will. Some day, we’ll meet up again.” I grimaced. Even if he won the tournament, that day would be soon.
+A roaring trumpet resounded out of it. I covered my head and nearly doubled over in pain, my ear drums close to bursting. The ground shifted and streamed towards the pit, pulling me with it. I dug and fought against the current, and battled my way back to solid earth. I stood with bated breath, my ears ringing and my vision vibrating from the incoming beast. 
 
-Soon enough, Lee came over with something behind his back. “Well folks, I finally got us a bawl!” Everyone waited in anticipation. Lee couldn’t wait any longer. He pulled it out from behind his back. 
+The queen cascaded out of the pit, lighting struck behind it, and it charged across the clearing with terrifying speed. It was the size of a large car, nearing a miniature bus, and moved more like a liquid than a solid. Hundreds of limbs, body parts, faces, any part of the human body you could think of, bubbled to the surface, reached out and tore at the ground, and refolded into the mass. It was a churning meat grinder of snapping bones and squelching organs. I put my hands up to placate it, and realized this was equivalent to a snake charmer attempting to tame a rampaging elephant.
 
-It was the Indian man’s head.
+“Yahahooo!” I involuntarily exclaimed, and sprinted, hands straight and slicing through the air. 
 
-I tried to hold in the vomit, but I couldn’t. It sank to the bottom of the puddle we were in. I considered fishing it back up, as I wouldn’t be fed again for another 22 hours, but I decided against it. The others could keep their vomit in. Lee walked up to me specifically. “Ohh, are ya supposed tah be on the girls team? Pussy-cat?” I held in my urge to punch his smug face as he made what I assume a person who’s never seen a cat thinks a cat sounds like. It got a chuckle out of the audience. “NOW THEN!” Lee clapped. “LET’S GIT STARTED! FIRST TO 25 WINS!”
+I thought my energy had been spent, but any exhaustion vacated my body. I tore through the blackberry bush, and barely even noticed. Behind me, trees crashed to the ground, and an awful wailing came from the queen. Comparable to what you might hear if you were in a plane crash, men, women, and children, helplessness and lack of control potent, screamed at the top of their lungs. They were often overpowered by the trumpeting, which contained a vastness, as if it were blanketing the entire forest.
 
-He closed his eyes and chucked it at us. Hitting a human head into the air was a lot harder than hitting a ball up. It splotched on my fingers, but I had no time to throw up this time. I hit it up to the other side. Aurora looked freaked out, but she had enough agency to hit the head back up. I wasn’t sure whether this was better or worse than the last game. It didn’t hurt to play, I supposed. It was a volleyball game, with a human head. I wasn’t sure what would happen to the losers, but I came to a conclusion rather quickly.
+To call it a scramble up the ridge would be an understatement. I clenched the ground and flung dirt, threw my arms and legs forward with all my might, and launched myself off any solid root or tree. I crested it,  tossed myself down the hill and went into an uncontrollable roll. I tumbled down, hit my head and somersaulted, but maintained my grip on the bag of emitters. I came to a stop by slamming into a log, and without skipping a beat sprung up and ran down the trail.
 
-Each time the head hit the floor, it broke more. Skin started flaying off, hanging in the wind. I cringed every time I heard a crack. After we had hit 10 points, a pebble hit my head. It disoriented me. All of the people in the opposite crowd had items in their hands. Once the game started, they threw them. Sticks. Stones. Eventually the body parts of the losers of the last game. They made sure to throw them at *us* specifically, not the “ball”. Our side of the crowd did as well, they threw things over the net at the women.
+This time, I turned my head briefly. The queen slid down the hill, a mudslide in her wake, taking entire logs and trees with it. I threw an emitter to try and distract her, but she ignored it and didn’t waver from her chase. All I could repeat to myself, over and over, in equal parts disbelief and disgust: *I had really done it now hadn't I, I had really done it now hadn’t I, I had…* 
 
-This made the next rounds very difficult. By the 20 point mark, we were all bloody and bruised. Each of the rounds went much quicker this way. It was shockingly even. We were trading points.   
-The score was 23-21. After the opposing team scored their 22nd point, that was it for the poor Indian man’s head. It didn’t resemble the man it once was a part of. We started panicking. Lee noticed. “Aw, cain’t you fellers do anything right?” He himself walked away. The crowd was still there and cheering. Was he getting a backup?
+She was gaining on me. I was desperate, and particularly exasperated by the logs that blocked my path. Instead of jumping one, like I normally did, I punched it, and the knuckle dusters splintered a hole clean through and sent sawdust scattering. Once through, and a good distance away, I realized that the crashing of the queen and its cries had reduced in volume. I turned around, and she had slowed, caught in the sawdust that hung in the air. It didn’t take long for her to reorient herself to me and pick up speed. But, comprehending the significance of this, I hit every log I passed, and soon enough the air was saturated with sawdust. The queen screeched, and though she was still on my tail, I was now faster. 
 
-Aurora discussed her plan to let Santiago win with the woman. She seemed to agree. I still hadn’t made up my mind on the *next* game, but I supposed that I had the night to mull it over.   
-Lee returned, but it wasn’t with a head. It was with just the brain of the man with the shot foot. “I decided, considering the game’s almost over, to spice thangs up a lil’ bit! Match point! First one to destroy this brain here (he lowered his voice) loses the game. Play ball!” He sized up both teams, and closed his eyes. He threw from his chest at Aurora. Everything seemed to go in slow motion. She caught what remained of the spinal cord, and whipped it around herself. She let it go. It flew into the net, and started slipping out of it. Santiago dived for it. 
+I thought for a moment, and a lightning bolt flash of an idea struck and almost tripped me. That was right, echolocation, they used echolocation to ‘see’. It wouldn’t blind them, not completely, yet it would give me the slightest bit of wiggle room. Latent self assurance coursed through my veins and gave me an effortless clarity. I felt alive, that I had complete command of my environment. My temples throbbed, not in agitation or distress, but in a pleasurable way, my mental power increasing. A flood of sensations hit me, and I choked back a sob, pushed down the now more well defined emotions, and refocused my attention on the idea and let it carry me forward. 
 
-It hit the ground with a splat.
+I came upon the first of the emitters, the soldiers were circling around the tree and attempting to get to it. I breezed past them, and they didn’t care much at first, until a cry from the queen, which enraged them and sent them in pursuit. While my legs had burned and had been close to collapsing not long ago, they now worked with mechanical efficiency, and my breath came in deep, measured inhales. In front of me and to the side, there was a cracking of branches . 
 
-Santiago looked completely defeated. His face was crestfallen. The crowd parted as Curtis and Mae grabbed the two by the hands. Aurora was sweating and shaking a lot. The black-haired woman seemed numb, I guess like me. She looked at Santiago as she was walking away. She waved goodbye, and disappeared into the crowd. Santiago was in a collapsed position against the ground. He didn’t even cry. He just laid there.
+A soldier was running directly to me, its arms crossed in a straight jacket pose, a wobble from side to side. It threatened to divert me, so I just continued my trajectory, and when it got into range, without thinking I uppercut it. There was a satisfying snapping of its jaw, and it was sent levitating, as if it had been pulled off stage by an invisible string. Any that crossed my path, I disposed of, sending them crashing into trees or bushes. 
 
-Day 3
+In this same manner I battled and reached the clearing in front of the house.  Most of the soldiers there originally had been successfully drawn away. However, a massive group of them was clumped around one of the cars, where, through the bodies, Frank, Emma, Patty and Martin were in a panic, trying to unsuccessfully drive off. The figures hurled themselves against it, headbutting and slapping their limbs, the glass splintering. I looked at the house, and guessed that the bomb was maybe three minutes, or less, from going off. I found the driest patch of dirt I could and stopped. 
 
-I awoke many hours later in the jail cell. I had decided. This was the last time I would awaken. This kid had been through so much…  
-I had felt relatively numb throughout all of these games. I tried to not let the brutality get to me. I felt hollow on the inside, but I knew it was for the best. 
+I hit the knuckle dusters together, built up the charge, and they brimmed with electricity. Then, I got down on my knees, and proceeded to pummel the ground with all my strength and speed. I hit dozens of times, and dense dust billowed upwards, blanketing the entire area. Though I could hardly see a few feet in front of me, I stripped to my underwear as I went to the field and found the scarecrow. I yanked the hat off it, dressed it in my shirt, and tied the emitter bag to it in a tight knot. Just then, the trumpeting of the queen. Hundreds of outlines appeared in the dust, and they dispersed, not able to find me. There were five emitters left, and I reached into the bag and turned them all on
 
-Homer glumly came in. As he unlocked the cell, he murmured, “Why’s today gotta be the last day?” He didn’t speak directly to me at all.   
-The same breakfast ritual as the last two days was prepared for us. It was even less exciting this time. I let the kid eat more than me. It sucked to have my final meal be… this. Cold, soupy gruel with bits of rotting snook mixed in. I kept trying to tell myself that it was for the greater good, but accepting your fate is hard. After I finished, I made a quick prayer, and lined up next to Santiago.
+“Come and get me you fucks!” I yelled.
 
-Lee had a smirk on his face. Not a huge grin, but he had something up his sleeve. “Well, everyone. Today’s the last day! I dunno ‘bout y’all, but this’s been one o’ the best Blood Sport games we’ve had yet! For the final game, I’m gonna let someone else pick the last game.”
+I raised the scarecrow over my head and ran to the house. The queen roared a command, and she and all the figures chased me, disrupting the dust and sending it swirling. I tossed the scarecrow through the door, and dove off the porch, scrambled up and ran to the car. It was abandoned by the figures, and I opened the door and shoved Patty into the middle seat. Snot and tears ran down her face, but she, and all the others, stared slack jawed.
 
-All of the higher-ups perked up. 
+“Go! Go!” I shouted.
 
-“Now, who should it be… well, I know someone who’s been a team player. HOMER! *You* choose the last game o’ the Blood Sports!” The crowd cheered. Homer looked dumbfounded. He came up to Lee. He looked so happy to be doing this. He asked Lee, “Ya gotta deck o’ cards?”
+Frank obeyed, the tires spun, and we shot down the road. Thunder rumbled and the pent of energy of the clouds released, a torrential downpour engulfing us, the rain like bullets on the hood of the car. 
 
-He wanted us to play Blackjack.
+“Should throw them off even more. Not leaving that house anytime soon,” Emma noted, eyes glued to the back window. 
 
-He had us wait until sundown. We returned to our cells, quite pointlessly, for them to sort out some extra details. I had a bit of a nervous break in my cell. Maintaining the cold exterior was useless at this point. Both of us were fucked.
+“Holy shit,” Frank said. “You did it. I mean you really did it.”
 
-When the sky had turned a hazy orange and the fireflies let out their buzzes, they sat us down at a table. They had us put our right hands on the table, and play with the other one.  They then nailed that hand to the table. It hurt like a bitch. The first to five would win. Except, for each round lost, one finger on that hand would be cut off.  
-I was sweating a lot. It was quite humid out, but even if we were in the dead of Antarctica, I would’ve been sweating. Santiago was confused. He seemed to understand the rules of blackjack well enough.
+I glared at him and his eyes flicked to me in the rear-view mirror.
 
-My first draw was an ace and a nine. Shit. Santiago said, “Hit me.” After he got another card, he stood. I said, “Hit me” as well. I got a queen. They couldn’t know I wanted him to win, or else they would kill him straight. The crowd could all see my cards, though. They would know. He had a 19, I had a 20. Santiago gave me a look that asked why I had betrayed him, before Homer stabbed down on his hand. His pinky came off, and he started screaming in a much higher-pitched voice than that he spoke in. Everyone around laughed. He hadn’t gotten over the pain by the time Homer passed out the cards again.
+“Wait, stop!” Martin shouted.
 
- A four and a nine. Okay. Santiago stood. I said, “Hit me.” I got a Jack. Good. Homer stabbed down on my hand before I could think anything else. My hand screamed out in pain. Holy shit did it hurt. Abstract thoughts filled my mind. Images flooded my eyes as I tried my hardest not to scream my throat out. I was panting by the time Homer passed out the cards again. Was letting Santiago win worth it? No, no, it was. I had to keep telling myself that. If I had a stubby hand by the end, it wouldn’t matter, because I would be dead. I tried to tell myself that.
+“What is it?” Frank looked at him in the passenger seat. He pointed in front of us.
 
-I got a King and a 9 the next round. Santiago looked glumly at his cards. He said, “Hit me.” He busted. “No, no wait-” was all he could get out before Homer cut off his ring finger. It must’ve hurt even more now. “Fuck,” was all my absent mind could think as he bawled. Homer passed out the cards again. 
+“It’s… oh God it’s Casey.” 
 
-An ace and a six. Okay, I could work with this. Santiago stood. Bracing myself, I said, “Hit me.” I got a four. We revealed our cards. Just like the first round. 19 and 21. He looked up in abject terror. Then more blood spattered on his face. It seemed to take a second for the pain to register. He almost tore the nail in his hand out from how much he was jumping. Homer said, “Holy sheet! Quit jumpin’ around!” He hit the nail with his mallet again. Santiago looked like he was about to jump up, but he didn’t.
+We all strained to see through the rain and a lighting strike illuminated a tree we were passing. On it, Casey hung, naked, in a crucifix position, blood and rain streaming down his body. Martin turned white as a sheet.
 
-I got a seven and a five. Santiago stood once more. He was getting really unlucky. I hit. A queen. I busted. He was too quick. It was instantaneous. The pain flooded all over me again. I thought I would’ve been more prepared the second time. I really, really thought I would’ve been more prepared… 
+“I’m sorry. I can't stop.”
 
-Homer dealt again. I might have gotten the shittiest hand of all time, a king and a five. I focused on swallowing. Maybe that would dull the pain a bit. **MAYBE THAT WOULD DULL THE PAIN A BIT.** Santiago weakly said, “H…hit…” he got another card. His eyes widened and fear flooded into them. He busted again. His index finger was chopped off. He was down to a thumb. A near-useless hand, in the literal sense. This time, he actually did jump off of the table. Homer swept under him with his foot, and Santiago crashed to the ground. It was like a cartoon. Like a sick, twisted cartoon…  
-This was it. I couldn’t do it. Why did it have to come down to a fucking *luck* game?? Why couldn’t they have us play anything else?
+Martin didn’t respond, and tracked it with his head until it was out of view.
 
-Another hand came. I would have to lose three in a row to get this kid and his mangled hand out of here.   
-I got an ace and a Jack. Santiago couldn’t speak anymore from how light-headed he must’ve been feeling, but he motioned to be hit. He motioned to be hit again. He stood.  
-I got hit again.  
-A queen.
+“How did they even manage that? And the religious significance too, really bizarre,” I muttered.
 
+Martin lunged at me and went for my throat, “You son of a bitch!”
+
+Emma and Frank held him back, but he was thrashing and threatened to swerve the car out of control. Patty shrunk away, in an honestly offensive way, from my nude skin as it brushed against her. What shut us up was the earth shattering boom that came from behind us, a blinding flash, and the car shaking. We all swiveled to get a look. A pink mushroom cloud expanded over the treeline. The rain was blown away and momentarily stopped, and then resumed once more. We all returned to our seats and despondently looked forward.
+
+“Fuckin’ training days,” Frank sighed.
+
+We, but mostly me, were essentially welcomed back to headquarters like royalty. People gathered around us, gave me a pat on the back. Everything else besides the buzz of pride and excitement melted off me. My smile lasted so long that my mouth twitched and I had trouble maintaining it. One man, who seemed notably important, even told me that because I saved them so much money and manpower (mopping up the soldiers was easy work after the queen's death), they would even consider starting the process of reviewing whether I was fit for a raise! Nope, even if it hurt, my smile never left my face. So this is what people complained about? Climbing the corporate ladder was no sweat at all. If I kept this up, who knows where I’d be by next month, I could even have my own office! 
+
+“Drinks on me!” Frank yelled to raucous cheers from the crowd. 
+
+We went to a nearby bar, and the entire crew was there, except Martin who I was frankly over at this point. Let him sulk like the cockroach he is. Here we were, our crew, Emma, Fredrick – who had gotten out and hitchhiked back – Patty and I, toasting and laughing and having a grand old time. It felt really good to be out and about with other people. I couldn’t remember the last time I had. 
+
+“Counting stains?” I said to Patty, who was hunched over and had her eyes fixed on the table.
+
+“Oh… no!” She said, startled. She got up and almost ran to the door. “I have to go, it's been fun!”  
    
-I failed.
+“Okay then!” I said, tipsy.
 
-He didn’t even scream as they grabbed him and gave him to the crowd to be lynched. He didn’t really react, or flinch. They beat him with stones or other blunt tools. I felt so hollow at that moment. He was fourteen. He was fourteen…
+I wobbled over to Emma. She was doing shots, a pile of glasses near her.
 
-After a send-off, they sent me on my way. I walked back home. Back to Cape Coral. Whatever bullshit my company wanted me to do in Miami was irrelevant at this point. I was surprised I didn’t die of blood loss within the same night.   
-It took me almost until midday the next day to find someone to bring me home. I was too shaken up to tell them what happened. They deposited me at a hospital. 
+“Ha-have you seen Frank,” I hiccuped.
 
-I guess I got off pretty lightly. I suppose I should be happy I left with my life. After all, I only lost two fingers.  
-It made this story a bitch to write.
+“I think back there somewhere.” She nodded to the back room of the bar.
+
+“*Thankkk youuuu*. You’re a really cool person, you know that?”  
+
+“Ditto!”
+
+I walked to a door, a sign over it that said ‘*Smoking Lounge’.* Inside, cigarette smoke floated and curled around every surface, wispy, as if we were in a cloud. It reeked of tar, stuck to my throat and nostrils, no amount of coughing dislodging it.  There were a few pool tables, the clinking of balls and some laughter. But for the most part people nursed their drinks, in booths and on stools, alone and shrouded in smoke, their own cigarettes in hand, each a single stream contributing to the collective haze. A jukebox in the corner played a slow tempo, 50s or 60s song. The woman’s ghastly voice floated through the air with the smoke.
+
+Frank was in a booth in the corner, head in his arms and table covered with empty beer glasses.
+
+“Yo Frank!” I said and slid into the booth across from him. 
+
+He raised his head, in a swaying stupor. His eyes were unfocused, but when they met mine they widened a bit and became glossy. 
+
+“Hey,”  he responded
+
+We sat in silence for a bit, the song waltzing around us.
+
+“You know, I met Willy twenty years ago. We were training partners.” He raised a glass in toast, downed it, and hacked a cough. 
+
+I watched him and played with my thumbs.  “That’s tough.” 
+
+He suddenly reached across the table and grabbed my hands. “I’m… I’m so sorry… I didn’t mean to… with the emitters…”
+
+We looked at each other.
+
+“It’s all fine man, water under the bridge.”
+
+I had sobered up rapidly, not sure how to handle this situation. It was true, however, and I even surprised myself by how little of a grudge I held. Not the norm for me at all. 
+
+“I just…” he sputtered. “I’ve gone through so many apprentices, and I told myself… I says to myself, never again, you don’t lose another one…”
+
+He started sobbing, a dry heave, as if it was his first time crying in years. I leaned away.
+
+“I see them…” he whispered
+
+“Who?”
+
+“At night, in the mirror, around the corner. All of them. Oh God forgive me. Forgive me Stevie!”
+
+“It’s all good man.” I got up, patted his shoulder awkwardly, left him crying into his hands on the table, and went back to the party. 
+
+It was late when I stumbled out of the bar. It was deserted, except for a single black van parked across the street. I eyed it, then walked down the sidewalk, hands in pockets. A flash of light startled me. I turned around, and the van was driving away. There were a few streetlights that flickered, and so I blamed those. In my drunkenness, I quickly forgot the incident, and whistled as I walked home, my mind on my bright future.
+
+[Part 4](https://www.reddit.com/r/nosleep/s/pyFOWfYQgK)
