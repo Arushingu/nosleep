@@ -1,174 +1,386 @@
-# My First Job After College Was More Horrific Than I Could’ve Ever Imagined [Part 3]
-[Part 1](https://www.reddit.com/r/nosleep/s/UUXnEvHJhH)
+# My apartment got quarantined by the government.
+The mid autumn breeze blew at the back of my neck as I pushed through the door of my apartment building. Sam, the night guard looked up from his desk and gave me a wave, “Late night, huh?” 
 
-[Part 2](https://www.reddit.com/r/nosleep/s/2RLieHMxCO)
+I nodded and hurried to the elevator, feeling the grocery bags I was carrying staining at the seams. 
 
-The plan was simple in principle, but complicated by a few facts. The first was purely external: we were surrounded on all sides by a swarm of flesh eating corpses, designated as ‘soldiers’ due to their following a queen. Further complicating the plan was that it involved luring them away from the house. Fine for the people inside, not so great for Casey, Fredrick, and I, who would be doing the drawing away. 
+“Oh, hey let me get that for you.” He said, standing up and getting the button.
 
-Not to mention, they would have particular interest in us. Quite smart from Frank, we’d be carrying the emitters. They produce a special frequency, one that is very agitating, disrupting the soldiers echolocation and sending them into a rage and a blind chase to stop it. Therefore, they’d be focused on us, and then the trees we would be attaching the emitters to, preferably as far away as possible. 
+“Thanks, Sam.” I said, hoping that bags held at least until I got to my floor.
 
-That could be manageable if it wasn’t for the main complication, which was internal: I was shitting myself. Not literally, but damn near close. I had those anxiety farts, the ones that smell something awful. Like a rat died in your stomach and people can’t even politely ignore. You can usually do that, pretend nothing is amiss and silently judge. But not here, the stench was unavoidable and so were the faces that confirmed one had inhaled it. I stood by the front door, pretending to ignore said faces, and dug my thumb nail into the side of my pointer finger until it bled. 
+He smiled, turning up the edges of his white mustache, “No problem, Josh.”
 
-If I didn’t do this, I was screwed. I wouldn’t be able to live with myself, for one, the guilt and all. More selfishly I preferred not to live on the streets, and that would undoubtedly happen if my mom found out I was fired for causing multiple fatalities at work. Indirectly? Is one responsible for the tornado of karma one generates and the destruction it wreaks? I guess that’s up for God to decide. All I knew for sure was I felt like I was getting ready to run the one hundred meter dash. Frank's hand at the door, me and the others poised to run. All that was needed was the starting *bang* and we’d be off.
+We stood there in the lobby in silence, waiting for the elevator. I watched as the numbers began counting down from 15. 
 
-Accordingly, Emma was near the window, one of those hose contraptions called a suction-burst in hand. A small metal rod was inserted over the trigger, duct tape to keep it in place, and a wild smile on her face. We had cleared the impact zone, and she said she understood the physics of this. Claimed that it was an uninterrupted stream that would shoot straight out. All that was left was for her to tighten and adhere the tape. If this was even necessary, or if she was just bullshiting, I couldn’t deny she was having a blast. It was unbelievable. *Psychoooooo* bitch. Maybe Fredrick was right. Not about the sexism, I don’t like her for less prejudiced and more personal reasons; but I did not want to be in this landmine house a second longer either.
+“Some weather we’re having, huh?” Said Sam.
 
-“Remember, you have around thirty minutes. The bomb’ll mask our escape in the car. So if you can make it out, keep going, don’t come back,” Frank said. “You each have a bag of fifteen, space them out about twenty feet apart. Knuckle dusters should save you in a pinch.”
+I nodded watching the oh so slowly descending elevator numbers. “Yeah. It’s uh… getting cool out there.”
 
-Martin handed us each a sack filled with emitters, along with brass knuckles that had coils on their ends and wires that fed into them. I put them on, and hit them against each other, generating a spark of energy. Everyone's eyes were focused on the door, and awaiting Frank's command. He nodded at Emma, who, with relish, taped the rod to the trigger, waited for the engine to rev up, and let go.
+Sam nodded and smiled. 
 
- It was a smooth, expertly timed motion. If she let go too soon, in all likelihood it would have dropped and spun around the room, killing us all. Too late, and it would’ve taken off her hands. As it was, it blasted pink energy out, blowing out the floor boards where no one was standing, shattered the window, and shot out like a rocket. 
+God, I wished the elevator would hurry. Sam was a good guy but it was late and I was in no mood for small talk. 
 
-“Go!” Frank shouted and flung open the door.
+I looked back at the numbers, it was at the 8th floor now. I sighed. 
 
-I was the first one out, shoved by Casey and Fredrick behind. On the porch, I just caught the suction-burst soar through the air, hit the treeline, fall to the ground, and spin around. The soldiers nearest were torn in half, their blood splattering the trees and grass. It would not be an exaggeration to say that there must have been thousands of them outside. Some were large, much larger than any person could be, and others were average or even small. Most were proportioned normally, but a few had extra limbs or eyes. The eyes contained that same bewildered, conscious misery and horror, darting around and wet with crying. In the field, on the steps, they were drawn to the commotion, and shambled towards it. 
+“Tough week?” 
 
-The tape must have loosened, as with a final few sputters, the energy beam died down. But, it gave us just enough of an opening, a path between them, to sprint down the steps, and each run in opposite directions, weaving and shoving past figures. 
+I forced a smile and cleared my throat, “Yeah, yeah. It’s just been a long one.”
 
-My destination was directly ahead, to the woods in front of the house. I ran on the barren dirt, a sharp line between it and overgrown grass. About twenty feet, I passed a scarecrow. It had a straw hat and black rock eyes. It gave me a start, as I thought it was a soldier, yet they were generally still distracted. Only a few turned around and moved in a lazy fashion, as if they weren’t entirely aware of us. I stuck my tongue out at it, and the universe, or the scarecrow if it was secretly alive, swiftly punished my insolence: my bag shook and vibrated violently, all of the emitters going off at once. The figures snapped to me, each letting out a screech and convulsing, covering their heads. The bag stilled after a few seconds, but the damage had been done.
+The florescent lights of the lobby hummed overhead as the numbers descended. 
 
-In shock, I looked at the house, where those inside were piling at the window and watching. Martin made a mock pouting face, and Frank mouthed something, maybe an apology, and gave me a thumbs up. 
+I felt Sam turn to me, about to say something else. When suddenly the quiet of the lobby was interrupted by someone pushing through the door from the street.
 
-“What!” I shouted and Frank cringed.
+The man stepped into the lobby, coughing violently. He stepped over to a wooden bench that sat next to the rows of mailboxes and plopped down, continuing to cough. 
 
-The soldiers charged at me, some on all fours and others arms flailing at their sides. I ran, pushed my legs as hard as I could, and reached into the bag and clutched an emitter. It had a timer, set to three seconds, and an activation button. I blindly increased the timer, pressed the button and tossed it with all my strength into the field. A lion's share of the figures sharply turned and followed it, but many were still on my tail. When I made it to the trees a few stepped out and blocked my path. 
+Sam and I had both turned to look at the man, he was thin, maybe mid forties with thinning greasy dark hair and a long gray overcoat that was stained with… I didn’t want I guess with what. 
 
-One lunged at me, falling into me with its weight and tearing at my skin and shirt. I pushed it off, and hit it with my fist. Its chest exploded with blood, it fell to the ground, and I got on top of it and pummeled with a guttural roar. I punched through bones and organs, the sparks and electricity from the knuckle dusters eviscerating them, and finally the ground. Dust and blood erupted up, blanketing the surrounding area in a rusty red mist. I pushed myself up, and, expecting to be attacked by more, was surprised to find the figures blindly stumbling nearby. They were moving towards me generally, but not on target.
+The man looked up as Sam started towards him.
 
-I seized the opportunity and sprinted into the forest. I left the mist, found a trail and followed it. The air was crisp and fresh and trees loomed overhead, mostly conifers. They were spaced out, ferns and fallen logs in between them, and it was deadly silent. Except for my beating heart, pounding footsteps, and the occasional shriek from behind me,  the vegetation absorbed the sound. I reached into the bag once more, and having more time to adjust the timer, set it to thirty minutes. I ripped off the adhesive on the back, and jumped as high as I could and attached it to a tree. 
+“Geez pal, you sound pretty rough.” Said Sam. 
 
-I turned around, a group of about fifteen directly behind me. Some stopped and clambered for the emitter or banged their heads on the trunk, but most showed no signs of slowing down. And so, I was forced to continue this routine. For about ten minutes I ran, leaped over fallen logs, attached more emitters to trees, and eventually shook the soldiers off. I gasped for breath, hands on my knees, and rested on a stump, my back to a steep ridge. My senses were on high alert, and I continuously checked my surroundings, but I was, as far as I could tell, in the clear. 
+The man nodded and continued coughing as the elevator dinged open. 
 
-I stewed, and in spite of the adrenaline and fear, I was furious. The assholes had set me up, no doubt about it; set off the emitters with a remote activation or something. It was a willful, incomprehensible betrayal. So that’s how it was going to be, huh? I was their sacrificial lamb. Not entirely unjustified, I had committed the sin, after all. Fine, if I was to bear this weight, so be it. No, not fine! I would kill them when I got back. I slapped my forehead and it echoed, a bird flying away in response. Of course I couldn’t do that, I would be fired, then what would I have?
+Sam turned back to me apologetically, “Shoot, Josh. I was gonna help you up, but…” He said, tilting his head toward the ill man.
 
-A deep, trumpeting roar permeated the empty forest, rustling the underbrush and branches.  I sprung up and searched around. It was undoubtedly much louder than the soldiers, and sounded like it came from an elephant. There was nothing in my immediate vicinity, and as far as I could tell, the sound had come from over the ridge. A sardonic smile parted my lips, which were quite dry, cracking and trickling blood. 
+I shook my head, “Oh no, I’m fine.” I said, feeling a bit relieved, “I think he needs help more than I do.”
 
-That had to be the queen, no doubt about it. I thought back to the employee manual, and how it explicitly detailed that the queen, to put it simply, served as the command center. When eliminated, it would, if not completely incapacitate the hoard, at the very least disorientate them. Enough that they would be easy pickings for any clean up crew, reduce the danger level, maybe even prevent more casualties. That would be the best case scenario. But I wouldn’t have been too outraged if, by some freak accident, it served as pretext for my revenge. Either way I would win, or I would die.
+I stepped into the elevator and pushed the button with the toe of my shoe. He nodded and turned away to face the man. I heard him ask the coughing man. “Buddy, is there someone I can call for you?” But the doors closed before I could hear the mans answer. 
 
-I wiped my forehead. It was drenched in blood and sweat, and it streaked across the back of my hand. I inspected it, stark red and dripping down my fingers. Something vaguer arose, a constricting of my heart and a void in my stomach, similar to a tight, sinking feeling. I looked back to the trail, paused a moment, and then clambered up the ridge. 
+A few moments later, the elevator doors slid open on the 7th floor and I stepped out to see a man in a baggy sweatshirt shouting and banging on a door down the hall. “Shit.” I sighed.
 
-I grabbed hold of roots and dirt, and slid back a few times, but was able to drag myself over the crest. The entire forest opened up in front of me. It was an inferno of green that spread out into the distance. But, perhaps a half a mile away, there was a hole in the trees, as if a fire had carved it out or a meteor had struck. I slid down the hill, and brazenly marched forward. There was no trail, and I had to duck under branches and fight through underbrush. I stepped into a blackberry bush without realizing, and it scraped and tore my pant leg. I swore and circumnavigated it, and soon arrived at the charred clearing. 
+I walked down the long hallway trying to avoid the situation. Unfortunately the situation was happening at the door across from mine. The man turned to look at me as I approached.
 
-It was large, the size of a small lake, and the trees near the edges were shriveled, their nutrients sucked out. Further in, there were no plants, and the ground was sandy and slopped downwards into a black pit in the ground. Much more hesitant, I inched forward, each step swallowed by the loose ground. The stench of rotting garbage and sewage wafted from the pit, and I covered my nose with my arm. It was overcast now, and the clouds were dark and ready to dump rain any minute.
+“What?” He shouted. “You got a fucking problem?” 
 
-I got an emitter, tossed it in my hand, considered, and then threw as near as I could to the pit.
+The door he had been pounding on swung open and a woman stepped out into the hall, throwing a duffle bag at his chest. “Take your shit and go!” She shouted. 
 
-A roaring trumpet resounded out of it. I covered my head and nearly doubled over in pain, my ear drums close to bursting. The ground shifted and streamed towards the pit, pulling me with it. I dug and fought against the current, and battled my way back to solid earth. I stood with bated breath, my ears ringing and my vision vibrating from the incoming beast. 
+And that was when the grocery bags decided to rip. Cans of knock off spaghetti o’s, spam, ramen noodles, a jug of lactose free milk and other pathetic food stuff spilled out onto the floor. 
 
-The queen cascaded out of the pit, lighting struck behind it, and it charged across the clearing with terrifying speed. It was the size of a large car, nearing a miniature bus, and moved more like a liquid than a solid. Hundreds of limbs, body parts, faces, any part of the human body you could think of, bubbled to the surface, reached out and tore at the ground, and refolded into the mass. It was a churning meat grinder of snapping bones and squelching organs. I put my hands up to placate it, and realized this was equivalent to a snake charmer attempting to tame a rampaging elephant.
+The fighting couple turned to look at me as silence filled the hall. 
 
-“Yahahooo!” I involuntarily exclaimed, and sprinted, hands straight and slicing through the air. 
+I made my Jim Halpert face as I looked from them to my fallen groceries. 
 
-I thought my energy had been spent, but any exhaustion vacated my body. I tore through the blackberry bush, and barely even noticed. Behind me, trees crashed to the ground, and an awful wailing came from the queen. Comparable to what you might hear if you were in a plane crash, men, women, and children, helplessness and lack of control potent, screamed at the top of their lungs. They were often overpowered by the trumpeting, which contained a vastness, as if it were blanketing the entire forest.
+The man shook his head, “Whatever, I’m out of here.” Before storming off down the hall. 
 
-To call it a scramble up the ridge would be an understatement. I clenched the ground and flung dirt, threw my arms and legs forward with all my might, and launched myself off any solid root or tree. I crested it,  tossed myself down the hill and went into an uncontrollable roll. I tumbled down, hit my head and somersaulted, but maintained my grip on the bag of emitters. I came to a stop by slamming into a log, and without skipping a beat sprung up and ran down the trail.
+I sighed and bent to start picking up my things. 
 
-This time, I turned my head briefly. The queen slid down the hill, a mudslide in her wake, taking entire logs and trees with it. I threw an emitter to try and distract her, but she ignored it and didn’t waver from her chase. All I could repeat to myself, over and over, in equal parts disbelief and disgust: *I had really done it now hadn't I, I had really done it now hadn’t I, I had…* 
+“Here, let me help.” Said the woman as she bent to pick up a can of beans that had rolled over by her door. 
 
-She was gaining on me. I was desperate, and particularly exasperated by the logs that blocked my path. Instead of jumping one, like I normally did, I punched it, and the knuckle dusters splintered a hole clean through and sent sawdust scattering. Once through, and a good distance away, I realized that the crashing of the queen and its cries had reduced in volume. I turned around, and she had slowed, caught in the sawdust that hung in the air. It didn’t take long for her to reorient herself to me and pick up speed. But, comprehending the significance of this, I hit every log I passed, and soon enough the air was saturated with sawdust. The queen screeched, and though she was still on my tail, I was now faster. 
+“Thanks, I’m Josh by the way.” I said with a smile. “I live across the hall.”
 
-I thought for a moment, and a lightning bolt flash of an idea struck and almost tripped me. That was right, echolocation, they used echolocation to ‘see’. It wouldn’t blind them, not completely, yet it would give me the slightest bit of wiggle room. Latent self assurance coursed through my veins and gave me an effortless clarity. I felt alive, that I had complete command of my environment. My temples throbbed, not in agitation or distress, but in a pleasurable way, my mental power increasing. A flood of sensations hit me, and I choked back a sob, pushed down the now more well defined emotions, and refocused my attention on the idea and let it carry me forward. 
+She nodded and smiled back, “I’m Rosa. We just moved in… well, I guess it’s just me now.” 
 
-I came upon the first of the emitters, the soldiers were circling around the tree and attempting to get to it. I breezed past them, and they didn’t care much at first, until a cry from the queen, which enraged them and sent them in pursuit. While my legs had burned and had been close to collapsing not long ago, they now worked with mechanical efficiency, and my breath came in deep, measured inhales. In front of me and to the side, there was a cracking of branches . 
+“Yeah, I uh… I saw. Sorry.” I said, feeling awkward. 
 
-A soldier was running directly to me, its arms crossed in a straight jacket pose, a wobble from side to side. It threatened to divert me, so I just continued my trajectory, and when it got into range, without thinking I uppercut it. There was a satisfying snapping of its jaw, and it was sent levitating, as if it had been pulled off stage by an invisible string. Any that crossed my path, I disposed of, sending them crashing into trees or bushes. 
+Rosa shook her head, “Don’t be, he’s a pendejo.” 
 
-In this same manner I battled and reached the clearing in front of the house.  Most of the soldiers there originally had been successfully drawn away. However, a massive group of them was clumped around one of the cars, where, through the bodies, Frank, Emma, Patty and Martin were in a panic, trying to unsuccessfully drive off. The figures hurled themselves against it, headbutting and slapping their limbs, the glass splintering. I looked at the house, and guessed that the bomb was maybe three minutes, or less, from going off. I found the driest patch of dirt I could and stopped. 
+I stood and unlocked my door. Rosa helped me bring in my groceries and looked around at my messy apartment. 
 
-I hit the knuckle dusters together, built up the charge, and they brimmed with electricity. Then, I got down on my knees, and proceeded to pummel the ground with all my strength and speed. I hit dozens of times, and dense dust billowed upwards, blanketing the entire area. Though I could hardly see a few feet in front of me, I stripped to my underwear as I went to the field and found the scarecrow. I yanked the hat off it, dressed it in my shirt, and tied the emitter bag to it in a tight knot. Just then, the trumpeting of the queen. Hundreds of outlines appeared in the dust, and they dispersed, not able to find me. There were five emitters left, and I reached into the bag and turned them all on
+“Sorry about the mess.” I said, “I haven’t entertained in a while.” 
 
-“Come and get me you fucks!” I yelled.
+She shrugged, “Its fine, you should see mine. Still full of moving boxes, and only half of its mine.” 
 
-I raised the scarecrow over my head and ran to the house. The queen roared a command, and she and all the figures chased me, disrupting the dust and sending it swirling. I tossed the scarecrow through the door, and dove off the porch, scrambled up and ran to the car. It was abandoned by the figures, and I opened the door and shoved Patty into the middle seat. Snot and tears ran down her face, but she, and all the others, stared slack jawed.
+“Well, thanks for the help.” I said as she turned to leave, “And sorry about the uh… pendejo.” 
 
-“Go! Go!” I shouted.
+She laughed, “His name is Steve.” 
 
-Frank obeyed, the tires spun, and we shot down the road. Thunder rumbled and the pent of energy of the clouds released, a torrential downpour engulfing us, the rain like bullets on the hood of the car. 
+“Think I prefer pendejo.” I said with a smile. 
 
-“Should throw them off even more. Not leaving that house anytime soon,” Emma noted, eyes glued to the back window. 
+“I’ll see you around Josh.” Said Rosa as she smiled back and closed the door. 
 
-“Holy shit,” Frank said. “You did it. I mean you really did it.”
+I turned away from the door, and began putting my groceries away. I went to bed that night thinking I might like to get to know Rosa better. 
 
-I glared at him and his eyes flicked to me in the rear-view mirror.
+The next morning when I stepped out of the elevator into the lobby, I was greeted by what was essentially an angry mob. The building tenants were in an uproar. I pushed through the crowd to get to my mailbox, only to find it empty.
 
-“Wait, stop!” Martin shouted.
+“No mail today!” Someone shouted.
 
-“What is it?” Frank looked at him in the passenger seat. He pointed in front of us.
+I turned to see Frank, the grumpy old Vietnam vet who lived on the floor above mine, standing by the security desk.
 
-“It’s… oh God it’s Casey.” 
+“What’s going on?” I shouted. 
 
-We all strained to see through the rain and a lighting strike illuminated a tree we were passing. On it, Casey hung, naked, in a crucifix position, blood and rain streaming down his body. Martin turned white as a sheet.
+He pointed to the door, “See for yourself.”
 
-“I’m sorry. I can't stop.”
+Instead of pushing through the crowd, I stepped up onto a bench to see over the bobbing heads.
 
-Martin didn’t respond, and tracked it with his head until it was out of view.
+There were chains on the outside of the lobby doors. And what looked like heavy gage chain link fencing across the entire front of the building. 
 
-“How did they even manage that? And the religious significance too, really bizarre,” I muttered.
+“What’s happening?” Asked Rosa as she stepped onto the bench next to me.
 
-Martin lunged at me and went for my throat, “You son of a bitch!”
+I shook my head, “I don’t know. It looks like the building as been locked down.” 
 
-Emma and Frank held him back, but he was thrashing and threatened to swerve the car out of control. Patty shrunk away, in an honestly offensive way, from my nude skin as it brushed against her. What shut us up was the earth shattering boom that came from behind us, a blinding flash, and the car shaking. We all swiveled to get a look. A pink mushroom cloud expanded over the treeline. The rain was blown away and momentarily stopped, and then resumed once more. We all returned to our seats and despondently looked forward.
+“What? Why?” she asked, “I have to be at work in two hours.”
 
-“Fuckin’ training days,” Frank sighed.
+I was about to say something else when the building intercom squealed to life. “Attention residents of Pine Hills Apartments. Due to a potentially contagious viral outbreak, the building is now under quarantine.” 
 
-We, but mostly me, were essentially welcomed back to headquarters like royalty. People gathered around us, gave me a pat on the back. Everything else besides the buzz of pride and excitement melted off me. My smile lasted so long that my mouth twitched and I had trouble maintaining it. One man, who seemed notably important, even told me that because I saved them so much money and manpower (mopping up the soldiers was easy work after the queen's death), they would even consider starting the process of reviewing whether I was fit for a raise! Nope, even if it hurt, my smile never left my face. So this is what people complained about? Climbing the corporate ladder was no sweat at all. If I kept this up, who knows where I’d be by next month, I could even have my own office! 
+The tenants quieted, listening to the speaker, some backed away from the crowd, looking weary.
 
-“Drinks on me!” Frank yelled to raucous cheers from the crowd. 
+Immediately, I thought of the coughing man from last night and wondered if Sam was okay.
 
-We went to a nearby bar, and the entire crew was there, except Martin who I was frankly over at this point. Let him sulk like the cockroach he is. Here we were, our crew, Emma, Fredrick – who had gotten out and hitchhiked back – Patty and I, toasting and laughing and having a grand old time. It felt really good to be out and about with other people. I couldn’t remember the last time I had. 
+“How long are we stuck here?” Someone shouted. 
 
-“Counting stains?” I said to Patty, who was hunched over and had her eyes fixed on the table.
+I couldn’t tell where the person speaking was, but I assumed they were tapped into the intercom from outside. That had to be listening though, because the next thing they said was, “We are working on a time table right now. But due to the severity of the situation, we can’t give any more details. We advise you all to return to your apartments and self isolate for the time being.” 
 
-“Oh… no!” She said, startled. She got up and almost ran to the door. “I have to go, it's been fun!”  
-   
-“Okay then!” I said, tipsy.
+The people shouted more protests about civil rights, their jobs, and other such concerns. But the intercom stayed silent. 
 
-I wobbled over to Emma. She was doing shots, a pile of glasses near her.
+Eventually the residents started to trickle back to the elevators and stairwells. Eyeing anyone who so much as sniffed with a cold suspicion. 
 
-“Ha-have you seen Frank,” I hiccuped.
+“Great. Now I have to go call work and tell them I’m stuck in a petri dish.” Said Rosa as she hopped down from the bench and headed for the elevator. “See ya.” She said with a half wave over her shoulder, already looking at her phone.
 
-“I think back there somewhere.” She nodded to the back room of the bar.
+“Bye.” I mumbled as she left.
 
-“*Thankkk youuuu*. You’re a really cool person, you know that?”  
+I noticed Frank, watching me from the other side of the slowly emptying lobby. I made my way over to stand next to him.
 
-“Ditto!”
+“You believe this shit?” He asked with a nod to the door.
 
-I walked to a door, a sign over it that said ‘*Smoking Lounge’.* Inside, cigarette smoke floated and curled around every surface, wispy, as if we were in a cloud. It reeked of tar, stuck to my throat and nostrils, no amount of coughing dislodging it.  There were a few pool tables, the clinking of balls and some laughter. But for the most part people nursed their drinks, in booths and on stools, alone and shrouded in smoke, their own cigarettes in hand, each a single stream contributing to the collective haze. A jukebox in the corner played a slow tempo, 50s or 60s song. The woman’s ghastly voice floated through the air with the smoke.
+I shrugged, “I don’t know. Do you?” 
 
-Frank was in a booth in the corner, head in his arms and table covered with empty beer glasses.
+He shook his head adjusted the green ball cap he wore. “Not for a God damn second.” 
 
-“Yo Frank!” I said and slid into the booth across from him. 
+“You don’t think there is a virus?” I asked. 
 
-He raised his head, in a swaying stupor. His eyes were unfocused, but when they met mine they widened a bit and became glossy. 
+“Oh, I’m sure there is.” He said in his gravely voice. “But I think they know a whole lot more about it than they’re letting on. Working on a time table, my ass. Hell, kid, I wouldn’t be surprised if they put the shit in here their selves.”
 
-“Hey,”  he responded
+I raised an eyebrow at him. “You know how paranoid that sounds?”
 
-We sat in silence for a bit, the song waltzing around us.
+He smiled, “Hey, just because I’m paranoid, don’t mean they ain’t out to get me.” 
 
-“You know, I met Willy twenty years ago. We were training partners.” He raised a glass in toast, downed it, and hacked a cough. 
+I smiled back, “Right.” 
 
-I watched him and played with my thumbs.  “That’s tough.” 
+Frank was known to be a hateful old grouch to most people in the building. But for some reason we had hit it off. I chalked it up to us both being relatively unsociable and reclusive.
 
-He suddenly reached across the table and grabbed my hands. “I’m… I’m so sorry… I didn’t mean to… with the emitters…”
+“By the way,” He said, “Whose your new lady friend.”
 
-We looked at each other.
+I rolled my eyes at his use of “lady friend.” “Her name is Rosa. She’s my new neighbor.” 
 
-“It’s all fine man, water under the bridge.”
+Frank nodded and winked. “I could think of worse neighbors to have.” 
 
-I had sobered up rapidly, not sure how to handle this situation. It was true, however, and I even surprised myself by how little of a grudge I held. Not the norm for me at all. 
+I shook my head and I patted the old dog on the shoulder, “Good talking with you, Frank. I think I’m gonna head up now.” 
 
-“I just…” he sputtered. “I’ve gone through so many apprentices, and I told myself… I says to myself, never again, you don’t lose another one…”
+He nodded, “Sure, but hey, Josh.”  
 
-He started sobbing, a dry heave, as if it was his first time crying in years. I leaned away.
+I turned back to face him. 
 
-“I see them…” he whispered
+“You be careful, alright.” He said seriously. “And if you need anything, anything at all, you know where to find me.”
 
-“Who?”
+I nodded my thanks and headed for the elevator. 
 
-“At night, in the mirror, around the corner. All of them. Oh God forgive me. Forgive me Stevie!”
+When I stepped onto my floor. The first thing that struck me was the silence. It stood in stark contrast to the uproar that had been going on down in the lobby. 
 
-“It’s all good man.” I got up, patted his shoulder awkwardly, left him crying into his hands on the table, and went back to the party. 
+As I walked down the long gray carpeted hall, a sound caught my ear. I stopped just outside Mrs. Johnson’s door and listened to the coughing that came from within. “Damn.” I thought. She sounded terrible. Part of me wanted to reach out and knock on her door to ask if she needed anything. But after a moment of hesitation, I listened to the voice of caution in my head and walked away.
 
-It was late when I stumbled out of the bar. It was deserted, except for a single black van parked across the street. I eyed it, then walked down the sidewalk, hands in pockets. A flash of light startled me. I turned around, and the van was driving away. There were a few streetlights that flickered, and so I blamed those. In my drunkenness, I quickly forgot the incident, and whistled as I walked home, my mind on my bright future.
+The rest of the day passed without much event. I sat on the couch, ate junk food, played video games and watched TV. I thought about going across the hall and asking Rosa if she wanted to watch a movie or something, but decided against it. They had said to self isolate after all.
 
-[Part 4](https://www.reddit.com/r/nosleep/s/pyFOWfYQgK)
+It was around 9:30 PM when I heard a knock on my door. I looked through the peep hole to see Rosa standing there, a concerned look on her face.
+
+I brushed crumbs off my shirt and gave a glance around to the apartment that I still hadn’t cleaned and opened the door. 
+
+“Hey.” I said.
+
+“Do you hear that?” She asked, pointing down the hall to Mrs. Johnson’s door. 
+
+From out in the hall, I could hear that the coughing had gotten significantly worse. I grimaced, “Holy shit. I heard her coughing earlier but it was nowhere near that bad.”
+
+“Should we do something?” She asked.
+
+I shrugged, “I mean, I guess we could call 911 but with the lockdown, I don’t know if they would even come.”
+
+“That’s the other thing.” Said Rosa turning to face me, “Do you have any service?”
+
+I turned and picked up my phone from the counter, no signal. “Huh.” I muttered, “No, I got nothing.” 
+
+“I don’t either.” She said, coming in and sitting at my table. “I’ve been trying to call work all day but I can’t get any reception.”
+
+I sat down at the table across from her, “That’s weird. Maybe a tower is down or something?” 
+
+She shrugged, “Maybe. Odd timing though.” 
+
+I was thinking the same thing, Frank’s paranoid mentality had began to rub off on me.
+
+“So what do you do for work?” I asked, changing the subject.
+
+“ER nurse.” She said, “That is, if I still have a job. I’m way late for my shift.”
+
+“Well that sounds exciting.” I Said.
+
+“It can be.” She said with a nod, “What about you?” 
+
+“Nothing exciting at all, I’m a writer. Well, a journalist actually.” I said.
+
+“Oh, anything I might have read?” she asked.
+
+I shook my head, “Not unless you make a habit of reading about local dog shows or the new flag pole at City Hall.” 
+
+Suddenly we heard the sound of a door flinging open down the hall, accompanied by violent, racking, wet coughs. 
+
+Rosa and I stood slowly and stepped over to my still open door. Peeking around the door jam, we saw Mrs. Johnson stumbling down the hall. She was bent over, hacking up dark chunks of viscous fluid. She looked up at us, tears running down her face, the same dark ooze dripped from her nose. And then she broke into a dead sprint down the hall, straight at us. 
+
+I grabbed Rosa, who had been stepping out into the hall, and pulled her back into my apartment, I slammed to door shut and turned the dead bolt. Mrs. Johnson began pounding violently on the heavy door, coughing and screaming. 
+
+“What the fuck!” I exclaimed, stepping back from the door. 
+
+Rosa didn’t speak, her eyes were fixed on the door as it shook from the battering of an 82 year old woman. 
+
+We stood there in shocked silence as the banging on the door slowly stopped. After a moment more, we heard footsteps receding down the hallway.
+
+When Rosa finally did speak, all she said was, “Can I stay here tonight?” 
+
+I nodded wordlessly.
+
+The building intercom sounded. “Attention residents of Pine Hills. Do not open your doors. Do not check on your neighbors. Do not leave your apartments. There is a biological vector inside the building.”
+
+We looked at each other in shocked disbelief.  What the hell was going on? 
+
+I offered Rosa my bed but she refused, opting to sleep on the couch instead. The next morning we ate cereal and flicked through the local news stations, hoping to see something about our building and what was going on. But there was no coverage of our situation at all. I was sure Frank would have something to say about that.
+
+I turned to Rosa on the couch and asked, “You work at the hospital right? Do you have any idea what’s going on? What contagion that could have been?.” 
+
+She sat down her bowl and shook her head, “I mostly deal with cuts and broken bones, stomach flu at the worst. I’ve never seen anything like that.” 
+
+“I don’t understand how she was so fast. And her strength? I mean, I was worried for a minute that she would knock the door down.” I said.
+
+Rosa nodded, “And did you see the look in her eyes? She looked more like a rabid animal than a person.” 
+
+We sat there in silence for a moment.
+
+“Is there another way out of the building?” She asked after a moment. “I just… I have a really bad feeling about all this.” 
+
+I thought about it,  “Maybe the fire escape?” 
+
+She nodded, stepping over to the window. “Holy shit.” She muttered.
+
+“What?” I asked, getting up to go see out the window. 
+
+We realized then that the fire escape wouldn’t work. On the building rooftop across the street was a man with a scoped rifle. I moved to another window and saw the same thing on the next building. 
+
+“Surely they wouldn’t…” She began.
+
+“Yeah.” I said cutting her off. The image of Mrs. Johnson flashing in my mind. “I think they would.” 
+
+We spent the rest of the day sitting around, talking, eating more junk food and wondering when this would all end. Every once in a while, I could have sworn I heard movement from out in the hall. But when I looked out of the peephole, I saw nothing but the dark stains on the carpet, left behind my Mrs. Johnson.
+
+That night we ate a frozen pizza and watched old reruns of the Twilight zone. If the situation had been different, it actually might have been sort of romantic. As it was, we were both jumping at ever sound from within the building. At some point, we had both dozed off there on the couch.
+
+Sometime later, my eyes blinked open to the sound of something thumping around from somewhere inside my apartment. I sat up and looked around. Rosa was still asleep, curled up on the other side of the couch. I stood and was about to search the apartment when the sound stopped. I scratched my head and headed for my bedroom when the sound came again. Something fleshy, sliding against something metallic. I glanced up to the oversized air duct on the ceiling. Something was up there. 
+
+It moved through the duct, slowly and clumsily. I stepped over to the couch, tapping Rosa on the shoulder, “Rosa. Rosa, wake up.” 
+
+She turned over and stretched, mumbling something sleepily.
+
+Whatever was in the duct reached the vent over the kitchen and dark oozing fluid began to drip down onto the tile floor. 
+
+I leaned over and shook Rosa hard, “Rosa, wake the fuck up. Something is here.” 
+
+Her eyes shot open and she leapt up, just as the vent collapsed and the thing fell to the floor with a wet slap.
+
+We stood in the front room, looking into the kitchen as it crawled across the floor. It was Yan, the yoga instructor from down the hall, or at least it used to be. I only recognized him from the mess of curly blond hair he still had. His body was stretched, smashed, and bleeding. Bones and joints had snapped and relocated until he was compact enough to worm his way through the tight ducting. His head rotated around to look at us, a hungry leer on his bearded face. 
+
+“What the shit!” Rosa screamed. 
+
+The sound of wet bones creaking and popping began as his arms and legs tried to move back to their original positions. I grabbed Rosa’s hand and ran for the apartment door.
+
+We stepped out into the hall, shutting my door behind us. “Where do we go?” She asked. “I left my keys on your coffee table.”
+
+“Shit.” I breathed. “Come on.”  
+
+We started down the hall, knocking on every apartment door we came to, but no one answered.
+
+Suddenly Rosa’s door flung open and Steve stepped out. Apparently he had never actually left the building. “Hey what’s…” He started.
+
+My door opened and Yan stumbled out into the hall. Both his arms were somehow contorted to the same side of his body. His torso looked twisted halfway at his midsection and his legs hadn’t taken their correct shape. 
+
+Steve shouted and tried to back away from the misshapen man but Yan was too close and too quick. He grabbed onto the shocked man’s face and bit into it. 
+
+We watched in horror as they fell to the floor in a heap of thrashing limbs. Steve screamed as Yan tore at him with his hands and teeth until he went silent, a pool of blood slowly spreading on the floor. 
+
+I couldn’t understand what was happening, what the hell kind of virus did this?
+
+Yan looked up at us from Steve’s mangled body, he smiled a wet toothy smile and then plunged his arms and then his head into Steve’s chest cavity. 
+
+I bent over and puked on the gray carpet as the two bodies began to roll across the floor, slamming into the walls with the wet sounds of ripping flesh and cracking bones. Then the fucking thing stood up. Yan had contorted himself inside Steve’s body, biting and ripping holes for his head and twisted limbs. Somehow the flesh combined to form an amalgamation of the two men that crawled toward us. At first it was unsteady on its eight twisted and broken limbs, but the thing soon picked up it’s pace as it skittered down the hall after us, it’s two sets of teeth chattering loudly. 
+
+“Josh!” said Rosa, looking at the Yan/Steve thing as it rushed towards us.
+
+“I know, keep trying!” I said pounding on the next door, then the next, “Help us!” I shouted. 
+
+“Somebody, please!” shouted Rosa as she kept knocking. 
+
+Yan/Steve let out creaking gasps as it hobbled after us, dark fluid pouring from its mouths. 
+
+Then the elevator on our end of the hall dinged. We turned as the doors opened and a man stepped out wearing a gas mask and holding a pistol. He fired at the thing over and over, until one then the other of its deformed heads blew off in chunks. “Move your asses!” Shouted the muffled yet familiar voice of Frank. 
+
+We ran for the elevator as we heard something large moving at the other end of the hall. We turned to look once we were inside. There, coming around the corner of the long hallway was something I had no room for in my mind. It was a conglomeration of flesh. 
+
+The doors slid closed and Frank hit the button for the top floor. 
+
+“What the fuck is going on, Frank?” I asked, trying to catch my breath. 
+
+He looked at us for a moment before peeling off the gas mask, “Guess it ain’t airborne then. Seein as how you two ain’t infected.” He said, reloading his pistol and tucking it into his belt. 
+
+“What kind of virus does that?” Rosa asked. 
+
+He shook his head, “I don’t know. My contact on the outside wouldn’t tell me.”
+
+“Contact? What contact?” I asked.
+
+“The one that owed me a favor for some sketchy shit that went down back in ‘Nam.” He said meeting my eyes, “and that’s all I’m saying about that for now.” 
+
+“Where are we going?” asked Rosa.
+
+Frank smiled, “We are getting the hell out of here, little lady. Part of that favor I mentioned, includes a helo ride out of this shit show.” 
+
+Rosa and I both signed in relief. Thinking that this was almost over. And then the power went out. 
+
+“Fuck.” Said Frank as the lights went out and the elevator screeched to a stop. 
+
+“What are we gonna do?” Asked Rosa, her voice panicked.
+
+“Elevator hatch.” I said. “We can climb to the roof from there.”
+
+Frank clicked on a small flashlight, illuminating the elevator, “Good call, kid. Now give me a boost.” 
+
+I knelt and let him stand on my knee to reach the hatch. It swung open with a clang and the old vet scrambled up through. Before turning and reaching down for us.
+
+“Alright.” I said to Rosa, “Up you get.” Then boosted her up into Franks waiting arms.
+
+The elevator suddenly jolted as I was about to jump up. The impact knocked me to the floor, as the doors began to be pulled open by too many hands.
+
+I screamed when I saw it. I don’t know how many people were bound up in that horrific knot of pulsing flesh but they all looked at me at once and let out a howl of dozens of voices. Luckily the elevator had only partially reached the floor below, leaving a 2 foot gap between the interior floor and exterior ceiling.
+
+“Here!” Yelled Frank. 
+
+The pistol clattered to the floor in front of me. I grabbed it up and fired into the creature as fast as I could. The voices screamed but it didn’t relent. One of the longer of its arms managed to grasp onto my leg as I scrambled back against the elevator wall. Slowly I was being pulled toward the other grasping hands and chomping mouths. I saw Sam there in its horrible face, and Mrs. Johnson, and several other of the tenants I had come to know since moving in. 
+
+“Josh!” Shouted Rosa. “When I tell you, shoot the arm!” 
+
+The elevator jolted again, I looked up to see Frank and Rosa jumping on the roof. I heard them counting and jumping in sync. 
+
+The thing yanked again, pulling my left leg completely through the door. 
+
+“Fuck! Fuck! Fuck!” I shouted. “Wait, my leg is…! 
+
+The elevator dropped, Rosa and Frank shouted, “Now!” 
+
+I leaned forward, the drop making it feel like I was floating for a moment. I fired the pistol into the things arm as I kicked out at the door with my other leg. The shot was good and the arm released. I fell back against the wall as the elevator dropped to the floor below. 
+
+I looked down at my throbbing leg to see that the arm hadn’t let go. It was sliced off at the elbow, still clinging to my leg and trying to worm it’s way up. I jumped up pushing the appendage off of me. It flopped wildly on the floor, before righting itself and crawling across the floor after me. I kicked it away and jumped up to the hatch.
+
+Frank and Rosa were already making their way up the ladder on the other side of the shaft. I tossed the empty pistol away and climbed after them as the huge mass of flesh began pushing the door back open and  squeezing its way through. It got stuck and began ripping chunks off of itself to get at us.
+
+When I looked back down, in the red emergency lighting, the thing looked like it was crawling out of the pits of hell itself. “Guys, we need to hurry!” I shouted as the thing wetly popped loose, and into the shaft.
+
+Rosa looked back and screamed. 
+
+“Keep going!” Yelled Frank! 
+
+We did, we climbed and climbed, hearing the countless slap of hands and feet against the elevator shaft walls accompanied by the moans of dozens of voices just below us. 
+
+When we finally reached the rooftop, the helicopter was waiting, just like Frank had said. Two armed men ushered us aboard and we took off into the night. 
+
+45 minutes later, we were debriefed by a Mr. Neilan. He was the director of some obscure government agency I had never heard of. Apparently Frank had helped them out years ago with some kind of problem in Vietnam. It was all very hush hush.
+
+Neilan told us that we were among a lucky few who had survived similar events as this. When I asked him what actually happened all he would say was that it was “An unfortunate series of events that led to an outbreak of an unknown origin.” 
+
+“You know I’m gonna tell people about this right?” I said meeting his eyes. “This is bullshit and the people deserve to know what’s happening.”
+
+Neilan studied me for a moment from behind his round wire rim glasses. “Who do you think will believe you?”
+
+I don’t know who will believe this. Hell, I’m not sure I want to believe it. But I have to try, I am a reporter after all. 
