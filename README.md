@@ -1,368 +1,372 @@
-# The Bug Man
-My son and I moved to a new apartment in Chicago. The apartment is one the 7th floor of an old downtown building. It's quite beautiful in my opinion, i\`ve always dreamt about moving to the big city and living in one of these buildings.
+# The Boy At The Bus Stop
+The car’s engine revved as I sped down the road.
 
-My wife no so much. She would become deaf to every word I said about the city. In her world the little suburb we grew up in had everything we could ever want. But I don't care anymore. She lost her vote when we divorced.
+I was lost in thought and hardly took notice of the rain crashing against my windshield. Nature seemed to sense my anger. The storm was rising.
 
-It was a messy divorce and I still can't believe I got full custody of shaun. I was sure that I was gonna lose, as I was completely honest to the court about my plans to uproot him and get us both out of town.  But I guess her infidelity sealed the deal before we even entered the courtroom.
+I poured more vodka down my throat, my eyes constantly darting to the shiny black handgun lying on the passenger seat. Brushing the cold metal with the tip of my fingers, my mind involuntarily flooded with images of my oldest daughter Mara. Her entire life played through my mind in mere seconds. My last memory of Mara was from when I had to identify her body in the morgue.
 
-The divorce drained me and I think it also affected shaun.  Although I\`m not quite sure, as he is really taking it like a champ so far.
+My hands began to shake. An uncontrollable tremor spread through my body. I pulled over the car unable to continue and slammed my fist against the steering wheel.
 
-Shaun is 8 years old, he is a good kid. A little too quiet at times, but he gets along with the other kids and never acts up. He also has decent grades and keeps his room tidy enough. There is nothing more a father could want at this age.
+The images of the morgue would not leave me.
 
-We got to the apartment and shaun was astonished as soon as we entered the building. For a boy from a small suburb, this must have looked like a castle. He ran up the stairs as fast as he could.
+I closed my eyes.
 
-I had a hard time keeping up with him, as I was carrying both out dufflebags up the stairs. I lost him after the second floor and so I just kept on pushing upwards, while my legs were starting to hurt.
+There she was, lying on a metal table. A blanket had been carefully draped over her body, only revealing her pale face. She had just turned 16. Death seemed to have aged her well beyond that. The pathologist placed his hand on my shoulder. I had not been able to comprehend any of his words. The man’s actions had seemed so forced and well-practiced it only angered me more. I had asked for a moment alone.
 
-After the fourth floor, I started to hear a male voice. I picked up some pace again and was soon at the seventh floor. My son was already there, before him was an old man, wrinkled face, old flannel shirt, flat cap rounded up by this slightly filthy smell. He was talking to my son as I turned the corner. His voice out of breath, not like he was running up the stairs, more like he was on his dying breath.
+After the doctor left I hesitantly placed my hand on my daughter’s cheek. Almost instantly I pulled it back. She had felt so cold. I stared at her lower abdomen where I knew the knife had pierced her. For a fraction of a second, I contemplated pulling away the blanket and exposing the wound. But I could not muster the strength. She looked peaceful now. As if she was sleeping. I feared exposing the wound which had killed her would somehow change that.
 
-"You have to look where you are going, young man! Do you know how long an ambulance would need to get here? Not to meeting all the stairs!"
+That had been little over a month ago. The police had quickly caught the youth who committed the crime. Some bum who’d attempted to rob her and wielded his knife a little too overenthusiastically. He had murdered her although she had given him her purse.
 
-  
-He stopped as he saw me.
+I punched the wheel again.
 
-"Ah, you must be Mr. Blonde (fake name, obviously). I was waiting for you. Is this little rascal your boy?"
+It wasn’t fair.
 
-"Yeah, sorry, he is just excited to see his new home", I answered while reaching my hand out to greet him. 
+The youth’s trial was yesterday. He’d been acquitted on account of procedural mistakes by the police. The man had smiled at me as they led him out of the courtroom.
 
-He shook my hand. It was like shacking a bag of leaves. Soft and misshapen with some hard bits in the middle.
+It wasn’t fair.
 
-I retracted my hand formally and he showed me to our new apartment.
+That bum had destroyed my life at an astounding rate. My wife could barely stand to look at me anymore. A week ago, she moved out of the house and took our youngest daughter with her. She told me I needed help. She said she couldn’t watch me ruin my life.
 
-7G, the door was strong and reinforced at the edges, but it looked just like every other door i\`ve seen on the way up. 
+I didn’t blame her.
 
-He opened the door and we had a look inside, living room with enough space for the two of us, small, open kitchen to the right, bathroom to the left, and a hallway leading to our bedrooms behind the kitchen. 
+This past month I found solace in liquor. I could not let go of my pain. It festered into an uncontrollable rage. All I could think about was the injustice of it all. All I could see was the pale face of my dead daughter. All I wanted was to kill the man responsible. It became an obsession. I had been unable to console my wife. My youngest daughter had practically not spoken since the loss of her sister. I found her quietly curled up in Mara’s bed most days. Unable to let go. Unable to move on. I broke my heart.
 
-The apartment was nice over all. It even had a bit of furniture, just enough to get us through our first weeks. To single beds in two different rooms, a dining table with two chairs, a kitchen ,with oven, stove and microwave, and small couch with a small table in front. Sadly no TV.
+I had felt a strange sense of relief watching them both drive off. I did not need them to see what happened next. I did not want my youngest daughter to witness her dad being dragged away for murder. I preferred the solitude and the warm embrace of alcohol.
 
-We had a small tour and shaun jumped at the opportunity to get the front bedroom. It had a nearly perfect view of the streets below, if it wasn't for the old fire escape in front of the window. I wasn't too pleased with the idea of giving him the room with the fire escape access, but I wasn't about to argue either, as I was just happy he was adapting so fast. 
+My eyes darted back towards the gun and I sighed. I had to do this. Otherwise I would never know peace.
 
-We ended our tour of the small two bedroom apartment about 5 minutes after starting it. The landlord gave me our keys and went about his way. He was a bit odd, but otherwise a nice guy. 
+Determined, I turned the ignition key. The car purred gently before reverting into stillness.
 
-We spend the rest of the day getting settled in. I got us noodle cups for dinner and we spend our first evening in our new apartment. Joking around about the age of the building and what dark secrets would wait behind every apartment door. 
+I turned the key again.
 
-  
-We went to bed at about 9pm and I fell asleep in a matter of seconds. I haven't slept this well in months. Finally a place of our own.
+Nothing happened.
 
-  
-I woke up in the morning and turned towards my phone. 10am...
+I cursed loudly and tried again.
 
-I stood up right away and walked over to my son's room. I was a bit worried. I didn't knew why exactly, but leaving him up alone for so long in this big building wasn't sitting right with me. I knocked softly at his bedroom door and put my ear to his door. I heard his voice, but not from inside the room, it was coming from the living room.
+Nothing.
 
-I walked over and he was sitting on the couch, looking outside the window while talking on his phone.
+I took out my frustration on the steering wheel until both my hands ached. I grabbed my phone ready to call a tow truck, but it would not switch on.
 
-"No, you don't understand. Its awesome. All the people are so tiny from up here..."
+The wind howled outside. I checked my wristwatch, but the handles had stopped moving. Everything seemed in suspension.
 
-I knew only one person would start to talk him out of this place this early on. 
+After a short internal debate, I decided. The thought of remaining in the car suddenly seemed unbearable. Feeling restless, I kicked open the door and got out of the car, hastily stuffing the fun in my jacket pocket.
 
-"Hey champ, can I also talk with mommy?" 
+The storm was livid. Rain poured with such force it temporarily deafened all other thoughts coursing through my mind. I was drenched within seconds, but it didn’t bother me. I started walking down the road, crossing a little bridge across a river.
 
-I asked him softly.
+Mumbled curses escaped my mouth as I realized I was lost. A cold mist lazily enveloped me. Not knowing what else to do I continued walking until a distant light pierced through the grey veil. Like a moth I gravitated towards it. It’s source, a small bus stop.
 
-He turned to me, and spoke to the phone:
+Relieved to have found some cover I fell back into one of the metal seats. My hands felt numb. I rubbed them together for a couple moments before reaching into my pocket for my pack of cigarettes.
 
-"Hey mommy, dad wants to talk to you"
+After taking a long drag I closed my eyes and leaned back against the bus stop. Slowly, I blew out a cloud of smoke and the tremor subsided.
 
-He handed the phone over to me.
+Without instruction my mind drifted back towards the youth who’d killed my daughter. A familiar doubt fell over me. I had always valued human life. As a family man I’d constantly tried to maximize everyone’s happiness. Now here I was, committed to blowing a hole in the head of my daughters’ murderer.
 
-I stoked his head and motioned him to go to his room.
+I turned around and looked at my reflection in the glass. I could no longer recognize the pale, lined face staring back at me. Droplets of rain slow slid down the glass. It gave my reflection even more of a somber appearance.
 
-As soon as I heard his door click, I put the phone to my ear.
+I looked back out in front of me and took another drag from the clammy cigarette stuck between my fingers. Closing my eyes, I exhaled, expelling another cloud of smoke.
 
-"Can you stop ruining things just because they don't go your way"
+“Rough day?”
 
-I told my ex-wife firmly.
+The voice startled me. The cigarette slipped from my grasp and fell down my shirt. I jumped up swearing as ash scorched my chest.
 
-She answerd:
+“Jesus Christ,” I muttered at the young boy standing before me.
 
-"You are making a mistake by putting him in a place like this. Especially because he is so far away from his mother!"
+The boy grinned.
 
-I admit, I got really angry at this point, but I focused myself to stay calm. I was certain she was only waiting for me to slip, so she could call child services on me. 
+“I’m sorry. I didn’t mean to startle you.”
 
-"I\`m not putting him in any danger, he is with me in a beautiful house. I don't know how much you listed the stuff your son said, but he actually likes it here a lot."
+I shrugged and sat back down.
 
-She started mumbling some stuff about me being irresponsible and resentful towards her, but I wasn't really listening, my focus wandered towards a small bug on the windowsill. It was a nasty bug, but I don't know what kind. All black and big. Like a dung beetle, but without the horn in the middle. 
+The boy took a seat beside me.
 
-"Are you even listening to me?" 
+“It holds a strange beauty doesn’t it?”
 
-She asked through to phone. This sentence broke through to me, as it wasn't in the same rhythm her usual mumbling was in.
+I glanced at him.
 
-"To be honest, no, I wasn't.  Gotta bounce."
+“What does?”
 
-I hung up, putting the phone on silent before putting it down on the table.
+He nodded out at the storm.
 
-The bug made me curious. How did it get in here? I mean, it wasn't impossible that the bug would have been here for some time, as we didn't search the apartment for bugs after moving in, but a bug that size would probably die in days without food. 
+There was a silence.
 
-I opened the window and gave the bug the push with the back of my hand. It dropped out the window and flew back inside, straight by my face and into the open kitchen. 
+I broke it by standing and pacing up and down the little bus stop.
 
-I followed it swiftly, while it landed in one of the noodle cups from yesterday. 
+“When is the god damn bus going to get here?”
 
-I took a look inside and there were two more of these bugs inside. I was disgusted by the look and picked the cup up and dumped it in the trash in one quick motion. The bugs were trying to leave, while I tied the trash bag together and sealed them in. 
+The boy gave me an appraising look.
 
-Without hesitation I took the bag downstairs and dumped it in the dumbster in the ally. The dumpster was directly beneath my window. Well seven floors beneath it, but still direct underneath it. Great trade I thought. My son was getting the street view, while I was getting the dumpster and the brick wall next door. 
+“I’m afraid no bus can take you to where you want to go, John.”
 
-I walked up the stairs while thinking about how great the invention of the elevator was.
+I absentmindedly shrugged off his words and lit another cigarette. After my first drag it hit me. I stared at the boy. He stared back. A latent intensity burned in his eyes.
 
-At the door, I scrambled for my keys, but I couldn't find them. It dawned on me, that I must have left them on the table inside. I knocked on the door and shouted for my son to open. I saw motions at the inside of the peephole. I thought he was about to open the door, when I heard the sound of this bedroom door opening. 
+“How do you know my name?”
 
-What was that at the other side of the peephole?
+“I know a great many things.”
 
-I waited for a second while thinking about that. 
+I snorted.
 
-Shaun reached the door and asked: "yeah?"
+“Sure.”
 
-I asked him to open the door for me.
+“I know the pain you feel, John. I have seen it before. Many times.”
 
-He was hesitant and after a moment answered: "I think I can do that."
+I crushed the pack of cigarettes in my hand, feeling a fresh wave of anger crash over me.
 
-I was puzzled by that answer, but soon the doorknob turned and the door opened. 
+“You don’t know me!”
 
-Shaun was standing there behind the door, while I pushed beside him to see what moved in front of the peephole. I searched the living room and asked him, what was taking him so long to open.
+The boy gave me a sad smile.
 
-He said "the bugs didn't like what you did" 
+“I have seen this before. Someone loses someone close them. As a result, you feel rage build deep inside of you. Fueled by guilt because you weren’t able to prevent what happened. Unable to see that it was beyond your control to begin with. You could never have changed what happened, yet you cannot forgive yourself either. The mind cruelly tortures the body, until your heart is riddled with sorrow. Now your existence is anguish. You wish you had been the one to die because the thought of living on just seems too difficult. Living in this word does not seem bearable at the sight of such a loss.”
 
-I stopped searching and turned my head to him. I asked him what he meant by that and he repeated:
+I remained speechless, unable to comprehend the little boy beside me. The boy sighed and scratched the back of his head.
 
-"The bugs didn't like what you did"
+“I’ve seen this before. After a while it all begins to look the same. The faces may change but emotion remains constant. Your face is lined as so many before you. A canvas of hate and anger.”
 
-It was a really weird answer, but on the other hand, I knew that feeling as a kid, when you feel sorry for animals and other things. Nearly turned me vegan at his age.
+The boy sighed again and jumped to his feet.
 
-"I know it wasn't nice of me, but this is our apartment and the bugs don't pay rent. Do they?"
+“Murder will not bring her back.”
 
-He shook his head. 
+I spun towards the boy.
 
-"See buddy, it's all good."
+“What did you say?”
 
-He looked at me for a moment and asked:
+“Mara is gone. Murder won’t bring her back.”
 
-"Can I have my phone back" 
+The boy spoke the words so casually it took me a moment to register them. Then, before I could stop myself, I slammed the boy against the glass wall. The entire bus stop trembled.
 
-I agreed and he took it to his room.
+“Don’t you say that name!” I shouted. Tears began streaming down my face. “Don’t say it!”
 
-Still puzzled by the whole situation I started to go about my day. Enough trouble for know. 
+The boy stared at me with a blank expression. He put his hand around mine and slowly pulled loose from my grip. His fingers hard as iron.
 
-The rest of the day went by really fast. We had pizza in the evening. ( I know, A1 dad. Noodle Cups and Pizza)
+“I feel for you. I really do. Your daughter deserved better.”
 
-I brought the Cardboard boxes down as soon a we were finished. 
+“SHUT UP!”
 
-A cockroach landed on the top box as soon as I opened the entrance door. Normal enough. It's a big city and these things gotta eat as well, I thought. I dropped the box in the dumpster and the cockroach road the box to the ground of the dumpster like Slim Pickens sitting on an Atombomb.
+“I know you think revenge will dull the pain. That somehow using that thing in your pocket will make you feel better.” I fished out the gun. The boy stared at it. Something dark swept across his face. He briefly held out his hand before suddenly retracting it, as if the gun had electrocuted him.
 
-  
-I closed the lid and got back up. Haven't forgotten my keys this time, I got right in, watched some YouTube on my phone with Shaun and we got to bed soon after. 
+“That will not solve your problems.”
 
-The next morning I woke up early enough. It was time for me to go job searching after all. 
+“That man deserves to die!” I spat out the words with as much bile as I could muster. Then I fell back into the metal seat, suddenly exhauster. My heart felt like it was going to explode out of my chest. I took some deep breaths in an attempt to calm myself.
 
-Shaun was still asleep, so I made some breakfast. PBJ Sandwiches for our lunch, some spam for me and a bowl of cereal for his breakfast. It took me a while to realize, that the cherries I poured were moving. I stood frozen and dropped the box. Maggots all over the bowl.
+The boy stood motionless, staring at the falling rain.
 
-A moment went by, before I took the bowl and the box and I ran to my room, dropping them from my window onto the dumpster lid. It hid the ground and an echoing noise went through the ally. I closed my window shut, as I feared someone would see me doing stuff like that. I didn't know why I did it, I just had enough of these bugs.
+“You know it never gets easier,” he finally muttered. “After all these years of helping people cross over it still remains difficult to let go sometimes. Some deaths are so much more deserving then others. I should not judge anyone. Yet I cannot help but feel for some of them. Occasionally the ones I meet radiate such light it pains me to extinguish it. I don’t always want to, but I have no choice. My existence is one of duty.”
 
-I felt bad about the whole thing and made another PBJ for Shaun, who had woken up by now. Probably from the loud noise in the ally. 
+The boy radiated an eerie calmness as he spoke. I felt my heartbeat returning to normal.
 
-We had a brief breakfast and I headed out.  Looking at the dumpster while getting on the sidewalk. The bowl was shattered to pieces and the cereal box lay there like it was planted in a crime scene. Maggots all around. Some alive, some dead.
+“Who are you? How do you know these things?”
 
-I walked by it. Not giving it a second look.
+The boy gave me a sad smile.
 
-The jump hunt was hard. I walked into some small businesses and asked if they needed a new accountant, as that was all I pretty much knew how to do.
+“I guess I am a traveler. Everyone will meet me at some point in their lives. Whether it is in the beginning or the end or somewhere in between.”
 
-I never really learned the job, but I did the books for my In-Laws small mom and pop store since I gratuated high-school, so it was everything I had.
+“I don’t understand.”
 
-Some people told me no in a polite way, others just straight up rejected me. Two offered me a job interview in the next two weeks. I accepted, but both seemed kinda spooked when I asked them if we could hurry things up a little. 
+The boy shrugged.
 
-Overall I don't think any of them will work out. But it was a start. 
+“I wouldn’t expect you to.”
 
-When I got back home, the bowl was still laying there. Everything just as I left it. Box and maggots included.
+The boy looked at his watch.
 
-I felt bad for what I did and picked the box up. I used a shard of the broken bowl to scoop the maggots up and put them in the box. When all was done, I threw everything in the bin.
+“The bus should be here any minute.”
 
-Afterwards I haded up, expecting Shaun to question me about my job hunt. 
+As soon as he’d spoken the words two lights cut through the inky darkness. The bus stopped before us and the doors slid open. The boy climbed up the little staircase. Once he got to the top he spun around.
 
-I opened the apartment door to him sitting on the couch motionlessly. I asked him what was going on and he said:
+“I’ve never done this before, but will you take a short journey with me John?”
 
-"Why did you do it to them?"
+“Where are we going?”
 
-I stood frozen. 
+The boy shrugged.
 
-"Did what to who?" 
+“I’m not sure yet. All I know is that you should join me for this.”
 
-I asked back.
+I hesitantly looked at the boy. there was something about him. I felt compelled to join him. I took the boys hand and climbed up the stairs behind him as the doors closed. The bus driver was old. Very old. A shroud of matted white hair draped around his shoulders. Icy blue eyes stared at us. I instinctively pulled out my wallet and passed him some cash. The boy laughed and held back my hand.
 
-"The bugs in the cereal. Why did you throw them out of the window?"
+“I’m afraid that won’t work.”
 
-He replied.
+“I don’t have anything else.”
 
-The fact that he knew I did it was bad enough, but it was made worse by the fact that he seems to care for them so deeply. I thought about a good answer for a moment.
+The boy tapped my wristwatch.
 
-"We talked about this. They don't pay rent, so they don't live in our apartment"
+“Show him that.”
 
-He wasn't impressed by my answer.
+I stuck out my arm towards the driver. He stared at it before also tapping the watch a couple of times and inspecting the unmoving dials. Seemingly satisfied he waved us inside. The boy hurried towards the back of the deserted bus and waved me over. I sat quietly beside him.
 
-"But why throw them out of the window? You really hurt them"
+“Where are we going?”
 
-I said down next to him.
+The boy grinned.
 
-"I know, i\`m sorry. Its just, that they spooked me so badly"
+“This journey is not about a destination, per se.”
 
-He seemed to take this answer a little better. 
+“Then what is it about?”
 
-He hugged me and I asked him about his day. A couple of stories about his adventures in the castle later, we talked about diner. 
+“It’s about everything, the boy exclaimed. And also, about nothing.”
 
-I told him that I wasn't going to buy unsealed foods for a while, because I didn't want to risk hurting any more of his crawling friends. He took that quiet well.
+The boy must have recognized the exasperation on my face. He cleared his throat.
 
-After a moment of debating, I went and got us some cans of tomato soup for diner. We ate and went to bed soon after.
+“You should consider yourself lucky, John.”
 
-My eyes felt heavy and started to close, when I look at my door for the last time. A small silhouette was standing in my open door. Surrounded by blackness the silhouette was clearly looking at me. I pushed myself up and hit the light switch. It was shaun, standing there with his teddy in his arms. He looked at me, as I asked him what's wrong.
+I laughed humorlessly.
 
-"The bug man doesn't like your new rule."
+“I should consider myself lucky? Lucky that my daughter is dead? Lucky that my wife can barely stand to look at me? Lucky that my other child has barely spoken in weeks?”
 
-"The bug man?", I asked, audibly worried. 
+The boy’s eyes grew hard.
 
-"He doesn't like it when you seal away the food", he replied.
+“Having someone you love ripped away before their time is difficult. I understand that.”
 
-I tried to play it off, while a bit of fear started to climb up my spine.
+“Do you really?” I muttered sarcastically.
 
-"Well he should buy his own food then." 
+“More than you could possibly imagine,” the boy replied coolly. “I have guided many people before their time. I have comforted both young and old. Held the hands of bother murderers and the murdered. I have held newborn babies and taken children from their parents embrace. I have walked the fields of countless battles. I have waded through rivers of blood. Wherever I go the dead follow. Like moths attracted to a flame. You could not comprehend the endless sorrow I must navigate.”
 
-"He can't", Shaun answered before turning around and leaving my room.
+He wiped a single tear from his eye. Within them I saw only grief. As if his words had opened an old wound. I felt sorry for him.
 
-I was sitting there frozen. After a minute or two of deciding what to do, I decided I was best to go back to sleep. Maybe I thought the whole thing was over by tomorrow, maybe I just wanted to sleep, but that was what I did that moment.
+“Sometimes I feel so far away from everything,” the boy continued. “I worry I have become too indifferent. I fulfill my duty without truly understanding what it is I should be doing. I feel like a spectator watching eternity unfold itself. I offer hope to those I meet whenever I can without knowing whether my words are true or not. I have no idea what comes after this, John. I wish I knew. I wish I understood my purpose. My life is a paradox. My existence is perennial and yet one of insufferable solitude.”
 
-I closed the door and went back to sleep. Father of the year at it again.
+“You must feel lonely.”
 
-I woke up the next morning, got up, 3 PBJs and a grilled spam sandwich for the one and a half men in the house and went about my day. I didn't talk to shaun in the morning, as he was still sleeping when I took a peek inside his room.
+The boy nodded. After that we sat together in silence. The boy stared out the window. He seemed deep in thought. I felt my eyelids grow heavy and before long, I had fallen asleep.
 
-Walking down the streets, as I enternd ever store I came across was exhausting. But I didn't give up. "It's for the both of us" , I told myself every time the thought of quitting entered my mind. 
+I woke up disoriented. The bus was deserted and for a moment I thought I’d dreamed my encounter with the boy. Then the bus driver turned around. His blue eyes pierced through me and he pointed towards the little hill we were parked beside.
 
-I ate my grilled spam sandwich on a bench near millennium park and walked around for another hour or two, before heading home. I got inside and greeted Shaun, he was cheerful, which took my mind off of everything that had happened the last days. We talked about the Minecraft world he build on his phone and the different people he saw walking around downstairs. 
+“He is waiting.”
 
-I asked him if he saw them from the window and he said, that he got out on the fire escape. I got angry at him and told him, that he wasn't allowed to go there. Even though I never specifically stated this rule, I thought he was well behaved enough not to go there. 
+With a quick nod I jumped off the bus.
 
-He started to cry a little and went to his room. I felt like shit. My ex-wife called me a couple of minutes later, because Shaun told her what happened. We had a long talk and I admitted to everything and expressed how sorry I was. I didn't want to show weakness in front of the woman who hurt me so badly, but I also felt true remorse. I never shouted at Shaun. It's not that I was one of those parents that thinks you should never scream at a kid, it's more that he never gave me a reason to shout. After a while the phone call got a bit more emotional and we talked in a way we haven't talked for years. 
+I reached the top of the little hill panting. The boy leaned against a tree and observed the spectacle unravelling itself below. A small crowd had fathered before a tiny grave. A priest stood reading from the bible. His actions seemed almost mechanical in their repetition.
 
-We agreed that I should apologize to him and tell him that I only shouted, because I was afraid for his well being. 
+“Why are we here?”
 
-We hung up and I walked over to his room. I knocked and opened the door. 
+The boy remained silent.
 
-Shaun wasn't in his room. I look around and he was no where to be seen. I panicked and looked over to the window. It was open. I walked over and looked around. Shaun was sitting there, just a couple of steps downstairs, with a plate in his hand. I told him to get inside. 
+“Whose funeral is this?”
 
-I tried to stay calm, but I gotta admit, I lost it again. 
+The boy nodded at the crowd down below.
 
-He got inside and I tried to talk to him. It was a mixture of apologies, explanations and building boundaries. He sat there, not saying one word. I waited for a response, but he wouldn't talk to me. I looked at the plate and saw what's left of an PBJ sandwich. There wasn't much left, but what was left was full of cockroaches and maggots. 
+“You know whose funeral this is.”
 
-I looked at him, my face filled with a mixture of anger, disbelieve and fear.
+I quickly scanned the crowd, only recognizing familiar faces.
 
-"Are you feeding the god damn bugs???"
+“Is this my funeral? Is that what this is about? Are you showing me what will happen if I murder Mara’s killer?”
 
-He looked at me.
+“You know,” the boy repeated. His voice a mere whisper.
 
-"Yes, the bug man said, that he would leave you alone if I fed them" 
+I looked at the people occupying the front row of chairs. My family was nowhere to be seen. My youngest daughters’ godparents sat before the pitiful hole in the ground. They held each other as they cried.
 
-I was standing there in shock. I didn't knew what to do, so I grabbed the plate and went out. On my way I told him to never do anything like this again, and that we would talk tomorrow. 
+My knees suddenly felt weak. Slowly, I slid to the floor as tears soaked the earth around me.
 
-I slammed the door by accident, walked over to the kitchen and put the sandwich in the trash, tying the bag up as soon as the bread hit the ground. I sat on the couch for hours, trying to figure out what was going on. 
+“Where am I?”
 
-After some time, I fell asleep. 
+“Jail.”
 
-Waking up in the middle of the night, I felt a cool breeze coming over me. I looked around and realized that I fell asleep on the couch. The window was open. I couldn't remember opening it, but I didn't question it either. I got up, walked over and closed it. 
+A simple, yet sobering reply.
 
-While walking towards my bedroom, Ive heard Shaun talking in his room. He sounded apologetic and frighten. 
+“Where is my wife?”
 
-I opened his door without warning, and I saw him sitting beside the window. He was afraid. I told him to get away from there and asked him what was going on.
+The boy’s eyes remined pricked on the little crowd below as he scratched the back of his head.
 
-He told me: "the bug man is angry with us" 
+“She is not here, John.”
 
-I asked him what he meant, but he couldn't get a single word out. Filled with fear, he was just looking at me. 
+“Where is she?”
 
-I closed the window and took him to my room. I wasn't angry with him, I was just worried. I told him, that the bug man wasn't real, and that he could talk to me, if something bothers him. I also told him, that it was natural for him to be confused. There was a lot going on in his life and no one expects him to be emotionless about the whole situation. He calmed down a little and we slept together in my bed that night. In the morning I got up and made breakfast. Shaun clearly noticed me getting up, as he was in the kitchen mere minutes after me. I made 3 PBJs and a grilled spam sandwich as always and we sat down to eat. I told him that the second sandwich was for him alone and no bug man had the right to take it from him. We shared an awkward laugh as I packed my grilled spam sandwich and I got outside. I headed down the roads and looked for stores yet again. My spine was still shivering from last night, but I still tried to pull through. The conversations with the store owners were worse than before. I can't blame them. I looked sleep deprived and miserable. I didn't even make it to lunch, when I finally called it quits and headed home for the day.
+I sobbed so hard the words left in a single slur.
 
-When I got around the corner to the apartment building, I looked up to see Shaun. He sat on the fire escape yet again. He was laying on the grid of the platform. I started to sprint towards the door. Running up the stairs like my life depended on it. 
+“Your wife found her. After you were taken away the little girl could not cope anymore and hung herself in Mara’s room. Your wife was unable to handle the strain and had a breakdown. She is currently forcibly restrained in an asylum 2 hours away. Next week she will suffer a stroke.”
 
-When ich reached the seventh floor I opened the door of 7G in one swift motion and ran towards Shauns room, not even closing the apartment door behind me. Shaun was still laying on the fire escape. 
+The boy glanced at me. His eyes riddled with pity.
 
-"Shaun, get in here. Now!"
+“She will never recover. Slowly her will to live will syphon away, until only the smallest amount lies dormant in her heart. She will be trapped in her body. A mere husk of her former self. Wanting to die yet unable to do so. I would not wish such an existence upon anyone.”
 
-I screamed at the top of my lung. 
+My tears had subsided for something worse. A feeling I can hardly put to words. A feeling of loneliness so immense I could barely breath. I felt like I was being crushed by infinite grief.
 
-"No dad, you don't understand", he answered whimpering, 
+The boy smiled sadly.
 
-"What do you mean", I asked him, while I reached out to him.
+“You see how cruel destiny is, John? By all accounts, your actions will be directly to blame for this. One moment of rage will destroy everyone you care about the most. What you seek is justice. What you offer is condemnation.”
 
-He finally looked at me and answered: "the bug man is really mad with us..."
+A searing anger took hold of me.
 
-I looked at him: "What do you mean?"
+“Why are you doing this to me? Why are you torturing me like this?”
 
-He starred at me and said: "He told me, that if I don't want to help him, I might as well jump."
+The boy shook his head but offered no reply. I wanted to leave. I wanted to run away and never look back, but I couldn’t find the strength to get on my feet. Instead, I dropped my head in my hands.
 
-I looked at him shocked, but I still managed to reach out and pull him into the apartment, closing the window behind him. 
+“I thought I had more time.”
 
-I told him that he would never do something like this, or listen to this bug man ever again. I told him, that we would switch rooms from now on. 
+The boy smirked. “Everybody always thinks they have more time.”
 
-It wasn't my goal to punish him, but I couldn't give him any access to this window again. I brought him to the living room and talked some sense into him. Afterwards we both headed out to get some fresh air and a hot dog. 
+“I wish I could have told her how proud I was.”
 
-When we got back, he nearly went to his old room, but was reminded about our new arrangement, when he realized his door was locked. 
+The boy placed a gentle hand on my shoulder.
 
-He looked at me like he got the hint, turned around and entered his new room. I stayed in the kitchen for a while and watched some Netflix on my phone. After an hour or so, I looked inside my old room. I gotta admit, I was expecting everything from pentagrams to a full on exorcism going on in there, but I just found Shaun sleeping in the bed. 
+“She knew.” I patted his hand, unable to respond. Together we stood on the little hill in silence. The minutes crept by.
 
-Relieved I closed the door and unlocked the door to my new room.
+“Why did you really come to me?”
 
-The window was open. I didn't realize it at the time, but in hindsight I knew I closed it. Not thinking to much of it, it closed it again and locked the door. I got to bed and fell asleep in my new bed.
+The boy scratched the back of his head and looked at me. He seemed to be deliberating with himself.
 
-Hours later I woke up to a cold breeze filling the air. The window was open again.
+“I’ve always believed myself to be bound by laws I have no control over. Laws I don’t quite understand.”
 
-I went to close it again, but this time it hit me, that I definitely closed it before. I looked at the windowsill and sow these black bugs crawling all over it. I took a step back and looked at the window again. The bugs weren't crawling aimlessly, they were headed in my direction.
+To my surprise, the boy suddenly chuckled.
 
-I should have been afraid at this point, but they were just simple bugs. No fangs, no stingers, just bugs. That's when I realized, that they are all crawling a single line with me at the end. If I´m at the end, what's at the beginning? I took a deep breath and climbed through the bug infested window. I looked around and saw the bugs crawling up the wall from two floors beneath me. I felt my heart beating in my chest as I walked down the fire escape stairs. Sometime I felt the cold grid of the fire escape beneath my feet, sometimes I felt a soft shell breaking, oozing with warm gruel, I wasn't looking down. Not because im afraid of heights, but because the breaking of soft shells, combined with a quiet cracking noise, was getting more frequent by the step. The only thing that kept me going was getting to the bottom of all of this. For Shaun.
+“But, lately I met someone so outrageous, they dared to challenge my path. Can you imagine? A speck of dust challenging the full might of the inevitable.”
 
-The stench of whatever was waiting at the end of those stairs hit me. It smelled like someone soiled his pants and tried to hide it underneath a sack of old newspaper.
+The boy fell silent for a moment. Then he continued.
 
-I reached the sixth floor and peeked through the window. A young woman was sleeping in her bed. I didn’t give her too much attention and continued my way downwards. The cracking of beetle shells continued beneath my feet, while I felt some of them making their way up my legs. 
+“She made me wonder whether I too, can challenge what which seems inevitable. Maybe the constraints which bind me are self-imposed. Maybe I fear the freedom disobedience would grant me.”
 
-Soon I reached the source of their journey. The window on the fifth floor. 
+The boy smirked.
 
-It was open and I didn’t hesitate to make my way into the room.
+“I live for those moments. Reminders of how exceptional life can be. She made me realize something, John. If she managed to find the strength to confront me, then maybe someone as lost as myself, bound by eternity, might possess the power to break free.”
 
-The bedroom was empty. I looked around for a bit, but there was nothing that caught my attention, except for the trail of small bugs making their way across the room.
+“I don’t understand.”
 
-I followed them outside the bedroom door and into the hallway. The bedroom door on the other side of the hallway was slightly open, enough so I could take a quick peek inside, but it was empty as well. I focused on the bugs again and followed their trail. The hallway and living room were filled with flies. The walls, ceiling, and air was filled with flies. 
+“Sometimes when people die, their gaze manages to pierce through time and they get a glimpse of what is to come. Your daughter saw all of this.”
 
-This was the end of the line, I knew it. I tried to step as lightly as possible, because I didn’t know what to expect. One step after another, until I reached the living room. It was empty as well and the kitchen look abandoned. Except for one thing. One piece of furniture stood out. The armchair by the window. I took a close look at it. It was definitely the source of the trail.
+He pointed at the crowd below. Then the boy smiled more genuine.
 
-I walked towards it, step by step. Looking back on it, I don’t know why I still wanted to get closer to this chair, but I did. 
+“Mara was exceptionally stubborn when I met her. She absolutely refused to come with me. She refused to submit to her fate as few have done before her.”
 
-Walking over to it, I put my hand on the backrest and pulled the chair towards me. 
+The thought brought a smile to my face.
 
-It was my Landlord. He still looked as dead, as the day I met him. But this time he was really dead. Bugs crawling out of his mouth, his eyes so clear you could practically see through them. And then there was the stench. It was unbearable at this distance. The constant struggle between running and puking hit me fast and I barely made it outside the aparment door. 
+“Do you know why she refused to come with me, John?”
 
+“Out of anger?”
 
+The boy shook his head.
 
-The next couple of hours went by in a haste. I can’t remember everything, so I try to recall the situation by looking at the police report. 
+“Out of love. Her love for you. For her mother. For her sister. Her love was strong enough to challenge forces even I dare not resist. I was in awe of her, John. That’s why I promised her to show you this. She truly was a kind child.”
 
+Silent tears rolled down my face, but their sting was less painful than before. The boy grabbed my hands and gently pulled me back to my feet.
 
+“In time you will see her again. She will be waiting for you. For all of you. But she hoped she would still be waiting a while longer. Do you understand?”
 
+I did not have the strength to answer. All I could do was give the boy a weak nod. Together we walked back to the bus and took our familiar seats in the back.
 
+“Thank you,” I said after a moment. “Thank you for taking care of Mara. Thank you for helping me.”
 
-The police report said, that my landlord had suffocated the day we moved in. It couldn’t have been more than a couple of hours after our conversation. Maybe just minutes.
+The boy looked taken aback.
 
-They said he had fly eggs in his lungs. By now it must have been maggots. I can’t imagine what he must have been through. But I can’t say I was surprised, the way he looked when I first met him. 
+“Wherever I go people usually fear me. They recoil at my touch, even if I only mean to help. I have always been hated because I am a reminder of the inevitable. Never before has someone thanked me.”
 
-It looks like the police arrived at 1:17 am. That’s when they started to question me. Another round of questioning at 1:54 am. Of course they forced me to wake up shaun, so they could get his side of the story. This was at about 2:11 am. I was furious that they wanted to get my son into the whole situation, as I didn’t want him to suffer through the trauma of his neighbor dying after everything that happened, but what was I supposed to do. Fight the cops in front of my son? 
+His words carried such emotion. I tentatively put my arm around the child’s shoulder. The boy gazed up at me. Tears slowly formed in his eyes.
 
-He told them that he has heard his landlords voice from the fire exit the last couple of nights. Strangely, he never told me as much. But he probably named the landlord „Bug Man“ as he never got his real name. He also didn’t tell the police about the bugs talking to him. Which was for the better in my opinion. 
+He leaned into me and cried.
 
+I let him.
 
+Before long I fell into a deep sleep.
 
-He messaged his mom in the middle of the questioning, which I didn’t realize until about 4:21 am, when his mom showed up. How do I know this? 
+When I awoke we were back at the bus stop. The boy accompanied me to the front where the doors slid open. I walked down the little stairs. The moment my feet hit the pavement the dials on my watch began to move once more.
 
-Because the police report was really specific about the vocabulary both me and my wife used towards each other. 
+“This is where we part,” the boy said from inside the bus.
 
+I looked at him sheepishly. My mouth opened but no words came out. I did not know what to say.
 
+“Where will you go from here?”
 
-At about 5:35 am she took him with her. 
+The boy shrugged.
 
+“I never know…”
 
+“Are you death?” I suddenly blurted.
 
-It’s now 11:17 pm and I’m finally laying in my new bed. Im writing all of this, so someone else can try and make some sense out of it.
+The boy grinned as the doors slowly slid closed.
 
-I should have been mad, because this will definitely turn things upside down in our custody battle. But you know what. I’m not angry.
-
-Actually I’m glad. glad my son is out of this house. In the arm of his caring mother.
-
-I still don’t know the reason for all the bugs in this building and what happened to my landlord, but as the bugs start to crawl up my legs I know, that I will soon find out.
+I sat at the bus stop long after the bus had disappeared. Then I walked back towards my car. On the bridge I took the gun from my pocket and swung it into the river. I was ready to go home.
