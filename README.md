@@ -1,28 +1,76 @@
-# Cathy
-When I was ten my mother would always drop me off at my cousin’s house. This was an everyday thing. My cousin and I were super close and the same age at the time. Something happened one day and I had to stay home. That day her house caught on fire. Sadly, no one survived.
+# Fading
+Hello everyone,
 
-Afterwards, like a year later, these weird things would happen. One night when I was in bed listening to the radio and reading a magazine. My body shifted to a weight pressing down on my mattress. I thought it was my dad and maybe I was too focused in a daydream of me owning one of those cars printed on the magazine pages, that I hadn’t noticed him come in. But when I looked no one was there.
+Currently, I'm sitting in my car, posting this from my phone. I'm not sure what my next step is but I figured I would ask you. My name is David. I work as an accountant for a moderately successful business, or I guess I used to.
 
-A few days after, I was asleep in my room and I don’t know exactly if I was dreaming, or what. But my cousin was in front of me trying to wake me up. She kept saying, “Danny. Danny.” And when I woke up I heard, *Danny,* as if someone was standing next to my bed.
+Working in a place like that isn’t super exciting but it pays the bills. It allowed me to buy a nice car, go on vacations, and even allowed me to buy a two story house. I got it at auction and ended up saving a ton of money on it. Most of my time is spent staring into spreadsheets and endless email chains, buried deep in the back of a maze of cubicles. That was until a couple of weeks ago, when everything started to change. One day, as I was sitting there staring at my computer, my supervisor Mr. Thomas came by and struck up a conversation with me.
 
-Other things would happen, like I’d see something move past me. But it always appeared like how you would catch someone from the corner of your eye exiting a doorway. I never invested much into those experience. I figured it was mental fatigue.
+“David, I just wanted to tell you how much I appreciate what you did for the Anderson report.”
 
-The following winter, my parents installed two-inch thick windows in every room in the house. The type that push open from the middle.
+“What? I didn’t work on that.”
 
-The one time I was ever alone. Truly alone in that house. I woke up coughing. A little disoriented. At first, it didn’t register to me why my room was so hazy. I thought maybe I was sleepy, or my eyes hadn’t come into focus. A thought of my mom even crossed my mind. I thought maybe she burnt something in the oven. I didn’t hear a fire alarm or anything. It took me a second to realize that my house was actually on fire.
+“What are you talking about? I have it right here. You did great, don’t be shy.”
 
-I shot up out of bed and raced for the stairs. I could feel the heat stinging my skin. My vision was blurred by thick black clouds of smoke. I wouldn’t even call them clouds it was more like a water hose that shot black suffocating smoke directly into your face. I could feel the soot sticking to the sweat on my face.
+I looked at the paper, and right there at the end, was my signature block. I didn’t know what to say so I just thanked him for what he said and tried to continue my work as he walked away. I knew work seemed mundane at times, but I was confused how I could forget an entire report. I just shrugged and brushed it off. After all, my boss was happy and I got a pat on the back. It was a win-win.
 
-I got to the railing and went to jump onto the middle of the stairs. But everytime I would make a move, the flames would start shooting over the railing. Finally I gave up and ran to my bedroom. I stood there desperately trying to break through the window. I hit it over and over and over. It wouldn’t break. I started throwing whatever I could find at it. They’d all bounce off the glass.
+A few days after that, I sat in the same spot at my desk when Ted came over to me and asked what I thought about his idea. I just stared at him for a minute. What idea? Ted sat a few rows away from me, and aside from meetings, the two of us merely shared a pleasant hello when passing.
 
-I stopped. No. I gave up and sat with my back against the wall under the window sill and accepted my fate.
+“I must have forgotten about it. What idea, Ted?” I asked.
 
-At that moment, there’s an odd sense of peace that flows through you. It wasn’t a life flashing before your eyes thing. It was more like when you’ve completed a monumental task and can finally relax and enjoy the work you’ve done. I wasn’t scared. I sat there without a single thought in my mind and waited. A second or so after I closed my eyes and pressed the back of my head against the wall, a drawer from my dresser popped out and dropped on the floor.
+“You know. Adding an approval column to the monthly expense sheet. We talked about it for about 30 minutes yesterday. You said you thought it would make things easier for Mr. Thomas.”
 
-Something. Someone. I don’t know what. But this thing pretty much handed me the drawer and gave me the strength to stand up. It wasn’t a second wind surge. I had already inhaled so much smoke and was teetering on the edge of passing out. But, Something that I’m unable to explain without people suggesting it was all in my head and nothing spiritual helped me break through the window. Helped me break through that window.
+“Oh. Yeah. Sounds great, Ted.”
 
-I climbed out just as the firefighters arrived. They rescued me off my roof. I only suffered one laceration from climbing out of the window. It’s on my right arm. I ended up receiving twelve stitches.
+Jesus. Maybe Ted did tell me and I just wasn’t paying attention. How can you focus on an approval column for 30 minutes? I turned back to my spreadsheets and continued to type away.
 
-What’s incredibly odd and the only reason I have a profound belief in spirits, ghosts, or guardian angels. Whatever it is, is because when I was a kid, my uncle, her dad, had tattoos. Cathy would always joke about tattooing her name on my arm.
+The next week, I was in the breakroom eating lunch. Mr. Thomas’ assistant, Alice, came in and dropped into the seat across from me. She flipped open her lunch and immediately broke into conversation.
 
-To this day, after that fire, when I got stitched up and checked out the cut, it is a perfect shape of a *C*scarred on my arm until this very day\*.\* Not crooked. Not, yeah it looks like a *C.* It is the alphabetical letter *C,* for my cousin Cathy who died in a fire at her house when we were kids.
+“How’s your day going?” she asked.
+
+“Fine. How about yours?” I replied.
+
+“Oh my god, can you believe how that restaurant was yesterday? The service was awful.”
+
+“What? What restaurant? Where did you go?”
+
+Alice just sat there with a confused look on her face. “Did you really just block it out of your memory?”
+
+“What are you talking about, Alice?”
+
+“The Italian place? The waitress spilled a drink on me. You literally complained about your sandwich for half of the meal.”
+
+I had no idea what to say. What the hell was she talking about? Yesterday, I was sitting at my desk during lunch because I was finishing up some work. I didn’t eat with anyone, and I definitely didn’t go to lunch with Alice.
+
+The next day, I came into work and said hi to the receptionist, like I had done a thousand times before, but he didn’t say anything. I thought that he just didn’t hear me and kept walking towards my desk. Ted did the same thing as I walked by his desk. He was probably still upset I forgot about his column addition. It was a similar story when I walked up to Alice’s desk and asked her if Mr. Thomas was in his office. She didn’t answer me. She didn’t even look up from her computer. Fucking rude, I thought to myself as I walked off. The whole ride home, all I could think about was taking a shower and having a glass of wine to unwind.
+
+When I got home, I walked through the garage into the kitchen and dropped all my stuff onto the counter. I drug myself upstairs, showered and then went back to the kitchen to get some wine. When I grabbed the bottle though, I realized half of the bottle was empty. I had just gotten the bottle the other day and hadn’t even opened it. I kept thinking about it over and over again the rest of the night. Did I open this? No….no, I just got it the other day and I hadn’t touched it since.
+
+The next day at work, everything was fine. Ted waved, Alice smiled and said hi when she saw me. Everyone had moved on thankfully. Mr. Thomas came by and asked if I could finish a report a few days early, which wasn’t a big deal because I had gotten ahead on it anyways. When I got home though, the dining room chair was moved. I knew I had pushed it in last night and now I was staring at it sitting a few feet from the table.  Did I just imagine I pushed it in? Was I in a hurry? The next night it was my food. I had brought home leftovers from a Chinese restaurant and they were gone. Not just less, gone. I found the container in the trash. I don’t know how many keys there were to the house. I thought I had gotten them all from the realtor. I figured just to be safe, I would have a locksmith come out and change all the locks. I got off the phone with him when I pulled into my garage the next day.
+
+I walked upstairs and when I opened the door to my bathroom, the floor was wet. I saw a wet towel hung up. Water on the shower curtain. The mirror was still foggy. I flew through the house checking everywhere. The bedroom, nothing. The guest room, nothing. Every closet, downstairs the garage. I even checked the pantry. There wasn't a sign of anyone to be found. I almost had a heart attack when suddenly I heard a knock on the front door. It was the locksmith.
+
+As he worked to change every lock in the house, I installed a couple of cameras across the house and at the front door. Changing the locks was good, but I wanted to have something just in case someone tried to come back again. That night, I sat there watching TV, had a little wine, and slept like a baby in my newly secured fortress. This was how things went for days, until I got a notification while I was sitting at my desk. Motion Detected: Front Door.
+
+I couldn’t believe it. I picked my phone up and looked at the live feed from the doorbell. There wasn’t anyone standing there. I switched to the living room camera and couldn’t comprehend what I was seeing. A man. Standing in my living room. He was dressed in work clothes similar to mine and had a similar haircut. No, not similar. It was the same. They were my clothes. Then he turned and I could see his face. Well... my face. It was me standing there. I checked the timestamp and saw it was current. This wasn’t from earlier today or yesterday. I was standing in my living room while I was sitting at work.
+
+I sat there in silent disbelief. I watched him as he put his keys and wallet down. He took his shoes off. He went to the kitchen and got a glass of wine. He got some food out of the refrigerator and then made his way upstairs. I closed out the app, called 911 and rushed out the door to head home.
+
+When I arrived, the police were already there. The officer told me that he had walked around the outside of the home but didn’t see any signs of a break-in. I explained that no, it wasn’t a break-in. The person had used a key. He took my set and unlocked the front door and went inside to search. After about 15 minutes, he came out alone. He just shook his head and told me that there wasn’t anyone there. That’s when I remembered the cameras. I pulled out my phone and showed the officer the footage.
+
+“Sir. That’s you,” he said flatly.
+
+“No, no, it isn’t. Look,” I said as I showed him the timestamp. “I was at work. You beat me here. How could that be me?”
+
+He looked down at the phone and then back at me.
+
+“Sir. That’s you.”
+
+He told me to give them a call if I find anything else suspicious and turned to get back into his car. I stood outside and just stared at the house. I couldn’t go back inside. After about 15 minutes, I worked up the courage to run inside and pack a bag. There was absolutely no way I was going to stay in that house. I got my bag and went to stay in a hotel for a few days. Each day, I watched the cameras. No movement. No notifications. No mysterious me walking throughout the house. Today is when I decided to finally go back. I figured after work, I would just head back. Being in my own bed would be nice anyway.
+
+But when I walked in, the receptionist didn't say hi. Ted didn't acknowledge me when I walked by his desk. Alice ignored me again. When I sat in a meeting, I mentioned that we should push back a deadline a couple of days and not a soul in the room said a word about it. They didn't even look at me. A couple of seconds later, someone else made the same suggestion and everyone agreed. I just got up and left.
+
+I pulled up to the house and hit the garage door opener. Nothing. Damn batteries must have died, I thought. I put the car in park, grabbed my bag, then walked up and put my keys in the lock. Nothing. They wouldn’t turn. Then I heard a laugh.
+
+I looked through the window into the living room. Inside, I saw Ted and Alice sitting with some drinks, laughing and talking to… me. That’s when he turned his head and saw me.
+
+He just paused. Looked at me for a few seconds and… then went back to talking to Ted and Alice.
