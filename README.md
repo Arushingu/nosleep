@@ -1,76 +1,61 @@
-# Fading
-Hello everyone,
+# I am a surgeon working in the internal medicine department. I found a foreign body in my patient. But I am the only one who sees it. (part 2)
 
-Currently, I'm sitting in my car, posting this from my phone. I'm not sure what my next step is but I figured I would ask you. My name is David. I work as an accountant for a moderately successful business, or I guess I used to.
+[https://www.reddit.com/r/nosleep/s/aubIQl2yqX](https://www.reddit.com/r/nosleep/s/aubIQl2yqX) For further context i attached a link to my previous post. 
 
-Working in a place like that isn’t super exciting but it pays the bills. It allowed me to buy a nice car, go on vacations, and even allowed me to buy a two story house. I got it at auction and ended up saving a ton of money on it. Most of my time is spent staring into spreadsheets and endless email chains, buried deep in the back of a maze of cubicles. That was until a couple of weeks ago, when everything started to change. One day, as I was sitting there staring at my computer, my supervisor Mr. Thomas came by and struck up a conversation with me.
+After the first incident with my mental break, conversation at the clinic became scarce, routine small talk turned into nothing more than a few shared words. I couldn't tell you if I was being avoided or if this was just the general atmosphere.
 
-“David, I just wanted to tell you how much I appreciate what you did for the Anderson report.”
+Only a few days have passed, and nothing was out of order until today. As you know, if I attempted to write a discharge summary and epicrisis on what I saw, it would get swiftly thrown away due to disagreements, so I decided to hand that responsibility over to the assistant surgeon. I will recall the events from today.
 
-“What? I didn’t work on that.”
+Yesterday I was sitting in my office when a referral arrived from an orthopedic specialist:
 
-“What are you talking about? I have it right here. You did great, don’t be shy.”
+*"Diagnosed meniscus damage after a thorough examination; the case requires a minimally invasive surgical procedure."*
 
-I looked at the paper, and right there at the end, was my signature block. I didn’t know what to say so I just thanked him for what he said and tried to continue my work as he walked away. I knew work seemed mundane at times, but I was confused how I could forget an entire report. I just shrugged and brushed it off. After all, my boss was happy and I got a pat on the back. It was a win-win.
+It will be an arthroscopy, I confirmed the patient's admission.
 
-A few days after that, I sat in the same spot at my desk when Ted came over to me and asked what I thought about his idea. I just stared at him for a minute. What idea? Ted sat a few rows away from me, and aside from meetings, the two of us merely shared a pleasant hello when passing.
+Today at 8:00 AM, we began preparing for the surgery. First came the medical student. She's somehow grown dear to me after six months of her clinical rotation. A very quiet girl. I never know what's on her mind, but she works hard, she's observant, and she learns fast. At twenty-three, Lana looked more like a lost schoolgirl than a third-year medical student. 
 
-“I must have forgotten about it. What idea, Ted?” I asked.
+"Morning, Lana. How are you holding up?" I asked.
 
-“You know. Adding an approval column to the monthly expense sheet. We talked about it for about 30 minutes yesterday. You said you thought it would make things easier for Mr. Thomas.”
+"Fine, Dr. Phillip... Just getting ready," she murmured, avoiding my eyes as she snapped on her surgical gloves.
 
-“Oh. Yeah. Sounds great, Ted.”
+"Good. Same as always," I lied, the silence between us heavy with everything left unsaid.
 
-Jesus. Maybe Ted did tell me and I just wasn’t paying attention. How can you focus on an approval column for 30 minutes? I turned back to my spreadsheets and continued to type away.
+At that moment, the assistant surgeon enters, my right hand, so to speak. He's only been in this field for a decade. At forty, Andrew had a heavy, stocky build that filled out his surgical scrubs completely.  He carried a disarming, approachable look, the kind of face patients trusted instantly, though his eyes were always calculating.
 
-The next week, I was in the breakroom eating lunch. Mr. Thomas’ assistant, Alice, came in and dropped into the seat across from me. She flipped open her lunch and immediately broke into conversation.
+"Morning, Phillip," Andrew chirped, snapping his scrub mask into place with practiced ease. 
 
-“How’s your day going?” she asked.
+"Ready to knock another one out before lunch?"
 
-“Fine. How about yours?” I replied.
+"As ready as I'll ever be. How are you?"
 
-“Oh my god, can you believe how that restaurant was yesterday? The service was awful.”
+"Can't complain. Another day, another bill paid," he smiled.
 
-“What? What restaurant? Where did you go?”
+A second later, the anesthesiologist enters.. She's always been a dear friend to me, we studied together in university , and she even introduced me to my wife. Standing a head above most of the staff. A former free spirit, someone who used to attend peace rallies in the seventies, now reduced to counting down the final four years until retirement.
 
-Alice just sat there with a confused look on her face. “Did you really just block it out of your memory?”
+"Hello, Dolly…" I smiled.
 
-“What are you talking about, Alice?”
+"Hi." she answered monotonously.
 
-“The Italian place? The waitress spilled a drink on me. You literally complained about your sandwich for half of the meal.”
+Thirty minutes after preparing the operating room, the patient was admitted and anesthetized. I began the arthroscopy. I made two small portal incisions, but as I adjusted the scope to inspect the tissue, I leaped back in visceral terror.
 
-I had no idea what to say. What the hell was she talking about? Yesterday, I was sitting at my desk during lunch because I was finishing up some work. I didn’t eat with anyone, and I definitely didn’t go to lunch with Alice.
+Where the patella should have been, a wet, unblinking eye stared back through the portal, locking its gaze directly onto mine. Nestled beneath the joint lay a biological aberration, watching me.
 
-The next day, I came into work and said hi to the receptionist, like I had done a thousand times before, but he didn’t say anything. I thought that he just didn’t hear me and kept walking towards my desk. Ted did the same thing as I walked by his desk. He was probably still upset I forgot about his column addition. It was a similar story when I walked up to Alice’s desk and asked her if Mr. Thomas was in his office. She didn’t answer me. She didn’t even look up from her computer. Fucking rude, I thought to myself as I walked off. The whole ride home, all I could think about was taking a shower and having a glass of wine to unwind.
+"Phillip, for God's sake," Dolly dryly wheezed through her mask, letting out a nervous laugh. "You look like you've seen a ghost. Is early retirement catching up to you, or are you just forgetting where the joint is?"
 
-When I got home, I walked through the garage into the kitchen and dropped all my stuff onto the counter. I drug myself upstairs, showered and then went back to the kitchen to get some wine. When I grabbed the bottle though, I realized half of the bottle was empty. I had just gotten the bottle the other day and hadn’t even opened it. I kept thinking about it over and over again the rest of the night. Did I open this? No….no, I just got it the other day and I hadn’t touched it since.
+Lana was staring straight at the knee… wordlessly. The assistant just slowly started picking up his instruments from the tray, recognizing the signs of another breakdown.
 
-The next day at work, everything was fine. Ted waved, Alice smiled and said hi when she saw me. Everyone had moved on thankfully. Mr. Thomas came by and asked if I could finish a report a few days early, which wasn’t a big deal because I had gotten ahead on it anyways. When I got home though, the dining room chair was moved. I knew I had pushed it in last night and now I was staring at it sitting a few feet from the table.  Did I just imagine I pushed it in? Was I in a hurry? The next night it was my food. I had brought home leftovers from a Chinese restaurant and they were gone. Not just less, gone. I found the container in the trash. I don’t know how many keys there were to the house. I thought I had gotten them all from the realtor. I figured just to be safe, I would have a locksmith come out and change all the locks. I got off the phone with him when I pulled into my garage the next day.
+I couldn't breathe. I needed a break, urgently. A wave of nausea hit as I backed away, my blood pressure spiking. I took five steps backward until my spine hit the cold wall, never breaking eye contact. I attempted to continue the procedure, trying my hardest to act like its gaze wasn't piercing into my skull as I tried to come to..I took a step forward with my last brave attempt at continuing the procedure. My footsteps sounded heavy as I leaped slightly forward. The moment my weight shifted, the black pupil expanded exponentially, covering the iris in a second. It dilated precisely like a cat’s would in the dead of night, and fixated entirely on the movement of its prey. It wasn't just watching me anymore, it was tracking me. 
 
-I walked upstairs and when I opened the door to my bathroom, the floor was wet. I saw a wet towel hung up. Water on the shower curtain. The mirror was still foggy. I flew through the house checking everywhere. The bedroom, nothing. The guest room, nothing. Every closet, downstairs the garage. I even checked the pantry. There wasn't a sign of anyone to be found. I almost had a heart attack when suddenly I heard a knock on the front door. It was the locksmith.
+I collapsed onto a bench outside in the hallway, suffocating. I didn't want to leave them alone with that thing, nor the patient, but I was paralyzed. Every minute felt like an hour. The fluorescent lights overhead burned my eyes, harsh shadows in every corner that I couldn't face. Nurses and orderlies subtly avoided me. I kept my eyes on the floor, terrified of what might look back from someone else's eyes. All i could do was wait, i couldn’t move a centimeter or avert my gaze from the linoleum on the floor. I was frozen in time and space, a coward. 
 
-As he worked to change every lock in the house, I installed a couple of cameras across the house and at the front door. Changing the locks was good, but I wanted to have something just in case someone tried to come back again. That night, I sat there watching TV, had a little wine, and slept like a baby in my newly secured fortress. This was how things went for days, until I got a notification while I was sitting at my desk. Motion Detected: Front Door.
+After a subjective eternity, the doors swung open. First Lana entered , visibly distressed, then Dolly, who sat down right beside me in heavy silence. I didn't dare look her in the eyes either. Then came the patient on a gurney, being wheeled to the PACU.
 
-I couldn’t believe it. I picked my phone up and looked at the live feed from the doorbell. There wasn’t anyone standing there. I switched to the living room camera and couldn’t comprehend what I was seeing. A man. Standing in my living room. He was dressed in work clothes similar to mine and had a similar haircut. No, not similar. It was the same. They were my clothes. Then he turned and I could see his face. Well... my face. It was me standing there. I checked the timestamp and saw it was current. This wasn’t from earlier today or yesterday. I was standing in my living room while I was sitting at work.
+Finally, Andrew stepped out. He stood over me, his shadow blocking the harsh hallway light.
 
-I sat there in silent disbelief. I watched him as he put his keys and wallet down. He took his shoes off. He went to the kitchen and got a glass of wine. He got some food out of the refrigerator and then made his way upstairs. I closed out the app, called 911 and rushed out the door to head home.
+"I owe my career to you, Phillip. You know that," Andrew said, his voice dropping low so the staff wouldn't hear. "But what the hell was that in there? You lost it. Completely. What am I supposed to put in the chart?"
 
-When I arrived, the police were already there. The officer told me that he had walked around the outside of the home but didn’t see any signs of a break-in. I explained that no, it wasn’t a break-in. The person had used a key. He took my set and unlocked the front door and went inside to search. After about 15 minutes, he came out alone. He just shook his head and told me that there wasn’t anyone there. That’s when I remembered the cameras. I pulled out my phone and showed the officer the footage.
+My mind spiraled into a string of impossible explanations , early-onset dementia, a waking hallucination. I searched for an answer that wouldn't end with me in a psychiatric ward, but the words simply wouldn't leave my throat.
 
-“Sir. That’s you,” he said flatly.
+I still stared at the linoleum, that eye still burning in my mind, staring directly at me, and answered quietly:
 
-“No, no, it isn’t. Look,” I said as I showed him the timestamp. “I was at work. You beat me here. How could that be me?”
-
-He looked down at the phone and then back at me.
-
-“Sir. That’s you.”
-
-He told me to give them a call if I find anything else suspicious and turned to get back into his car. I stood outside and just stared at the house. I couldn’t go back inside. After about 15 minutes, I worked up the courage to run inside and pack a bag. There was absolutely no way I was going to stay in that house. I got my bag and went to stay in a hotel for a few days. Each day, I watched the cameras. No movement. No notifications. No mysterious me walking throughout the house. Today is when I decided to finally go back. I figured after work, I would just head back. Being in my own bed would be nice anyway.
-
-But when I walked in, the receptionist didn't say hi. Ted didn't acknowledge me when I walked by his desk. Alice ignored me again. When I sat in a meeting, I mentioned that we should push back a deadline a couple of days and not a soul in the room said a word about it. They didn't even look at me. A couple of seconds later, someone else made the same suggestion and everyone agreed. I just got up and left.
-
-I pulled up to the house and hit the garage door opener. Nothing. Damn batteries must have died, I thought. I put the car in park, grabbed my bag, then walked up and put my keys in the lock. Nothing. They wouldn’t turn. Then I heard a laugh.
-
-I looked through the window into the living room. Inside, I saw Ted and Alice sitting with some drinks, laughing and talking to… me. That’s when he turned his head and saw me.
-
-He just paused. Looked at me for a few seconds and… then went back to talking to Ted and Alice.
+"I don't know.”
