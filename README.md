@@ -1,61 +1,26 @@
-# I am a surgeon working in the internal medicine department. I found a foreign body in my patient. But I am the only one who sees it. (part 2)
+# Every morning, I have to clean my nails of dirt.
+When I got the news, I wasn't particularly surprised. The death of my father was to be expected - an alcoholic that drank liquor for water couldn't last very long. I did however feel excluded from the mourning - either it didn't settle yet, or it didn't even arrive. He didn't have a funeral, hence from what I was told, his remains weren't found.
 
-[https://www.reddit.com/r/nosleep/s/aubIQl2yqX](https://www.reddit.com/r/nosleep/s/aubIQl2yqX) For further context i attached a link to my previous post. 
+I watched the calendar after the incident. A day, two, a week. Time went by the same, I concluded, with little care. My main problem was another one - hygiene has become my priority lately - and my nails have refused to cooperate.
 
-After the first incident with my mental break, conversation at the clinic became scarce, routine small talk turned into nothing more than a few shared words. I couldn't tell you if I was being avoided or if this was just the general atmosphere.
+When I open my eyes each morning, and I scratch softly at the ends to leave my slumber, I find a brown substance hidden underneath my fingernails. I soon found it to be dirt, I thought, by the texture and smell, though I haven't told my mother that. She'd think I lost my mind, so I fabricated a scenario of the body doing its thing - she's not particularly intelligent, so she believed me. 
 
-Only a few days have passed, and nothing was out of order until today. As you know, if I attempted to write a discharge summary and epicrisis on what I saw, it would get swiftly thrown away due to disagreements, so I decided to hand that responsibility over to the assistant surgeon. I will recall the events from today.
+What really bothered me, though, were the dreams that suddenly came back. Hammers, screwdrivers, and razor sharp blades filled my vision when I fell asleep. His face was plastered among them, devastated and half-expired. I'd wake up in a cold sweat on the first few nights, until it became a routine. 
 
-Yesterday I was sitting in my office when a referral arrived from an orthopedic specialist:
+Though, the more dreams I got, the more dirt I kept finding. 
 
-*"Diagnosed meniscus damage after a thorough examination; the case requires a minimally invasive surgical procedure."*
+One night, I even tried stuffing my nails with cotton - to keep it from forming, from appearing - but the next morning, it was gone. This went on for several weeks until I decided to set up a camera. Surely, if it's a biological thing and not me digging through the chocolate in the fridge, then I don't even have a reason to film it in the first place. 
 
-It will be an arthroscopy, I confirmed the patient's admission.
+When I woke up - with dirt under as always - I stopped recording and watched myself in the video. 
 
-Today at 8:00 AM, we began preparing for the surgery. First came the medical student. She's somehow grown dear to me after six months of her clinical rotation. A very quiet girl. I never know what's on her mind, but she works hard, she's observant, and she learns fast. At twenty-three, Lana looked more like a lost schoolgirl than a third-year medical student. 
+At around midnight, my breath leveled out with a few embarrassing snores. They quickly quietened down when I started to sit up in my bed. My eyes were shut, awfully tight even, as I reached for my phone before standing up. My mother didn't hear a thing. 
 
-"Morning, Lana. How are you holding up?" I asked.
+I could see myself getting on a pair of zip-up boots before leaving the house. Hell, I knew I sometimes sleepwalked, but it's getting ridiculous. My keys were clinking softly, thankfully, at least I didn't wake up the neighbors too. 
 
-"Fine, Dr. Phillip... Just getting ready," she murmured, avoiding my eyes as she snapped on her surgical gloves.
+I believe it was a three kilometer walk. My feet carried me pretty fast, so I arrived at my destination quickly. The feed was getting darker, less illuminated by the nearby streetlamps, though I could still see a little bit. It looked like a field, an open one, with a small patch of abundant bushes and several trees surrounding them. 
 
-"Good. Same as always," I lied, the silence between us heavy with everything left unsaid.
+Then I started to dig. 
 
-At that moment, the assistant surgeon enters, my right hand, so to speak. He's only been in this field for a decade. At forty, Andrew had a heavy, stocky build that filled out his surgical scrubs completely.  He carried a disarming, approachable look, the kind of face patients trusted instantly, though his eyes were always calculating.
+The specific location was odd at first - it could've been anywhere else - but considering that I'm not exactly awake right now, it doesn't really matter. The dirt comes off easily, I see, the thing didn't get stuck to anything beneath. Sometimes I'm so hungry that I feel malnourished, but I live for the taste of meat. 
 
-"Morning, Phillip," Andrew chirped, snapping his scrub mask into place with practiced ease. 
-
-"Ready to knock another one out before lunch?"
-
-"As ready as I'll ever be. How are you?"
-
-"Can't complain. Another day, another bill paid," he smiled.
-
-A second later, the anesthesiologist enters.. She's always been a dear friend to me, we studied together in university , and she even introduced me to my wife. Standing a head above most of the staff. A former free spirit, someone who used to attend peace rallies in the seventies, now reduced to counting down the final four years until retirement.
-
-"Hello, Dolly…" I smiled.
-
-"Hi." she answered monotonously.
-
-Thirty minutes after preparing the operating room, the patient was admitted and anesthetized. I began the arthroscopy. I made two small portal incisions, but as I adjusted the scope to inspect the tissue, I leaped back in visceral terror.
-
-Where the patella should have been, a wet, unblinking eye stared back through the portal, locking its gaze directly onto mine. Nestled beneath the joint lay a biological aberration, watching me.
-
-"Phillip, for God's sake," Dolly dryly wheezed through her mask, letting out a nervous laugh. "You look like you've seen a ghost. Is early retirement catching up to you, or are you just forgetting where the joint is?"
-
-Lana was staring straight at the knee… wordlessly. The assistant just slowly started picking up his instruments from the tray, recognizing the signs of another breakdown.
-
-I couldn't breathe. I needed a break, urgently. A wave of nausea hit as I backed away, my blood pressure spiking. I took five steps backward until my spine hit the cold wall, never breaking eye contact. I attempted to continue the procedure, trying my hardest to act like its gaze wasn't piercing into my skull as I tried to come to..I took a step forward with my last brave attempt at continuing the procedure. My footsteps sounded heavy as I leaped slightly forward. The moment my weight shifted, the black pupil expanded exponentially, covering the iris in a second. It dilated precisely like a cat’s would in the dead of night, and fixated entirely on the movement of its prey. It wasn't just watching me anymore, it was tracking me. 
-
-I collapsed onto a bench outside in the hallway, suffocating. I didn't want to leave them alone with that thing, nor the patient, but I was paralyzed. Every minute felt like an hour. The fluorescent lights overhead burned my eyes, harsh shadows in every corner that I couldn't face. Nurses and orderlies subtly avoided me. I kept my eyes on the floor, terrified of what might look back from someone else's eyes. All i could do was wait, i couldn’t move a centimeter or avert my gaze from the linoleum on the floor. I was frozen in time and space, a coward. 
-
-After a subjective eternity, the doors swung open. First Lana entered , visibly distressed, then Dolly, who sat down right beside me in heavy silence. I didn't dare look her in the eyes either. Then came the patient on a gurney, being wheeled to the PACU.
-
-Finally, Andrew stepped out. He stood over me, his shadow blocking the harsh hallway light.
-
-"I owe my career to you, Phillip. You know that," Andrew said, his voice dropping low so the staff wouldn't hear. "But what the hell was that in there? You lost it. Completely. What am I supposed to put in the chart?"
-
-My mind spiraled into a string of impossible explanations , early-onset dementia, a waking hallucination. I searched for an answer that wouldn't end with me in a psychiatric ward, but the words simply wouldn't leave my throat.
-
-I still stared at the linoleum, that eye still burning in my mind, staring directly at me, and answered quietly:
-
-"I don't know.”
+I'm sorry that I have to cut my explanations short. It's past midnight, and I have to make sure my boots are silent. 
