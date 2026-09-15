@@ -1,26 +1,49 @@
-# Every morning, I have to clean my nails of dirt.
-When I got the news, I wasn't particularly surprised. The death of my father was to be expected - an alcoholic that drank liquor for water couldn't last very long. I did however feel excluded from the mourning - either it didn't settle yet, or it didn't even arrive. He didn't have a funeral, hence from what I was told, his remains weren't found.
+# We Don´t Belong Down There
+“What’s that on the radar?” the commander asked.
 
-I watched the calendar after the incident. A day, two, a week. Time went by the same, I concluded, with little care. My main problem was another one - hygiene has become my priority lately - and my nails have refused to cooperate.
+“I’m not sure, sir. It’s been following us for a few minutes. I thought it was a whale, but it’s far too fast.”
 
-When I open my eyes each morning, and I scratch softly at the ends to leave my slumber, I find a brown substance hidden underneath my fingernails. I soon found it to be dirt, I thought, by the texture and smell, though I haven't told my mother that. She'd think I lost my mind, so I fabricated a scenario of the body doing its thing - she's not particularly intelligent, so she believed me. 
+It was definitely something biological, at least according to the sonar. But nothing that large should follow a vessel at such depth, and certainly not for so long.
 
-What really bothered me, though, were the dreams that suddenly came back. Hammers, screwdrivers, and razor sharp blades filled my vision when I fell asleep. His face was plastered among them, devastated and half-expired. I'd wake up in a cold sweat on the first few nights, until it became a routine. 
+“Hold course and increase speed to thirty-five knots. Good chance to test the turbines.”
 
-Though, the more dreams I got, the more dirt I kept finding. 
+I turned the throttle wheel counterclockwise and the steel began to groan under the shift in acceleration. No one in the crew made a sound, but the concern was unmistakable. This was an experimental submarine, and even the engineers didn’t fully know how the hull would react to the crushing pressure of the deep.
 
-One night, I even tried stuffing my nails with cotton - to keep it from forming, from appearing - but the next morning, it was gone. This went on for several weeks until I decided to set up a camera. Surely, if it's a biological thing and not me digging through the chocolate in the fridge, then I don't even have a reason to film it in the first place. 
+I looked at the radar and felt my stomach turn.
 
-When I woke up - with dirt under as always - I stopped recording and watched myself in the video. 
+“Sir…” I said, my voice trembling, “it’s gaining on us and it’s much faster than we are.”
 
-At around midnight, my breath leveled out with a few embarrassing snores. They quickly quietened down when I started to sit up in my bed. My eyes were shut, awfully tight even, as I reached for my phone before standing up. My mother didn't hear a thing. 
+It shouldn't have been possible. No known creature of that size could move at such speed. We were being hunted by something unknown.
 
-I could see myself getting on a pair of zip-up boots before leaving the house. Hell, I knew I sometimes sleepwalked, but it's getting ridiculous. My keys were clinking softly, thankfully, at least I didn't wake up the neighbors too. 
+The sonar returned an echo so broad that for a moment I thought the console had malfunctioned. It wasn’t a mere dot, it was a stain, a shadow spilling over half the screen.
 
-I believe it was a three kilometer walk. My feet carried me pretty fast, so I arrived at my destination quickly. The feed was getting darker, less illuminated by the nearby streetlamps, though I could still see a little bit. It looked like a field, an open one, with a small patch of abundant bushes and several trees surrounding them. 
+The commander didn’t hesitate:
 
-Then I started to dig. 
+“Engines to full power. Prepare to engage if necessary.”
 
-The specific location was odd at first - it could've been anywhere else - but considering that I'm not exactly awake right now, it doesn't really matter. The dirt comes off easily, I see, the thing didn't get stuck to anything beneath. Sometimes I'm so hungry that I feel malnourished, but I live for the taste of meat. 
+“Forty knots and climbing, commander.”
 
-I'm sorry that I have to cut my explanations short. It's past midnight, and I have to make sure my boots are silent. 
+The consoles shook violently screeching the metal to its limits . The crew began to panic. A veteran officer vomited across the floor. The acidic smell filled the cabin, and several crew members recoiled, covering their faces to avoid getting sick as well.
+
+By some miracle, the vessel held together surprisingly well and to my astonishment, we had broken the speed record for a craft of this size. But none of that mattered. The thing stayed on us, relentless, and it was about to catch us.
+
+Something struck the hull hard. The power died for a moment, plunging us into total darkness. We could hear it right beside us. The turbines fell silent, and the quiet inside the cabin turned sepulchral. The submarine began lurching side to side, as if something with impossibly large limbs were playing with it, with us.
+
+The green emergency lights flickered on, and I started rebooting the electronic systems as fast as I could.
+
+“ Prepare Tubes one and two, ready to fire on my command “ Said the commander.
+
+As soon as all systems were ready, he gave the order. My hand struggled to reach the launch button as **t**he whole deck violently pitched, but I  managed to slam my hand down on the controls. 
+
+We hit the target. The sound that creature made froze my blood. It was so shrill that my eardrums have never fully recovered. It released the vessel and slipped into the black depths of the sea. I don’t think we killed it, not really.
+
+There are things in this world no human should ever encounter. I know now we must abandon all exploration of the deep.
+
+The commander and I share a secret, you see. As we climbed toward the surface, the hull creaking and the systems barely responding, the radar detected another signal...
+
+Another presence.
+
+Larger.
+
+Much larger than the one that had been following us.
+
