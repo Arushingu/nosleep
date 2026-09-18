@@ -1,193 +1,127 @@
-# Alternate lifeforms of the Ravenrich - p.1.
-Greetings. Recently, I have returned from my expedition to Canada for researching endemic raven species for my university project. I wanted to do researches in the Ravenrich reserve, but I was forbidden to do so, so I did some research in the surrounding area. I took up a position near an abandoned industrial building in the forest, which must have been a research base, as there was a lot of carrion nearby, which the local species of ravens preferred to other food for some reason. While exploring the building, I also found some documents. You are currently reading one of them.
+# I'm not sure what'll happen if I go into my roommate's bedroom
+Sometimes, when I wake up, I forget everything.
 
+I’m a particularly light sleeper, and I’m usually on the same train of thought when I wake up that I was on when I fell asleep.
 
+Every once in a while, though, I forget everything.  
+That was this morning.
 
-***Official Field Guide to the Ravenreach Protected Zone***
+I was incredibly groggy. When I wake up like this, I tend to feel like I got no sleep at all. The room was pitch-black, only illuminated by my dim alarm clock. 6:43. There was a dot next to some text that read, “alarm”. What day of the week was it? Tuesday? Monday?
 
+My brain struggled to think of it. I raised my right hand. There was a long scar stretching from the indent in between the thumb and the pointer finger down to my forearm. What? Why was that there?
 
+The day of the week came back to me. It was Sunday. I wished I had known why my alarm was set. If I had woken up differently, I would’ve remembered.
 
-*Created with support from the* ***Perimeter***
+As for the scar on my hand, it came back to me. It was from my mother.
 
-*Section 4*
 
-*Chapter 2*
 
+Schizophrenia has always run in my family. It’s not the worst thing ever, of course. My grandpa (on her side) contracted it at the age of forty-four, which is relatively late, but he lives with it fine. He’s never thought of it as a huge roadblock, in his own words.
 
+My mom contracted it at the age of thirty-five. I was eight around the time, and it was very sudden for her. 
 
-***Hum***
+Of course, with time, she became used to it. She tried her hardest to mask her struggles from me and my brother, Andrew, but she was a historically bad liar. On the day before my eleventh birthday, I remember asking her where she was going, and I’ll never forget her response: “I’m going to the mall for… g…grocieries.”  
+The “mall” only had four stores, one of which being GameStop.
 
+All of this is to say we had a very good look at her mindset. 
 
+One of my mom’s childhood friends passed away when I was 16. The illness was unknown at the time, but it really shook her up. Although, she never really cried about it. She just seemed sullen all the time. Some days she would barely react to us. She just wanted to sleep all of the time. When she wasn’t sleeping, she would stay in our guest room, which was the darkest room in the house.
 
-*Foedicephalus festinans*
+It took me a long time to figure out something was wrong with her. It took us all a long time. I checked on her one day, and she got really angry. “Why are you in here? Why are you in here, when the one thing I told you was to not come in? Why can’t you listen to a *SINGLE DAMN THING I SAY*?” She quickly walked toward me. I slammed the door and leaned on it.
 
+She didn’t come out of that room until the next day, when my dad tried to intervene. She went berserk. 
 
+ I remember her saying we weren’t “there for her”, that we didn’t care about her friend at all. She attacked my dad, slamming his head into a countertop. She took Andrew, and threatened to slit his neck with a cleaver she grabbed if we didn’t “bring her back”. I jumped at her and grabbed her wrist, and she cut down into my hand. 
 
-*Threat Level:* ***Letum*** *(4/7)*
+The gash took months to heal. It formed into this big, ugly scar, a permanent reminder of how I didn’t help her when she needed it.
 
+The doctors brushed it off completely. They said it was a result of guilt (she had not met with that friend in awhile), mixed with her schizophrenia. My dad argued with the doctors every day he visited her, but their verdict never changed.
 
+She was sent to a psych ward for about a year, and she now lives in an assisted living facility, in an almost catatonic state. The people at the psych ward were pretty inconsistent with information, but I believe that she suffered a stroke halfway through her sentence, as for the first six months she acted as if she were in a constant state of psychosis.
 
-***Safety Protocol***
-
-*Pay attention to unusual vibrations occurring within your body or surrounding environment.*
-
-*If strong vibrations are detected, immediately inspect the area to locate the source.*
-
-*Upon visual contact with the organism, avoid open areas. Seek narrow passages or locations containing obstacles that restrict the creature’s movement.*
-
-*If shelter is unavailable, move between environmental obstacles and avoid remaining directly in the organism’s path.*
-
-*In open terrain, when the creature approaches within approximately 2 meters, immediately drop to the ground, lie face down, and cover your head with your arms. If possible, continue reducing the distance toward the nearest shelter, repeating this action whenever the organism approaches.*
-
-*Movement directly away from the organism in a straight line is* ***strictly prohibited****.*
-
-***Taxonomy***
-
-
-
-*Domain: Eukaryota*
-
-*Kingdom: Animalia*
-
-*Phylum: Chordata*
-
-*Class: Amphibia*
-
-*Order: Polypoda*
-
-*Family: Foedicephalidae*
-
-*Genus: Foedicephalus*
-
-
-
-***Description***
-
-
-
-*Foedicephalus festinans, commonly known as Hum, is a massive predatory amphibian measuring approximately 4 meters in length and weighing between 150 and 200 kilograms.*
-
-
-
-*The organism’s most distinctive feature is its disproportionately large head, reaching approximately 2 meters in diameter. Under normal conditions, the remainder of the body is almost impossible to observe due to a dense aerosol cloud surrounding the organism, composed of water vapor, metabolic byproducts, and other biological compounds released by the creature.*
-
-
-
-*The body of Hum contains numerous specialized siphons. Ten ventral siphons located on the underside of the body generate an air cushion between the organism and the ground, allowing temporary low-resistance movement resembling gliding above the surface.*
-
-
-
-*This system requires extremely high energy expenditure and can only be maintained for limited periods.*
-
-
-
-*An additional propulsion siphon releases a mixture of methane, water vapor, and biological compounds produced by symbiotic microorganisms inhabiting the gastrointestinal tract. This gas emission allows rapid movement but significantly reduces maneuverability.*
-
-
-
-*Three pairs of fins extend from the lateral sides of the body and are used for stabilization and directional control. The elongated tail contains a vertical fin and functions as the primary steering mechanism.*
-
-
-
-*The eyes are large and highly sensitive in low-light environments. A third eyelid protects the visual organs during attacks and movement through dense obstacles.*
-
-
-
-*The mouth can open to an extreme angle due to the high flexibility of the lower jaw. Large, reinforced teeth are used to crush the bones and protective structures of prey.*
-
-
-
-*The skeleton consists of lightweight hollow bones while maintaining considerable structural strength.*
-
-
-
-*Reproduction occurs in freshwater environments. Juvenile individuals feed on carrion and aquatic organisms until completing metamorphosis and transitioning to a terrestrial lifestyle.*
-
-
-
-*Adult individuals obtain most required moisture through food consumption.*
-
-
-
-*Hum possesses highly developed vision and olfactory senses, while auditory perception remains limited. Sounds produced through vocalization or movement occur below the human audible range but generate powerful low-frequency vibrations detectable by living organisms over considerable distances.*
-
-
-
-*The organism’s levitation system is primarily used during hunting. Outside of hunting periods, individuals spend up to 20 Earth hours per day resting, sleeping, or digesting food.*
-
-
-
-***Behavior and Ecology***
-
-
-
-*Hum are obligate solitary predators. They demonstrate high levels of intraspecific aggression and gather only during periods of extreme hunger or reproduction.*
-
-
-
-*The breeding season on Earth occurs from late April to early July.*
-
-
-
-*Sexual dimorphism is weakly expressed.*
-
-
-
-*Individuals prefer open environments near bodies of water. The largest recorded populations are located within the Sinister Valley and surrounding regions.*
-
-
-
-*Despite possessing thermoregulation abilities, Hum prefer warmer environments, including natural thermal zones.*
-
-
-
-*Activity is primarily nocturnal.*
-
-
-
-*Intelligence is considered low. Behavior corresponds to that of an instinct-driven primitive predator.*
-
-
-
-*Primary prey includes:*
-
-
-
-*deer;*
-
-*roe deer;*
-
-*moose;*
-
-*angel slugs;*
-
-*other medium-sized organisms.*
-
-
-
-*Attacks on humans, wolves, dogs, and mimics are considerably less frequent.*
-
-
-
-***Additional Information***
-
-
-
-*The genus Foedicephalus is believed to contain an unknown number of additional species currently under investigation.*
-
-
-
-*Information regarding newly identified members of the genus will be released after completion of further research.*
-
-
-
-***Remember, citizen****: awareness may preserve your life. Always remain alert and observe your surroundings.*
+She never acted like that before.
 
   
 
 
-**There was also this image in the document:** [https://drive.google.com/file/d/1HtD82uk\_dgrgyFtyKA\_eIUc5Yw1LVndr/view?usp=drive\_link](https://drive.google.com/file/d/1HtD82uk_dgrgyFtyKA_eIUc5Yw1LVndr/view?usp=drive_link)  
-  
+I got up from my bed. Information was slowly flowing back into me. I think I set my alarm… because my roommate’s friends were coming over?
+
+I checked the alarm. Set for 8:30. Yeah. That had to be it. 
+
+I decided to get up. I would rather not fall asleep just to wake up again at the alarm.
+
+I stumbled out the door and tried to make myself breakfast. My roommate, Jordan, was still sleeping. We had been friends since the eighth grade. The friends he made in college were very rowdy, and would often trash the place. Jordan was inviting them over, so I decided it would be better if I left the house.
+
+I picked through the cereal. Why does he keep buying Wheaties? Who cares if they’re healthy?
+
+After eating a bowl of Frosted Flakes, I had about an hour to get some chores done. Jordan woke up while I was vacuuming.   
+“Shit, man. You have to do this at 7:00 in the morning?”  
+I tiredly looked up at him. “You’re not going to do it.”  
+He sat down. “Well, yeah. But you could’ve done this later, you know. This place isn’t even that dusty!”  
+I kept vacuuming. “Just shut up. I’m going to leave soon enough, anyway.”   
+He looked puzzled for a second, and then a lightbulb lit in his head. “Ohhh yeah, Kyle, Connor, and Austin are coming over!” He paused. “Are you gonna come with us?”   
+I was done at this point. “Nah, I got better things to do today.”  
+Jordan smugly looked up at me. “Like what?”   
+“Man, I don’t know. I guess I just don’t like seeing my apartment trashed.”  
+“You mean *our* apartment.”  
+I had paid 70% of the rent that month. I did the math. But I wasn’t about to argue with Jordan.  
+“You *suuuuuure*? We’re going dumpster-diving downtown! You could save a lotta money that way.”  
+I scoffed. “I’m good.”  
+Jordan went back to his phone. “Your loss.”  
+“I’m off. Text me when I can come back.”  
+“Have fun doing whatever you do these days.”
+
+I didn’t really know what to do that day. I went to the gym right after I left. I didn’t have work that day. I called up some of my friends, but they had other things to do. I ultimately ended up watching a movie. 
+
+It was called *Welcome to the Family, Son*. It was a pretty campy horror movie about a wackjob family in Louisiana. My mom used to always show me campy horror movies. It’s not that she found them scary, quite the opposite. She would laugh at some of the poor practical effects in them. 
+
+ I thought about my father during it. I remember asking him what had happened to mom, and all he said was, “I…” and then gulped, clearly holding back tears. 
+
+After that, he asked my grandfather about everything. What having schizophrenia is like, and if it’s influenced his emotions. His case, he said, was rather mild. I never knew him before the symptoms, but he was always a levelheaded man. He put others over himself, which he clearly passed down to my mom. As for Dad’s questions about her psychotic break, my grandpa said he couldn’t say anything about anyone’s case but his own.
+
+He always tried to prove the doctors wrong. According to my dad, though, every time they would give a new response, and when he called it out, they would remind him (snobbishly, he said) that they were the ones paid to do this and he wasn’t.
+
+The movie ended before I knew it. I walked out, and it was around midday. I figured I could go back to the apartment, as his friends had probably moved onto dumpster-diving by this time.
 
 
-I'll be researching another documents that I found soon.
+
+My prediction was correct. Jordan and his friend’s cars were not in the parking lot. I grimaced at the thought of what they could’ve done to the kitchen before they left.
+
+When I went in, however, there was no trace of them, outside of a few soda cans sitting on the island in the kitchen. I texted Jordan, asking him where he was. He typed something, and then deleted it, and left me on read. That was very unlike him. 
+
+Knowing him, though, he was probably lighting garbage on fire. 
+
+
+
+He came home very late that night (or early the next morning), and all of his friends were gone. I asked him where he was the whole day, but he just waved at me and went straight to bed. He didn’t even brush his teeth or shower, just went straight to bed. 
+
+It took him a long time to wake up the next day. He missed his work shift, and woke up around 3:00. I came home two hours later.
+
+He seemed incredibly foggy, and still tired, despite sleeping for so long. He was wearing sunglasses, despite being inside and the apartment being illuminated only by natural light. “Uhm… what *happened* last night?” I asked. He grumbled a bit. “Yo.” I grabbed his shoulder. “Tell me. What happened last night? With you and your friends.” He didn’t even look at me. “Why the hell do you care?” He locked himself in his room. There was no emotion in his voice. He made me feel like a stranger.
+
+
+
+In the following days, I found out that Jordan actually quit his job. He was never a fan of it, but he was far from a stable financial situation. I would have to pick up the slack. 
+
+I worked some extra hours that week, and I could pay off rent. This time, I must’ve paid about 95% of it. I didn’t see Jordan at all throughout that time except when I brought home groceries and bought him some necessities. He stayed in his room the whole time. 
+
+On the weekend following, I did some digging. I found out that he had lost his earbuds the night he had gone out with his friends. Regarding all of the weird things he does with them, it didn’t come as a surprise to me. I asked him if I could find it using his phone, and he snapped at me. “Why don’t you just fuck off and do whatever you did last weekend? Can’t you see some people like to *sleep in*?”
+
+That night I tried to search inside his room, and grab his phone to find his earbuds.
+
+“Why… why, why are you in here? Shouldn’t you go to bed? *WHY* are *YOU* in ***MY ROOM***?” 
+
+I spoke up. “I’m… trying to help you.” He looked at me with an incredibly irritated glaze. 
+
+“You know, Mr. Good Samarian, not everyone needs to be helped. The best way you could help me right now, is getting out of my room before I smash your ugly face in.” He paused. “You want to know something? I never liked the way you spoke to me. You always tried to belittle me and make yourself sound smarter than me when you’re not. I know you’re not. But you try to **GASLIGHT** me into believing your bullshit. Guess what? It’s never worked! You act exactly the same as you did when you were fourteen. You’re an obnoxious, immature brat who digs his nose into other people’s business when he’s not supposed to.”
+
+
+
+I’m scared for Jordan at this point. I found his earbuds on TikTok shop, and I asked the seller where she had found them. They were blackened in a strange pattern, and had some scratch marks, which the seller attributed to scraping moss off of it. She said that she found them downtown, across the street from the psych ward my mom stayed at. 
+
+I’ve been asking all over what’s happening to Jordan, but, just like with my mom, I can’t find an answer. I’m worried, because rent is due soon, and I’m not sure I’ll have enough to pay for this month. 
+
+I haven’t seen Jordan in about two weeks. He hasn’t even stuck his hand out for groceries. I’m scared to go into his room. Either he’s dead, or something worse has happened to him. 
+
+I guess it’s like Schrodinger’s Box, in a way. If I go in there, either he’ll be dead, or I’ll be.
+
