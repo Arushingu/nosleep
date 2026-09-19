@@ -1,127 +1,261 @@
-# I'm not sure what'll happen if I go into my roommate's bedroom
-Sometimes, when I wake up, I forget everything.
+# I heard my son screaming for help. He was two miles away, asleep in his own bed.
+“So have you thought about it?” My Mom asked over the phone. I should have said no.
 
-I’m a particularly light sleeper, and I’m usually on the same train of thought when I wake up that I was on when I fell asleep.
+“I really don’t know.”
 
-Every once in a while, though, I forget everything.  
-That was this morning.
+“Hannah, he’s going to be six! Does he still sleep with you?”
 
-I was incredibly groggy. When I wake up like this, I tend to feel like I got no sleep at all. The room was pitch-black, only illuminated by my dim alarm clock. 6:43. There was a dot next to some text that read, “alarm”. What day of the week was it? Tuesday? Monday?
+“Sometimes.”
 
-My brain struggled to think of it. I raised my right hand. There was a long scar stretching from the indent in between the thumb and the pointer finger down to my forearm. What? Why was that there?
+“Hannah, just once. I live only 15 minutes away. He’ll be okay.”
 
-The day of the week came back to me. It was Sunday. I wished I had known why my alarm was set. If I had woken up differently, I would’ve remembered.
+I let out a deep sigh. The thought of being away from Johnnie made my skin crawl.
 
-As for the scar on my hand, it came back to me. It was from my mother.
+“Just one night?”
 
+By morning I understood why I’d never agreed to it before.
 
+“Just one.”
 
-Schizophrenia has always run in my family. It’s not the worst thing ever, of course. My grandpa (on her side) contracted it at the age of forty-four, which is relatively late, but he lives with it fine. He’s never thought of it as a huge roadblock, in his own words.
+“And you’ll bring him back first thing in the morning?”
 
-My mom contracted it at the age of thirty-five. I was eight around the time, and it was very sudden for her. 
+“Yes.”
 
-Of course, with time, she became used to it. She tried her hardest to mask her struggles from me and my brother, Andrew, but she was a historically bad liar. On the day before my eleventh birthday, I remember asking her where she was going, and I’ll never forget her response: “I’m going to the mall for… g…grocieries.”  
-The “mall” only had four stores, one of which being GameStop.
+“Okay.”
 
-All of this is to say we had a very good look at her mindset. 
+I could feel her smile over the phone. 
 
-One of my mom’s childhood friends passed away when I was 16. The illness was unknown at the time, but it really shook her up. Although, she never really cried about it. She just seemed sullen all the time. Some days she would barely react to us. She just wanted to sleep all of the time. When she wasn’t sleeping, she would stay in our guest room, which was the darkest room in the house.
+“Great, sweetie. You can come by in the afternoon.”
 
-It took me a long time to figure out something was wrong with her. It took us all a long time. I checked on her one day, and she got really angry. “Why are you in here? Why are you in here, when the one thing I told you was to not come in? Why can’t you listen to a *SINGLE DAMN THING I SAY*?” She quickly walked toward me. I slammed the door and leaned on it.
+“Okay.”
 
-She didn’t come out of that room until the next day, when my dad tried to intervene. She went berserk. 
+The phone shook in my hand. I slowly put it down and took a few breaths.
 
- I remember her saying we weren’t “there for her”, that we didn’t care about her friend at all. She attacked my dad, slamming his head into a countertop. She took Andrew, and threatened to slit his neck with a cleaver she grabbed if we didn’t “bring her back”. I jumped at her and grabbed her wrist, and she cut down into my hand. 
+Johnnie sat in his room playing with his toy cars.
 
-The gash took months to heal. It formed into this big, ugly scar, a permanent reminder of how I didn’t help her when she needed it.
+“Johnnie?” I said, knocking on his bedroom door.
 
-The doctors brushed it off completely. They said it was a result of guilt (she had not met with that friend in awhile), mixed with her schizophrenia. My dad argued with the doctors every day he visited her, but their verdict never changed.
+His small blue eyes lit up.
 
-She was sent to a psych ward for about a year, and she now lives in an assisted living facility, in an almost catatonic state. The people at the psych ward were pretty inconsistent with information, but I believe that she suffered a stroke halfway through her sentence, as for the first six months she acted as if she were in a constant state of psychosis.
+“Mommy, mommy. You wanna play with my truck?”
 
-She never acted like that before.
+“Maybe later, Johnnie. You know how we’re going to Grandma’s today?”
 
-  
+He nodded quickly.
 
+“Well, we were thinking you might spend the night there.”
 
-I got up from my bed. Information was slowly flowing back into me. I think I set my alarm… because my roommate’s friends were coming over?
+His lip started to quiver.
 
-I checked the alarm. Set for 8:30. Yeah. That had to be it. 
+“But, but, Mommy…”
 
-I decided to get up. I would rather not fall asleep just to wake up again at the alarm.
+“Just one night. I’ll be right nearby. If you need me, you can call me, and I’ll pick you up.”
 
-I stumbled out the door and tried to make myself breakfast. My roommate, Jordan, was still sleeping. We had been friends since the eighth grade. The friends he made in college were very rowdy, and would often trash the place. Jordan was inviting them over, so I decided it would be better if I left the house.
+The tears began rolling.
 
-I picked through the cereal. Why does he keep buying Wheaties? Who cares if they’re healthy?
+“Mommy, please, no.”
 
-After eating a bowl of Frosted Flakes, I had about an hour to get some chores done. Jordan woke up while I was vacuuming.   
-“Shit, man. You have to do this at 7:00 in the morning?”  
-I tiredly looked up at him. “You’re not going to do it.”  
-He sat down. “Well, yeah. But you could’ve done this later, you know. This place isn’t even that dusty!”  
-I kept vacuuming. “Just shut up. I’m going to leave soon enough, anyway.”   
-He looked puzzled for a second, and then a lightbulb lit in his head. “Ohhh yeah, Kyle, Connor, and Austin are coming over!” He paused. “Are you gonna come with us?”   
-I was done at this point. “Nah, I got better things to do today.”  
-Jordan smugly looked up at me. “Like what?”   
-“Man, I don’t know. I guess I just don’t like seeing my apartment trashed.”  
-“You mean *our* apartment.”  
-I had paid 70% of the rent that month. I did the math. But I wasn’t about to argue with Jordan.  
-“You *suuuuuure*? We’re going dumpster-diving downtown! You could save a lotta money that way.”  
-I scoffed. “I’m good.”  
-Jordan went back to his phone. “Your loss.”  
-“I’m off. Text me when I can come back.”  
-“Have fun doing whatever you do these days.”
+“You can take your trucks. Will you be a brave boy for Mommy?”
 
-I didn’t really know what to do that day. I went to the gym right after I left. I didn’t have work that day. I called up some of my friends, but they had other things to do. I ultimately ended up watching a movie. 
+“I…I.”
 
-It was called *Welcome to the Family, Son*. It was a pretty campy horror movie about a wackjob family in Louisiana. My mom used to always show me campy horror movies. It’s not that she found them scary, quite the opposite. She would laugh at some of the poor practical effects in them. 
+He sat down on the ground and wiped his eyes.
 
- I thought about my father during it. I remember asking him what had happened to mom, and all he said was, “I…” and then gulped, clearly holding back tears. 
+“I’ll try.”
 
-After that, he asked my grandfather about everything. What having schizophrenia is like, and if it’s influenced his emotions. His case, he said, was rather mild. I never knew him before the symptoms, but he was always a levelheaded man. He put others over himself, which he clearly passed down to my mom. As for Dad’s questions about her psychotic break, my grandpa said he couldn’t say anything about anyone’s case but his own.
+On the way there, he stayed silent. Only when he saw my Mom did his eyes finally light up. The whole room smelled like fried food. My Mom prepared some chicken nuggets, his favorite. 
 
-He always tried to prove the doctors wrong. According to my dad, though, every time they would give a new response, and when he called it out, they would remind him (snobbishly, he said) that they were the ones paid to do this and he wasn’t.
+“Grandma, we’re going to have nuggies?”
 
-The movie ended before I knew it. I walked out, and it was around midday. I figured I could go back to the apartment, as his friends had probably moved onto dumpster-diving by this time.
+“Yes. I made some just for you.”
 
+Johnnie danced around with the trucks in his hands.
 
+“But first, put your bag and clothes away. Then you can have some,” I said.
 
-My prediction was correct. Jordan and his friend’s cars were not in the parking lot. I grimaced at the thought of what they could’ve done to the kitchen before they left.
+He rolled his eyes and quickly ran up the stairs. Just seeing him leave already made my heart skip a beat.
 
-When I went in, however, there was no trace of them, outside of a few soda cans sitting on the island in the kitchen. I texted Jordan, asking him where he was. He typed something, and then deleted it, and left me on read. That was very unlike him. 
+“Don’t let him eat too many nuggets and make sure he goes to sleep early and…”
 
-Knowing him, though, he was probably lighting garbage on fire. 
+My Mom caressed my shoulder.
 
+“We’ll be okay.”
 
+I closed my eyes and took a deep breath.
 
-He came home very late that night (or early the next morning), and all of his friends were gone. I asked him where he was the whole day, but he just waved at me and went straight to bed. He didn’t even brush his teeth or shower, just went straight to bed. 
+“Okay. I’ll go and say goodbye to him.”
 
-It took him a long time to wake up the next day. He missed his work shift, and woke up around 3:00. I came home two hours later.
+I walked up to the guest bedroom. Johnnie sat on the bed, gripping his truck, looking out the window.
 
-He seemed incredibly foggy, and still tired, despite sleeping for so long. He was wearing sunglasses, despite being inside and the apartment being illuminated only by natural light. “Uhm… what *happened* last night?” I asked. He grumbled a bit. “Yo.” I grabbed his shoulder. “Tell me. What happened last night? With you and your friends.” He didn’t even look at me. “Why the hell do you care?” He locked himself in his room. There was no emotion in his voice. He made me feel like a stranger.
+“I’m gonna go now, okay?”
 
+He didn’t answer.
 
+“Johnnie?”
 
-In the following days, I found out that Jordan actually quit his job. He was never a fan of it, but he was far from a stable financial situation. I would have to pick up the slack. 
+“What is that noise, Mommy?”
 
-I worked some extra hours that week, and I could pay off rent. This time, I must’ve paid about 95% of it. I didn’t see Jordan at all throughout that time except when I brought home groceries and bought him some necessities. He stayed in his room the whole time. 
+I tried to listen, but I could only hear the trees swaying in the wind.
 
-On the weekend following, I did some digging. I found out that he had lost his earbuds the night he had gone out with his friends. Regarding all of the weird things he does with them, it didn’t come as a surprise to me. I asked him if I could find it using his phone, and he snapped at me. “Why don’t you just fuck off and do whatever you did last weekend? Can’t you see some people like to *sleep in*?”
+“You okay?”
 
-That night I tried to search inside his room, and grab his phone to find his earbuds.
+He shook his head and looked up at me.
 
-“Why… why, why are you in here? Shouldn’t you go to bed? *WHY* are *YOU* in ***MY ROOM***?” 
+“Can I eat the nuggies now?”
 
-I spoke up. “I’m… trying to help you.” He looked at me with an incredibly irritated glaze. 
+“Um, yeah.”
 
-“You know, Mr. Good Samarian, not everyone needs to be helped. The best way you could help me right now, is getting out of my room before I smash your ugly face in.” He paused. “You want to know something? I never liked the way you spoke to me. You always tried to belittle me and make yourself sound smarter than me when you’re not. I know you’re not. But you try to **GASLIGHT** me into believing your bullshit. Guess what? It’s never worked! You act exactly the same as you did when you were fourteen. You’re an obnoxious, immature brat who digs his nose into other people’s business when he’s not supposed to.”
+“Yay.”
 
+He got off the bed and ran to the hall. His steps echoed on the stairs.
 
+When I walked down, he was already sitting at the table while my mom put nuggets on his plate.
 
-I’m scared for Jordan at this point. I found his earbuds on TikTok shop, and I asked the seller where she had found them. They were blackened in a strange pattern, and had some scratch marks, which the seller attributed to scraping moss off of it. She said that she found them downtown, across the street from the psych ward my mom stayed at. 
+She smiled.
 
-I’ve been asking all over what’s happening to Jordan, but, just like with my mom, I can’t find an answer. I’m worried, because rent is due soon, and I’m not sure I’ll have enough to pay for this month. 
+“I’ll bring him home tomorrow, honey.”
 
-I haven’t seen Jordan in about two weeks. He hasn’t even stuck his hand out for groceries. I’m scared to go into his room. Either he’s dead, or something worse has happened to him. 
+“Okay. I’ll see you tomorrow, Johnnie.” 
 
-I guess it’s like Schrodinger’s Box, in a way. If I go in there, either he’ll be dead, or I’ll be.
+I walked to him and kissed his forehead. A nugget was already in his mouth.
+
+As I walked to my car, I kept replaying my mom's words. *We’ll be okay.* Before leaving, I looked back up at the house. The guest bedroom window was above the door. That was where Johnnie would sleep at night. 
+
+I started the car, but as my headlights came on, a small shadow moved between the trees. It almost seemed like a child was walking by, but before I could really see it, it disappeared again. 
+
+When I got back home, I almost forgot about it. I was too occupied thinking about Johnnie. *We’ll be okay.* I got out my snacks and put on my favorite TV show.
+
+After two episodes, I could already feel my muscles untensing. It honestly felt nice being all alone at home; I couldn’t remember the last time I'd done that. I was just making another bowl of chips when I heard the trees rustle again. I looked over. A shape was between the trees again. My eyes must have been playing tricks on me. I walked closer to the window, but then a sound echoed from outside, one that I knew too well. Dread crept into my bones. It was Johnnie screaming for help.
+
+I dropped the chips to the floor and ran out of the house, leaving the door open.
+
+“Johnnie! Johnnie!”
+
+Silence.
+
+“Johnnie! Mommy’s here.”
+
+Something echoed on the steps. I looked back. Nothing was there, just the open door. My mind was racing. I quickly pulled out my phone and dialed my Mom’s number.
+
+“Hannah?”
+
+“Mom! Mom! Is Johnnie with you?”
+
+“Yes, I put him to bed some time ago.”
+
+“Can you please check on him?”
+
+“Honey, I’m…”
+
+“Mom, please!”
+
+“Okay. I’m going.”
+
+Her steps echoed in the hall. The door to Johnnie’s room creaked.
+
+“He’s sleeping in his bed,” she whispered.
+
+“Are you sure?”
+
+“Of course I am. What’s going on with you?”
+
+“I…I don’t know. I thought I heard…”
+
+“Hannah, sweetie, go to sleep. We’ll be okay.”
+
+I tried to slow down my breathing.
+
+“Okay.”
+
+“We’ll be there early in the morning. Love you.”
+
+She hung up.
+
+I stood there for a second, staring into the trees.
+
+When I walked back in, I shut off the TV, sat down on the couch for a second, put my phone next to me, and focused on my breathing. With each breath, the tension left my body. My eyelids slowly closed. The trees rustled outside. I focused on their quiet rustling, but then I heard a sound through it– the same one as before. Johnnie was screaming for help, but from inside the house. 
+
+My body was paralyzed with fear. 
+
+I gripped the couch cushions. 
+
+The scream came again, and I realized it sounded almost like Johnnie, though deeper and raspier. 
+
+Cold sweat ran down my shirt.
+
+The house filled with a smell of stale mold.
+
+The scream came again.
+
+I looked up.
+
+The shadowy figure now stood in the kitchen. It was as tall as Johnnie, but its arms hung too low. Its head was twisted backward, and it had no eyes, no mouth, nothing.
+
+“Mommy, help!” The black blob moved, but the voice didn’t sound like him anymore, just pure deep raspiness.
+
+I got off the couch and bolted to the stairs. The small feet echoed behind me. The smell of mold almost made me gag.
+
+“I need Mommy!”
+
+I ran into my room, locked the door, and put a chair under the knob.
+
+“Mommy!”
+
+It screeched, then slammed into the door.
+
+“Mommy!”
+
+It hit it again, stronger, shaking the wall.
+
+My heart hammered against my ribs.
+
+I sat on the floor, holding my head.
+
+Then it stopped.
+
+Everything outside went quiet.
+
+Then came a quiet whimper.
+
+“Mommy, please, it’s me!”
+
+It sounded exactly like him. 
+
+The whimper grew. The calls did too. All my motherly instincts were screaming at me, but I knew I just had to keep my head down, my arms wrapped around my knees.
+
+After a while, the crying and calls stopped. The house was quiet for a second, then it ran toward the door again at full force.
+
+This went on for hours. My head ached and my vision blurred. I wanted to call my Mom or the police, but my phone was down on that couch.
+
+The thing ran toward the door again. This time the chair had finally moved away. My heart fell into my stomach. Its small arm grabbed the door handle, but then the first ray of dawn came through the window, and the room went quiet; the hand was gone.
+
+But I still didn’t move. I stayed there for what felt like hours until my Mom called to me from outside.
+
+“We’re here, sweetie. I told you we’d be alright.”
+
+“O…Okay. I'm coming down.”
+
+The hall was empty. The staircase too. Through the small glass, I could see my Mom waving.
+
+“Oh, jeez,” said my Mom as I opened the door. “Are you okay?”
+
+“Um, yeah.”
+
+“I’ll make some coffee.”
+
+She hurried to the kitchen, leaving Johnnie on the porch.
+
+He stood there for a second, not moving. I struggled to hug him.
+
+“Why did you run away yesterday, Mommie?” he whispered.
+
+My heart froze.
+
+“What?”
+
+“I heard you call outside. It was you, but weird. I swear. I saw your shadow. I tried to come after you.”
+
+My hands started to shake. I pulled him closer and hugged him hard.
+
+“I’m never letting you [leave again."](https://www.reddit.com/r/KanesHorrors/)
 
