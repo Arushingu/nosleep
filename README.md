@@ -1,22 +1,204 @@
-# Her Voice
-I was in love. Desperately. Her name was Daisy. Her hair fell onto her shoulders in springy golden red curls, her eyes were the gentlest greenish blue, and her smile was so bright and caring. The most amazing thing about her was her voice. Her voice was gentle and bouncy, everything she said sounded like a melody, and she could calm the whole world in just a single word. I loved her voice more than anything. It didn’t matter what we talked about as long as I could hear her speaking. She was a singer, not professionally, but she would book little shows at local bars and blow away the audience. And that’s what I held onto most after she died. At night as I fell asleep, I would listen to old recordings of her, letting the gentle breeze of my open window carry her perfect laugh across the night. 
+# If you hear a car coming up the driveway, hide!
+I was 7 when I first remember playing the game, if you can even call it a game. It didn’t have any sort of formal name like most games kids play. There were no strict instructions to follow, no prize for the winner, no explanation of how to play. Just one simple rule. If you hear a car coming up the driveway, hide!  
 
-Everything changed one night though. My friends Matt and Greg had taken me out for a couple beers after work. I stumbled home the smell of cigarettes and beer clinging to me from the bar. They’d had a live singer at the bar that night, her voice was grating and shrill, nothing like my Daisy’s voice. I went into the yard and slumped into my hammock. A little blue hammock hung between two large pine trees. I lay face down on the hammock smelling in what little scent of Daisy was left that wasn’t overwhelmed by my own musk. I closed my eyes remembering the day she and I put up the hammock, the way she giggled and laughed as we spent days curled up in the yard of our home. 
+It was innocent, or at least it seemed that way at the time. Anytime we heard a car coming up the driveway, we'd drop whatever we were doing and scatter for our hiding spots. Sometimes someone would yell hide, other times we would all just do it without a word, giggling the whole time.  
 
-I drunkenly dug into my pocket and pulled out my phone. I scrolled through countless photos to find my favorite video of her. I turned up the volume and let her voice echo in the darkness. I fell asleep, When I woke up her voice was still filling the yard as beautiful as ever. For a moment, sleep still clouding my eyes, I thought I could see a figure in the distance and for a moment I thought it was her. 
+For two years we played that game, and for two years it stayed just that, a game. Looking back, none of us could remember where the game came from in the first place. No one taught it to us. No one suggested it. It was just something we'd always done. It never seemed like anything more than just a silly way to pass the time…until it wasn’t. 
 
-“Daisy?” I mumbled, sitting up. But when I looked there was no one there, and Daisy was no longer singing. I grabbed my phone to play the video again, but it was dead. I shrugged it off and got out of the hammock and went inside to get ready for work. As I got ready, I plugged my phone in. I went into the bathroom to brush my teeth, my head feeling heavy from the night before. As the water rushed into the sink I could hear a familiar tune from the other room, when I went to grab my phone, nothing was playing but Daisy’s song still filled the house. After a moment of sitting with the sound, I realized it was coming from outside. I quickly opened the door, but as I did the music stopped. She wasn’t there. No one was there. 
+ 
 
-The rest of the day went by uneventfully. But that night when I went to bed, I could hear her singing from the other side of my window. I stayed still not daring to breathe, not moving. I didn’t want her to stop singing. This continued every night. Every night for months I fell asleep to the sound of her singing from outside, until one night when I couldn’t stand it anymore. I had to see her. To smell her again and see her curls bounce as she laughed. It was her voice; it had to be her. I slowly got out of bed and crept to the window, pulling back the curtain further so I could see. There was a dark figure outside the window, it’s features almost completely hidden by the darkness. But it was unmistakably singing from something like a mouth. 
+For reference, my family lived in an isolated neighborhood deep in the Blue Ridge Mountains, a sub-region of the better-known Appalachian Mountains.  
 
-“Daisy?” I asked in a whisper. It stopped singing and nodded. My heart lodged in my throat. 
+When I say isolated, I mean 30 minutes from the closest town with a grocery store. There were a handful of houses scattered along a five-mile gravel loop, with our house sitting at the very end. It was, by all accounts, the perfect place for a child to grow up.  
 
-“Let me inside,” it said, “I’ll sing you to sleep.” My fingers curled around the bottom of the window, pulling it further open. As a I opened it the figure came closer reaching its hand out. I recoiled when I saw it. Dark loose grey skin hung over its small frame, like it had too much skin for its skeleton. Its eyes were nothing but sockets, and its mouth was cracked and dry. Its lips curled into a smile as it reached out to me. I slammed the window shut. 
+Miles of wilderness stretched in all directions, teeming with deer, bears, and turkeys for us to hunt. A stream ran at the base of the mountain, providing us with opportunities for fishing and swimming. Life was simple and full of joy. No traumatic experiences, no troubling times, just a simple life in the country surrounded by those I love. 
 
-“What’s wrong baby?” it asked, in a gleeful tone I knew well. 
+ 
 
-“Nothing,” I choked back a sob, “You just… I can’t let you in tonight. I’ve got work in the morning.” It was quiet for a moment. I held my breath looking at this thing using my Daisy’s voice. After a few moments, it stopped smiling and turned away. I closed the curtains and threw myself back onto my bed. It didn’t come back for a few nights. And I couldn’t bring myself to listen to her videos again. Something about her sounded wrong now, like compared to that thing the recordings didn’t sound like her. The next few weeks were a silent hell. Her recordings became shrill and impossible to listen to. 
+It was mid-August, informally known in the South as “The dog days of summer.” The air was hot and thick with the kind of humidity that only comes after a recent summer thunderstorm. A truly terrible experience for most people, but the perfect summer day for a group of four young siblings.  
 
-I needed to hear her again, but not like this. So late tonight I went out onto the hammock. Silently I waited. It didn’t take long before I heard it singing. It sounded just like she had, maybe even better. The sound bounded through me and settled perfectly in my ears. I laid back in the hammock listening. Soon a weight settled on top of me, it was warm. Too warm. I was covered in a blanket of flesh. The singing right next to my face, warm breath teasing my cheek. I kept my eyes closed. It continued to sing as it dug its sharp boney fingers across my chest, tearing the shirt and skin off my body all at once. I didn’t dare wince or cry out; I didn’t want to interrupt the song. 
+My brother and sister, the twins, Michael and Erin, stood on one side of a pop-up volleyball net. My oldest brother, JT, and myself stood on the opposite side.  
 
-So now here I am with this thing. Laying curled on our hammock. I keep my eyes shut tight and think of her. My Daisy. I just hope it still sings in her voice as it tears me apart. 
+The air was filled with harmless insults and laughs, as we played what could only be described as the worst excuse for a volleyball game in the history of the sport. Which is about what you'd expect from a nine-year-old, two eleven-year-olds, and a fourteen-year-old who'd never played volleyball before. 
+
+ 
+
+My sister Erin was the first one to hear the sound of crunching gravel underneath a tire. In unison, as if we had practiced it everyday of our lives, we all made eye contact and simultaneously screamed “hide!”  
+
+I bolted for the back of my dad’s track, my typical hiding place. JT and Michael fought for a spot behind the large sycamore tree, per usual. And Erin, feeling adventurous, switched up her usual spot in the garage in favor of crouching behind our raised garden beds.  
+
+As we quickly settled into our respective positions, the loud crunch of gravel and a struggling engine eased closer and closer. I crouched down in the truck bed, head tucked between my knees, not daring to look.  
+
+That was an unspoken rule of the game. Aside from hiding when a vehicle was coming, the only other stipulation was to not look at the car as it passed. Nobody told us this rule, and nobody enforced it. It was just something we all did, as it just felt like the appropriate thing to do. The old “If I can’t see them, they can’t see me” kind of mantra. 
+
+ 
+
+Everything was happening exactly as it had every time before. The vehicle was right in front of our house now, with no indicator that it was going to stop. That is until, to my right, I heard Michael yell “Move!”  
+
+My head instinctively shot up and looked towards the sound of his cry. My eyes were met with the sight of my oldest brother, JT, lying on the ground as if he had just been pushed down. Evidently, Michael had won the spot behind the Sycamore tree.  
+
+Whereas typically when this happened, the loser would just climb to the top of it, on this day, JT must have decided he wasn’t willing to give the location up without a fight. Which prompted Michael to shove him out of the way.  
+
+From my position I could make out three distinct things:  
+
+First, Michael was staring down at JT with wide eyes.  
+
+Second, JT was staring toward the driveway. His face had gone completely 	pale. I'd never seen him look that scared before, but in that moment he looked like 	he was 	seconds away from crying.  
+
+Third and most notably, I heard a car door open in the direction JT was looking. 
+
+ 
+
+Scrambling to his feet, JT made an attempt to run towards the front door. Based on his response, I half expected to see someone sprint after him and drag him back to the vehicle. For this reason, I refused to look towards the vehicle, now parked in front of our house.  
+
+As he reached our front porch and scrambled up the steps, I sat perfectly still in horrified anticipation of what was going to come barreling out of the car and grab my brother. And as he reached the front door and reached for the knob…nothing. My older brother stepped inside and shut the door behind himself.  
+
+Michael and I made eye contact and reflected a puzzled look towards each other, and as if we read each other's mind, slowly turned our heads towards the direction of the car. As our gaze fell upon the location of the vehicle, our jaws dropped at what we saw.  
+
+The car was gone. We hadn’t heard it leave, we didn’t see its taillights further down the driveway. It had simply vanished without a trace. 
+
+ 
+
+I hopped out of the truck, meeting Michael and Erin at the front steps, and we all made our way inside the house. Not knowing what to expect, we slowly opened the door, only to be met by JT sitting on the couch eating a bag of chips.  
+
+As we stared at him curiously, his eyes met ours and he frowned. “What are you staring at? Quit being weird,” he said in an annoyed tone.  
+
+We gathered in the living room and began to question him.  
+
+“What happened?” I blurted out.  
+
+“Yeah, what did you see?” Michael asked.  
+
+“Was it a monster?” I asked.  
+
+Erin, on the other hand, did not ask a question. She just sat there quietly, staring at our oldest brother with a sense of caution.  
+
+“What are you talking about?” JT asked with genuine confusion in his voice.  
+
+“The car!” Michael said, “What was in the car?”  
+
+JT, as if the previous 10 minutes had never happened, looked at all of us like we lost our minds and asked, “What car?” 
+
+We couldn’t believe it. Either our brother was the greatest gas-lighter in history, or he genuinely had no recollection of the events that had just transpired. We continued to prod him with questions, and each time he only became more confused, claiming that the last thing he remembers is playing volleyball and then coming inside for a snack.  
+
+What bothered me most wasn't that he couldn't remember. It was that he didn't seem capable of remembering. It wasn't the way someone acts when they're lying. It was the way someone acts when you're asking about something that never happened. 
+
+ 
+
+Growing tired of our endless questions, he stood up and went to his room to take a nap.  
+
+As Michael and I continued to discuss the matter, we noticed Erin hadn’t said a word since we entered the house.  
+
+Our attention turned to her and we noticed she seemed to be in deep thought.  
+
+“Erin?” I asked cautiously.  
+
+As if she snapped out of a trance, Erin looked at both of us and spoke. “You didn’t see it did you?”  
+
+“See what?” Michael asked.  
+
+“The car. Neither of you looked at it, did you?” asked Erin.  
+
+Michael and I shared a concerned look before he responded “No. When we turned towards it, it was gone.”  
+
+Erin, unsettled, squirmed in her seat and continued “I was behind the garden beds. I couldn’t make out much from my angle, but I saw JT and I saw the car door open. There was…”  
+
+Erin struggled to find the words to describe her thoughts. “There was nothing there.”  
+
+I tilted my head and gave Erin a confused look before I corrected her. “You mean there was nobody there?”  
+
+She turned to me and reiterated “No! I mean there was NOTHING there. When the door opened, it was as if…as if I was staring into a void. There was nothing but darkness. No driver, no seats, no steering wheel. I couldn’t even see the interior of the windows or windshield.”  
+
+Michael chimed in after processing what she said “What are you saying Erin?”  
+
+Erin looked him straight in the eyes “I’m saying that there was nothing in that car! And I don’t know what JT saw in the nothingness, but whatever it was, it was enough to make him run in terror.” 
+
+ 
+
+The three of us sat there for what felt like hours, contemplating what to do next. It was JT, of all people, that finally broke the silence when he popped his head out of his room asking if we wanted to go back outside.  
+
+His sudden shout from down the hallway made us all jump before we, against our better judgment, agreed to his proposal.  
+
+JT walked slowly down the hallway, slipped on his shoes, and headed out the door. Michael, Erin, and I followed him; albeit with a bit of hesitancy.  
+
+As we made our way down the front steps, we all stared daggers at the spot where the car had sat earlier. Just as before, nothing was there. No trace of anything ever being there at all. Just an empty gravel road.  
+
+But even still, we all stared. All of us except JT, who had already made his way to the backyard, whistling a tune as if nothing had ever happened. 
+
+ 
+
+And life continued this way for some time. We wrote the event off as overactive imaginations and things returned to normal. JT showed no signs of anything being wrong, and the rest of us decided to never mention the event again.  
+
+That was until, about two weeks later, when we heard the familiar sound of car tires on gravel. We all had the same thought, though Michael was the first one to verbalize it when he yelled “Hide!”  
+
+As we took off to different places, I couldn’t help but shake the feeling that something was off.  
+
+As I settled into the back of my dad’s truck, I peered over the tailgate to see Michael and Erin underneath the porch. I quickly scanned the yard to find where JT was hiding before panning my gaze back towards the twins when I couldn’t find him.  
+
+Though it was hard to make out from the distance I was at, I could see Michael and Erin staring in the direction of the driveway. As my head followed their line of sight, I quickly understood the reason for their expressions.  
+
+Sitting directly in front of the house, stopped right in the middle of our gravel drive, was a car.  
+
+It was black, or at least it used to be. Rust and sun damage had taken its toll on the majority of the vehicle, giving it a decaying brown and white color. It looked more suitable for a junk yard than a road.  
+
+The vehicle looked like some kind of sedan, though I couldn't identify the make or model. No logo, no branding, not even a license plate.  
+
+The windows were dark. Not just tinted dark, but impossibly dark. A darkness that made me feel uneasy. A darkness that if I stared into for too long, would pull me in and never let go.  
+
+Its engine grumbled as if it would give out at any second, and two questions popped in my head as I observed everything.  
+
+How did this car get up our driveway so quickly since we first heard it, and how did we not hear it drawing closer during this time?  
+
+All of this I noticed in the split second my eyes fell upon the car, and a split second was all I had for my brain to process the information in front of me. Because there was another, more pressing, issue that lay in front of me.  
+
+Standing no more than three feet from the side of the vehicle, was JT. His body was standing perfectly still, with his eyes staring at the rear door on the passenger side. He had no expression on his face, and didn’t even flinch when I jumped out of the truck and screamed his name. 
+
+ 
+
+As if driven by pure instinct for the safety of my brother, I sprinted as fast as my 9-year old legs could carry me towards where he stood.  
+
+At about 20 feet away, I saw his hand begin to move towards the rear door.  
+
+At 15 feet away, his fingers grasped the handle.  
+
+At 10 feet away, the door swung open. At 5 feet away, my attempt to reach out towards him resulted in my legs stumbling, before I hit the ground with a thud. My momentum carried me along the gravel to a point just beside the back tire of the car.  
+
+Pushing through my dazed state, I was able to lift my head to look up at the car. From my position, I was looking directly up at the back seat, or where the back seat should have been.  
+
+Inside the car was pure darkness. No seat, no interior windows, nothing; save for JT himself sitting down where the back seat should have been.  
+
+As I tried to reach up towards him, his head slowly tilted down to look at me. And what I saw next, will forever be burned into my brain.  
+
+As my brother looked down into my eyes, there was no fear in his eyes. No reservations about his current situation. There was nothing but a smile. An unnatural and wrong smile. Too wide, too stretched out, too uncanny. 
+
+ 
+
+They never found my brother.  
+
+The car door slammed shut and nicked the side of my head in the process. The next thing I remember was coming-to a few minutes later to Michael shaking me awake, and Erin screaming for our mom.  
+
+The police showed up an hour later and put out an alert based on our description of the vehicle. We tried to tell them the full story, but the police only took down the information that they deemed reasonable, and not the "imaginative thoughts of a few scared kids.” 
+
+They put up “Missing Child” posters on every utility pole, newspaper, and store window in the county. Search parties gathered to check the local forests, in hopes that the kidnapper may have ditched the car and gone into hiding.  
+
+None of this worked.  
+
+My family mourned the loss of my brother and had an “empty casket” funeral two months later.  
+
+As time went on, we recovered as best as we could. The twins and I never talked much about that day after that. We all agreed it would be best to put those bad memories behind us and try to move on.  
+
+As for the game, it goes without saying that we stopped playing it. Anytime we heard a car coming up the driveway, we didn’t just hide, we ran inside. Even as teenagers, we would run inside out of terror that one day that car might come back and take one of us. 
+
+ 
+
+I’m 38 now.  
+
+I have a great job, a beautiful wife, and 3 amazing kids. I live about 20 minutes from my childhood home, and still maintain a good relationship with my parents and siblings.  
+
+Life is relatively peaceful, save for the fact that I now find myself reliving these traumatic memories all over again.  
+
+I sit here and write these words, preparing to share them to any form of media I can, to whoever may decide to read them. Maybe its out of fear, maybe guilt, I’m not quite sure.  
+
+What I am sure of is that yesterday, while peering outside the window to check on my kids playing in the yard, I saw that same old car stopped in front of my house. My three children stood beside it, its rear door swung open wide.  
+
+And in that pitch black interior, I saw the familiar face of my oldest brother, staring up at me, and smiling from ear to ear. 
