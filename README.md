@@ -1,204 +1,200 @@
-# If you hear a car coming up the driveway, hide!
-I was 7 when I first remember playing the game, if you can even call it a game. It didn’t have any sort of formal name like most games kids play. There were no strict instructions to follow, no prize for the winner, no explanation of how to play. Just one simple rule. If you hear a car coming up the driveway, hide!  
+# My best friend from high school recently reached out to reconnect, I really wish he hadn't.
+I've never been much of a gamer, but every now and then I get swept up by a game, and it consumes all of my time. Most of my friends are gamers, but I've never been a fan of the co-op games they like to play. They like their super competitive shooters, and MOBAs, where I'm more of a friend slop type of guy. 
 
-It was innocent, or at least it seemed that way at the time. Anytime we heard a car coming up the driveway, we'd drop whatever we were doing and scatter for our hiding spots. Sometimes someone would yell hide, other times we would all just do it without a word, giggling the whole time.  
+I'll play single player games from time to time, but I'm more likely to just doomscroll Instagram or reddit while YouTube fills in the background noise. My computer collects dust for months at a time. I think I enjoyed building the damn thing more than actually using it. So I end up bed rotting most of the time staring at my phone. 
 
-For two years we played that game, and for two years it stayed just that, a game. Looking back, none of us could remember where the game came from in the first place. No one taught it to us. No one suggested it. It was just something we'd always done. It never seemed like anything more than just a silly way to pass the time…until it wasn’t. 
+Recently while doomscrolling instagram, I got a follow request from my old high-school friend Johnny. I got a pit in my stomach. I hadn't talked to him in years. I wasn't so sure I wanted to reconnect. We were the best of friends, but that time of my life was some of my lowest moments. I had no interest in digging all that back up. 
 
- 
+I mean, what would it hurt to just follow him back. We'll probably just have a quick catching up chat, and probably go back to ignoring each other. I went ahead and approved the follow request while following him back. He sent me a message almost immediately. 
 
-For reference, my family lived in an isolated neighborhood deep in the Blue Ridge Mountains, a sub-region of the better-known Appalachian Mountains.  
+“Hey dude, how's it goin?”
 
-When I say isolated, I mean 30 minutes from the closest town with a grocery store. There were a handful of houses scattered along a five-mile gravel loop, with our house sitting at the very end. It was, by all accounts, the perfect place for a child to grow up.  
+“Yo what up? I'm good, you?”
 
-Miles of wilderness stretched in all directions, teeming with deer, bears, and turkeys for us to hunt. A stream ran at the base of the mountain, providing us with opportunities for fishing and swimming. Life was simple and full of joy. No traumatic experiences, no troubling times, just a simple life in the country surrounded by those I love. 
+“same same, hey you still game?”
 
- 
+“Yeah, from time to time.”
 
-It was mid-August, informally known in the South as “The dog days of summer.” The air was hot and thick with the kind of humidity that only comes after a recent summer thunderstorm. A truly terrible experience for most people, but the perfect summer day for a group of four young siblings.  
+“You want to join my discord group? I'm trying to put together some game nights.”
 
-My brother and sister, the twins, Michael and Erin, stood on one side of a pop-up volleyball net. My oldest brother, JT, and myself stood on the opposite side.  
+Shit, I'm not so sure about this. I don't know how I feel about just jumping into discord calls with my old best friend. I mean, we're adults, I'm sure he would understand if I was unavailable most of the time due to being busy. 
 
-The air was filled with harmless insults and laughs, as we played what could only be described as the worst excuse for a volleyball game in the history of the sport. Which is about what you'd expect from a nine-year-old, two eleven-year-olds, and a fourteen-year-old who'd never played volleyball before. 
+“Yeah sure, if it's on a day that I'm free, I can probably jump on.”
 
- 
+“Rad, here's the link.”
 
-My sister Erin was the first one to hear the sound of crunching gravel underneath a tire. In unison, as if we had practiced it everyday of our lives, we all made eye contact and simultaneously screamed “hide!”  
+I reluctantly clicked the link he sent and joined his discord group. 
 
-I bolted for the back of my dad’s track, my typical hiding place. JT and Michael fought for a spot behind the large sycamore tree, per usual. And Erin, feeling adventurous, switched up her usual spot in the garage in favor of crouching behind our raised garden beds.  
+“Alright, I'm in.”
 
-As we quickly settled into our respective positions, the loud crunch of gravel and a struggling engine eased closer and closer. I crouched down in the truck bed, head tucked between my knees, not daring to look.  
+“Cool, I'll be in touch.”
 
-That was an unspoken rule of the game. Aside from hiding when a vehicle was coming, the only other stipulation was to not look at the car as it passed. Nobody told us this rule, and nobody enforced it. It was just something we all did, as it just felt like the appropriate thing to do. The old “If I can’t see them, they can’t see me” kind of mantra. 
+“Sounds good.”
 
- 
+That wasn't too painful, but I'm sure we'll have to do the whole catching up thing if I ever do jump on a call with him. However, some time passed, and I never heard anything new. This was somewhat of a relief. 
 
-Everything was happening exactly as it had every time before. The vehicle was right in front of our house now, with no indicator that it was going to stop. That is until, to my right, I heard Michael yell “Move!”  
+I'll be honest, I don't really use discord. I'm a member of several groups, but I'm just not active in any of them, so I just have push notifications turned off on my phone. Recently while talking to a coworker, the topic of games came up. 
 
-My head instinctively shot up and looked towards the sound of his cry. My eyes were met with the sight of my oldest brother, JT, lying on the ground as if he had just been pushed down. Evidently, Michael had won the spot behind the Sycamore tree.  
+“You on discord?” He asked. 
 
-Whereas typically when this happened, the loser would just climb to the top of it, on this day, JT must have decided he wasn’t willing to give the location up without a fight. Which prompted Michael to shove him out of the way.  
+“Yeah, you want to connect?”
 
-From my position I could make out three distinct things:  
+“Yeah, what's your username?”
 
-First, Michael was staring down at JT with wide eyes.  
+He pulled out his phone and opened discord, I told him my username and he searched it up. 
 
-Second, JT was staring toward the driveway. His face had gone completely 	pale. I'd never seen him look that scared before, but in that moment he looked like 	he was 	seconds away from crying.  
+“There, friend request sent.”
 
-Third and most notably, I heard a car door open in the direction JT was looking. 
+I then pulled out my phone and opened discord, when I navigated to friend requests, I saw two of them. For now I just accepted the one from my coworker. 
 
- 
+“All done.” I said while turning off the screen and pocketing my phone. 
 
-Scrambling to his feet, JT made an attempt to run towards the front door. Based on his response, I half expected to see someone sprint after him and drag him back to the vehicle. For this reason, I refused to look towards the vehicle, now parked in front of our house.  
+“Sweet, I'll let you know next time I'm on and maybe we can play a match or two.”
 
-As he reached our front porch and scrambled up the steps, I sat perfectly still in horrified anticipation of what was going to come barreling out of the car and grab my brother. And as he reached the front door and reached for the knob…nothing. My older brother stepped inside and shut the door behind himself.  
+“Sounds good.”
 
-Michael and I made eye contact and reflected a puzzled look towards each other, and as if we read each other's mind, slowly turned our heads towards the direction of the car. As our gaze fell upon the location of the vehicle, our jaws dropped at what we saw.  
+Later on I opened up discord to see who the other friend request was from. The user name was 6ftundr4u. They were from the group that Johnny invited me to. Oh what the hell, I went ahead and approved it. I also turned on push notifications just in case my coworker messaged me. About an hour later I got a message from 6ftundr4u.
 
-The car was gone. We hadn’t heard it leave, we didn’t see its taillights further down the driveway. It had simply vanished without a trace. 
+“Hey Ben, long time no see, it's Kate.”
 
- 
+My stomach dropped. This was the exact thing I was afraid of when Johnny first sent me that friend request. I didn't know he kept in touch with his ex-girlfriend. I could swear I remember them having the biggest fallout after graduation. I thought they hated each other. I guess they could be reconnecting after several years. I mean, that's probably pretty healthy. 
 
-I hopped out of the truck, meeting Michael and Erin at the front steps, and we all made our way inside the house. Not knowing what to expect, we slowly opened the door, only to be met by JT sitting on the couch eating a bag of chips.  
+“Hey Kate, how are you?”
 
-As we stared at him curiously, his eyes met ours and he frowned. “What are you staring at? Quit being weird,” he said in an annoyed tone.  
+“Oh you know, same ole’ same ole’”
 
-We gathered in the living room and began to question him.  
+“Of Yeah, Mr. Foster still giving you shit for your messy handwriting?”
 
-“What happened?” I blurted out.  
+“LOL, yep, I think he's going to fail me.”
 
-“Yeah, what did you see?” Michael asked.  
+“I keep telling you, he's willing to give out extra credit.”
 
-“Was it a monster?” I asked.  
+“I've missed you.”
 
-Erin, on the other hand, did not ask a question. She just sat there quietly, staring at our oldest brother with a sense of caution.  
+“Yeah, it's been a long time.”
 
-“What are you talking about?” JT asked with genuine confusion in his voice.  
+“Too long.”
 
-“The car!” Michael said, “What was in the car?”  
+I felt everything coming back. The mental pain, the physical anguish, the deep sadness. This was the last thing I ever wanted to happen in my life. I wish the past would just stay in the past. 
 
-JT, as if the previous 10 minutes had never happened, looked at all of us like we lost our minds and asked, “What car?” 
+“Hey, sorry to cut this short, but I need to clock into work.”
 
-We couldn’t believe it. Either our brother was the greatest gas-lighter in history, or he genuinely had no recollection of the events that had just transpired. We continued to prod him with questions, and each time he only became more confused, claiming that the last thing he remembers is playing volleyball and then coming inside for a snack.  
+“Oh of course, we'll catch up later.”
 
-What bothered me most wasn't that he couldn't remember. It was that he didn't seem capable of remembering. It wasn't the way someone acts when they're lying. It was the way someone acts when you're asking about something that never happened. 
+“Yeah, for sure.”
 
- 
+I dropped my phone on the floor to the side of my bed and rolled over. I cried for probably an hour. I moved on, why are they doing this to me? I have a new life, I have a sense of purpose. 
 
-Growing tired of our endless questions, he stood up and went to his room to take a nap.  
+The next day while I was at work, I got another message from her. 
 
-As Michael and I continued to discuss the matter, we noticed Erin hadn’t said a word since we entered the house.  
+“Hey!”
 
-Our attention turned to her and we noticed she seemed to be in deep thought.  
+I left her on unread, and put my phone back in my pocket. She sent the same message a few days later, but I ignored it again. A few more days passed before she sent another.
 
-“Erin?” I asked cautiously.  
+“Wow okay, I see how it is.”
 
-As if she snapped out of a trance, Erin looked at both of us and spoke. “You didn’t see it did you?”  
+Shit. A wave of guilt washed over me. So I finally replied. 
 
-“See what?” Michael asked.  
+“I'm sorry, I've been so busy lately, and I keep forgetting to respond.”
 
-“The car. Neither of you looked at it, did you?” asked Erin.  
+“It's okay, I get it. I won't bother you.”
 
-Michael and I shared a concerned look before he responded “No. When we turned towards it, it was gone.”  
+Fuck, I don't know what to do. She doesn't deserve this. Despite what I believed back then, she didn't do anything wrong. 
 
-Erin, unsettled, squirmed in her seat and continued “I was behind the garden beds. I couldn’t make out much from my angle, but I saw JT and I saw the car door open. There was…”  
+“Sincerely, I'm sorry. We knew each other during a very difficult time in my life. I struggled with severe depression and really struggled day to day. You and Johnny popping back up into my life just brings it all back up to the surface. I didn't mean to hurt you. I'm just not sure I'm ready for all this.”
 
-Erin struggled to find the words to describe her thoughts. “There was nothing there.”  
+“What do you mean by Johnny coming back into your life?”
 
-I tilted my head and gave Erin a confused look before I corrected her. “You mean there was nobody there?”  
+I stared at her message for several moments. I have no idea what she's asking. I had no idea how to respond. 
 
-She turned to me and reiterated “No! I mean there was NOTHING there. When the door opened, it was as if…as if I was staring into a void. There was nothing but darkness. No driver, no seats, no steering wheel. I couldn’t even see the interior of the windows or windshield.”  
+“Well, we didn't really keep in contact after high school, you know how it is. People grow apart.” This was the best response I could think of. 
 
-Michael chimed in after processing what she said “What are you saying Erin?”  
+“Do you mean, me coming back into your life brought memories of Johnny.”
 
-Erin looked him straight in the eyes “I’m saying that there was nothing in that car! And I don’t know what JT saw in the nothingness, but whatever it was, it was enough to make him run in terror.” 
+I was dumbfounded, what is she talking about?
 
- 
+“No, a few months ago I got a follow request out of nowhere from him on Instagram.”
 
-The three of us sat there for what felt like hours, contemplating what to do next. It was JT, of all people, that finally broke the silence when he popped his head out of his room asking if we wanted to go back outside.  
+“I don't understand. What do you mean?”
 
-His sudden shout from down the hallway made us all jump before we, against our better judgment, agreed to his proposal.  
+I felt like she was gaslighting me. I was so confused. 
 
-JT walked slowly down the hallway, slipped on his shoes, and headed out the door. Michael, Erin, and I followed him; albeit with a bit of hesitancy.  
+“I don't know how else to say it, we connected over Instagram. We chatted a little bit before inviting me to the discord group.”
 
-As we made our way down the front steps, we all stared daggers at the spot where the car had sat earlier. Just as before, nothing was there. No trace of anything ever being there at all. Just an empty gravel road.  
+“Okay fine! I get it, you don't want anything to do with me. You could have just said so, I can understand. But what you're doing right now is cruel beyond words. If you intended to make me cry, you did, I hope you're happy.”
 
-But even still, we all stared. All of us except JT, who had already made his way to the backyard, whistling a tune as if nothing had ever happened. 
+I stared at this message for way too long, because she blocked me before I had a chance to respond. 
 
- 
+What the fuck is going on? I needed answers, I needed to message Johnny. There was one problem though, I couldn't find his Instagram profile. I mean that's not exactly unprecedented, I've had this happen before. Usually when someone's profile disappears overnight, it turns out they just deleted it. In fact it happens all the time. 
 
-And life continued this way for some time. We wrote the event off as overactive imaginations and things returned to normal. JT showed no signs of anything being wrong, and the rest of us decided to never mention the event again.  
+Fine, I'll just message him on discord. I just don't know what his username is. We never sent each other a friend request, I just joined his group. I navigated to the group and looked around. Since I don't really use discord, I don't know all the ins and outs. Is there not a way to see all the members of a group? This is a lot harder than I thought it would be, so I just messaged the general chat. 
 
-That was until, about two weeks later, when we heard the familiar sound of car tires on gravel. We all had the same thought, though Michael was the first one to verbalize it when he yelled “Hide!”  
+“Hey Johnny, I don't know what your User Name is, can you send me a friend request, it's Ben.”
 
-As we took off to different places, I couldn’t help but shake the feeling that something was off.  
+“Who's Jonny?”
 
-As I settled into the back of my dad’s truck, I peered over the tailgate to see Michael and Erin underneath the porch. I quickly scanned the yard to find where JT was hiding before panning my gaze back towards the twins when I couldn’t find him.  
+“He's the guy that invited me to this group.”
 
-Though it was hard to make out from the distance I was at, I could see Michael and Erin staring in the direction of the driveway. As my head followed their line of sight, I quickly understood the reason for their expressions.  
+“I don't think there's a Johnny in this group”
 
-Sitting directly in front of the house, stopped right in the middle of our gravel drive, was a car.  
+“No there is, like I said, he invited me to this group.”
 
-It was black, or at least it used to be. Rust and sun damage had taken its toll on the majority of the vehicle, giving it a decaying brown and white color. It looked more suitable for a junk yard than a road.  
+“Hey Ben, I think you're messaging the wrong group.”
 
-The vehicle looked like some kind of sedan, though I couldn't identify the make or model. No logo, no branding, not even a license plate.  
+I know that username, it's my coworker. I don't remember joining a group with him in it. I could have sworn this was the group Johnny invited me to. 
 
-The windows were dark. Not just tinted dark, but impossibly dark. A darkness that made me feel uneasy. A darkness that if I stared into for too long, would pull me in and never let go.  
+“Oh, hey Phillip, I must have gotten confused. My bad.”
 
-Its engine grumbled as if it would give out at any second, and two questions popped in my head as I observed everything.  
+“All good dude.”
 
-How did this car get up our driveway so quickly since we first heard it, and how did we not hear it drawing closer during this time?  
+“Weird question though, is there someone in this group with the username ‘6ftundr4u’?”
 
-All of this I noticed in the split second my eyes fell upon the car, and a split second was all I had for my brain to process the information in front of me. Because there was another, more pressing, issue that lay in front of me.  
+“No”
 
-Standing no more than three feet from the side of the vehicle, was JT. His body was standing perfectly still, with his eyes staring at the rear door on the passenger side. He had no expression on his face, and didn’t even flinch when I jumped out of the truck and screamed his name. 
+“No”
 
- 
+“I don't think so.”
 
-As if driven by pure instinct for the safety of my brother, I sprinted as fast as my 9-year old legs could carry me towards where he stood.  
+“No”
 
-At about 20 feet away, I saw his hand begin to move towards the rear door.  
+“Okay thanks, nvm.”
 
-At 15 feet away, his fingers grasped the handle.  
+What the hell? I'm so confused right now. Am I having the world's largest brain fart, or am I losing my mind? I spent the next couple hours searching up the username 6ftundr4u. I couldn't find anything. At some point I started wondering why I cared so much. The problem sorted itself out. I didn't want anything to do with them, and they were gone. I got my wish. I just felt a huge amount of guilt. I somehow really upset Kate, and I don't like hurting people. 
 
-At 10 feet away, the door swung open. At 5 feet away, my attempt to reach out towards him resulted in my legs stumbling, before I hit the ground with a thud. My momentum carried me along the gravel to a point just beside the back tire of the car.  
+After a few weeks, everything went back to normal, and I forgot about it. At least until my mom messaged me on Facebook. 
 
-Pushing through my dazed state, I was able to lift my head to look up at the car. From my position, I was looking directly up at the back seat, or where the back seat should have been.  
+“Hey, just checking in, how's everything going?”
 
-Inside the car was pure darkness. No seat, no interior windows, nothing; save for JT himself sitting down where the back seat should have been.  
+“Hey mom, everything's going well, how ‘bout you?”
 
-As I tried to reach up towards him, his head slowly tilted down to look at me. And what I saw next, will forever be burned into my brain.  
+“Good good. I was just going through old photos, and I came across a few with you and Johnny.”
 
-As my brother looked down into my eyes, there was no fear in his eyes. No reservations about his current situation. There was nothing but a smile. An unnatural and wrong smile. Too wide, too stretched out, too uncanny. 
+Oh my god, it won't end. Even my mom won't let me keep it in the past. 
 
- 
+“Oh yeah?”
 
-They never found my brother.  
+“Yeah, he was such a good kid and you guys got along so well.”
 
-The car door slammed shut and nicked the side of my head in the process. The next thing I remember was coming-to a few minutes later to Michael shaking me awake, and Erin screaming for our mom.  
+I was typing out how we actually reconnected recently before she sent another message.
 
-The police showed up an hour later and put out an alert based on our description of the vehicle. We tried to tell them the full story, but the police only took down the information that they deemed reasonable, and not the "imaginative thoughts of a few scared kids.” 
+“It's such a shame about what happened.”
 
-They put up “Missing Child” posters on every utility pole, newspaper, and store window in the county. Search parties gathered to check the local forests, in hopes that the kidnapper may have ditched the car and gone into hiding.  
+That's weird, I don't remember telling her about our falling out. As far as she knew, we just drifted apart. She sent another before I got a chance to respond. 
 
-None of this worked.  
+“He had such a bright future ahead of him.”
 
-My family mourned the loss of my brother and had an “empty casket” funeral two months later.  
+I stared at that message for way too long. A deep anxiety arose from within me. 
 
-As time went on, we recovered as best as we could. The twins and I never talked much about that day after that. We all agreed it would be best to put those bad memories behind us and try to move on.  
+“How old would he be today? 37, just a year younger than you, right?”
 
-As for the game, it goes without saying that we stopped playing it. Anytime we heard a car coming up the driveway, we didn’t just hide, we ran inside. Even as teenagers, we would run inside out of terror that one day that car might come back and take one of us. 
+The memory of looking down at him lying in his casket returned to me. 
 
- 
+“Mom, I'm so sorry, I completely forgot that I picked up a shift that starts in ten minutes, I gotta go.”
 
-I’m 38 now.  
+“Okay hun, be safe, I love you. <3”
 
-I have a great job, a beautiful wife, and 3 amazing kids. I live about 20 minutes from my childhood home, and still maintain a good relationship with my parents and siblings.  
+“Love you <3 <3 <3”
 
-Life is relatively peaceful, save for the fact that I now find myself reliving these traumatic memories all over again.  
+I knew I had blocked out some memories from that time in my life, but I had no idea I blocked out something this big. How do you forget something like that?
 
-I sit here and write these words, preparing to share them to any form of media I can, to whoever may decide to read them. Maybe its out of fear, maybe guilt, I’m not quite sure.  
-
-What I am sure of is that yesterday, while peering outside the window to check on my kids playing in the yard, I saw that same old car stopped in front of my house. My three children stood beside it, its rear door swung open wide.  
-
-And in that pitch black interior, I saw the familiar face of my oldest brother, staring up at me, and smiling from ear to ear. 
+The thing about deleting a social media account, is that it's never really gone. If you change your mind, you can always have it reinstated. At this specific moment, I wish they could just stay deleted forever, because I'm looking at a message notification right now. One from an account that disappeared recently, and had just come back. 
