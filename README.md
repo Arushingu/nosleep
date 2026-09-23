@@ -1,200 +1,47 @@
-# My best friend from high school recently reached out to reconnect, I really wish he hadn't.
-I've never been much of a gamer, but every now and then I get swept up by a game, and it consumes all of my time. Most of my friends are gamers, but I've never been a fan of the co-op games they like to play. They like their super competitive shooters, and MOBAs, where I'm more of a friend slop type of guy. 
+# Night shift at the Supermart
+(Part 1)
+Far up north, there is a convenience store that’s open 24 hours a day, all around the year, except on Christmas. It’s easy to spot from a distance, even half buried in the snow – a red, rectangle shaped building with a glowing neon sign above the automatic doors. The crimson letters spelling SUPERMART.
 
-I'll play single player games from time to time, but I'm more likely to just doomscroll Instagram or reddit while YouTube fills in the background noise. My computer collects dust for months at a time. I think I enjoyed building the damn thing more than actually using it. So I end up bed rotting most of the time staring at my phone. 
+The store’s parking lot is an ice-covered death trap designed by Satan himself, where at least one person slips, falls and hurt themselves once a week. The forest behind the store is just like the dark and scary woods that the Grimm brothers warned you about as a kid, and I don’t recommend going on walks out there. We got bears here, and a couple of elks that don't seem to be that afraid of the bright eyes of a fast-moving car in the winter.
 
-Recently while doomscrolling instagram, I got a follow request from my old high-school friend Johnny. I got a pit in my stomach. I hadn't talked to him in years. I wasn't so sure I wanted to reconnect. We were the best of friends, but that time of my life was some of my lowest moments. I had no interest in digging all that back up. 
+There is also Fat Tony, an obese, sugar addicted raccoon that has made it a habit to take a dive in our dumpster. We put locks on it, but the little shithead must have gotten his hands on a lockpicking kit or something. He gets in anyway. The only way to deal with him is to spot him in time, and rush at him with a broom while screaming like some madwoman.
 
-I mean, what would it hurt to just follow him back. We'll probably just have a quick catching up chat, and probably go back to ignoring each other. I went ahead and approved the follow request while following him back. He sent me a message almost immediately. 
+Four shelves line the interior of the Supermart, creating five small aisles between the left and right wall. On the ceiling are three security cameras and in one of the corners is an old, black payphone. We sell pretty much everything here that the average household needs: diapers, snacks, coffee, knives, black tape, cleaning tools, rope, shovels and bags that don’t leak.
 
-“Hey dude, how's it goin?”
+I work the night shift. 9 pm to 6 am. You’ll usually find me sitting by the cash register near the entrance – pink hair, slim waist, small boobs – reading a magazine or swiping my phone.
 
-“Yo what up? I'm good, you?”
+Cell reception is shit out here (reason why we still have a payphone, I guess), but the wifi still works to some degree. Meaning I can look at guys' abs and fantasise that I’m on a hot beach in a bikini somewhere, and not in the freezing hell that is Alaska.
 
-“same same, hey you still game?”
+Now, the idea of a 24-hour convenience store in the middle of nowhere might sound a bit idiotic to some. You might be thinking, what sort of dumbass goes grocery shopping at three in the morning? Not many, sure, but some of them do. It’s usually the other night workers; the ambulance nurses, police officers, garbage men, that visit me, however. Coming in to get themselves a pack of cigarettes, or a bag of donuts or a microwave meal. Something small to get them through their shifts.
 
-“Yeah, from time to time.”
+It’s not bad work. Looking after the Supermart. But I would lie if I said that it doesn’t get to me. You know what I mean if you ever worked in any kind of remote place over a long period of time. It’s the emptiness and silence that does it.
 
-“You want to join my discord group? I'm trying to put together some game nights.”
+When you work alone like this you start to imagine things. Darkness takes root. Time and space slowly start to lose its grip, and you start to become unsure of what reality really is. Does the world outside the store really exist, or if it’s just some long, bad dream you had?
 
-Shit, I'm not so sure about this. I don't know how I feel about just jumping into discord calls with my old best friend. I mean, we're adults, I'm sure he would understand if I was unavailable most of the time due to being busy. 
+What I am trying to say is this, weird things happen here. The sort of things that don’t fit into a police report, and that you can’t really talk with your therapist about (I can’t at least). Things that you only can share with complete strangers over the internet.
 
-“Yeah sure, if it's on a day that I'm free, I can probably jump on.”
+There was that one time a thin man with a hook for a hand came into the store. I’m not kidding. A hook. I thought he was going to rob me when he walked up to the counter, before handing me a five-dollar bill and, with a low, gruff voice, asked for a scratch card.
 
-“Rad, here's the link.”
+“Today is my lucky day”, he said to me. “God told me so.”
 
-I reluctantly clicked the link he sent and joined his discord group. 
+I gave him a card, he did pay after all, and he began to scratch it with his hook. He didn’t win, and with an inhuman scream ate the card before storming out.
 
-“Alright, I'm in.”
+Now that I think back on it, I’m pretty sure that was just a dream. But I am not certain. Could have been someone on drugs, I guess.
 
-“Cool, I'll be in touch.”
+Another time, I saw a deer get run over by a truck near the parking lot. It hit the payment and disappeared underneath the wheels. Driver didn’t stop either. He just kept driving like nothing happened, the red lights gone a few seconds later. I grabbed my phone, ready to call someone.
 
-“Sounds good.”
+And that’s when the deer stood up again.
 
-That wasn't too painful, but I'm sure we'll have to do the whole catching up thing if I ever do jump on a call with him. However, some time passed, and I never heard anything new. This was somewhat of a relief. 
+It was dark, so I couldn’t really see that well, but the way it moving didn’t seem right to me. Its legs twisting outwards, head spinning the wrong way. The deer looked at me with its black, empty eyes before turning around and sprinting into the woods.
 
-I'll be honest, I don't really use discord. I'm a member of several groups, but I'm just not active in any of them, so I just have push notifications turned off on my phone. Recently while talking to a coworker, the topic of games came up. 
+There are also pools of black water forming on the floor sometimes. I’m not exactly sure where it comes from. My current theory is that the heat from the store is melting the snow on the roof, which then finds its way in through a small crack, turning black when passing through the roof’s insolation, and dripping down on the floor. The problem with that theory, is that the black pools don’t form in the same spot. It’s always different. And I have never seen, or heard any sound of, leaking water.
 
-“You on discord?” He asked. 
+Then there are the other strange night visitors, the weird junk we keep in storage, the urban myths about Supermart having a secret basement, and the snowmen out in the parking lot that appear from time to time when I’m not looking. I know it’s just kids playing, but it’s odd that I never see them put old Frosty together; that’s he’s already standing there when I peek outside, ready to come to life.
 
-“Yeah, you want to connect?”
+If I were to tell you of every unnerving and frightening encounter I had inside this store, real or make-believe, my fingers would be bleeding before I was done. And if you are wondering, yes, I am typing all of this on my phone while at work. Just something to do while waiting for the next customer.
 
-“Yeah, what's your username?”
+And to try distracting myself from the fact that while I was restocking the shelf behind the counter, someone built a new snowman. A scarf around its neck, top hat on its head and its twig arm raised in a greeting gesture. I don’t trust it.
 
-He pulled out his phone and opened discord, I told him my username and he searched it up. 
+Anyway, I guess I can tell you a story or two, but I should really get back to work for now. Just checked the security feed and it turns out Fat Tony is getting ready for his nightly swim.
 
-“There, friend request sent.”
-
-I then pulled out my phone and opened discord, when I navigated to friend requests, I saw two of them. For now I just accepted the one from my coworker. 
-
-“All done.” I said while turning off the screen and pocketing my phone. 
-
-“Sweet, I'll let you know next time I'm on and maybe we can play a match or two.”
-
-“Sounds good.”
-
-Later on I opened up discord to see who the other friend request was from. The user name was 6ftundr4u. They were from the group that Johnny invited me to. Oh what the hell, I went ahead and approved it. I also turned on push notifications just in case my coworker messaged me. About an hour later I got a message from 6ftundr4u.
-
-“Hey Ben, long time no see, it's Kate.”
-
-My stomach dropped. This was the exact thing I was afraid of when Johnny first sent me that friend request. I didn't know he kept in touch with his ex-girlfriend. I could swear I remember them having the biggest fallout after graduation. I thought they hated each other. I guess they could be reconnecting after several years. I mean, that's probably pretty healthy. 
-
-“Hey Kate, how are you?”
-
-“Oh you know, same ole’ same ole’”
-
-“Of Yeah, Mr. Foster still giving you shit for your messy handwriting?”
-
-“LOL, yep, I think he's going to fail me.”
-
-“I keep telling you, he's willing to give out extra credit.”
-
-“I've missed you.”
-
-“Yeah, it's been a long time.”
-
-“Too long.”
-
-I felt everything coming back. The mental pain, the physical anguish, the deep sadness. This was the last thing I ever wanted to happen in my life. I wish the past would just stay in the past. 
-
-“Hey, sorry to cut this short, but I need to clock into work.”
-
-“Oh of course, we'll catch up later.”
-
-“Yeah, for sure.”
-
-I dropped my phone on the floor to the side of my bed and rolled over. I cried for probably an hour. I moved on, why are they doing this to me? I have a new life, I have a sense of purpose. 
-
-The next day while I was at work, I got another message from her. 
-
-“Hey!”
-
-I left her on unread, and put my phone back in my pocket. She sent the same message a few days later, but I ignored it again. A few more days passed before she sent another.
-
-“Wow okay, I see how it is.”
-
-Shit. A wave of guilt washed over me. So I finally replied. 
-
-“I'm sorry, I've been so busy lately, and I keep forgetting to respond.”
-
-“It's okay, I get it. I won't bother you.”
-
-Fuck, I don't know what to do. She doesn't deserve this. Despite what I believed back then, she didn't do anything wrong. 
-
-“Sincerely, I'm sorry. We knew each other during a very difficult time in my life. I struggled with severe depression and really struggled day to day. You and Johnny popping back up into my life just brings it all back up to the surface. I didn't mean to hurt you. I'm just not sure I'm ready for all this.”
-
-“What do you mean by Johnny coming back into your life?”
-
-I stared at her message for several moments. I have no idea what she's asking. I had no idea how to respond. 
-
-“Well, we didn't really keep in contact after high school, you know how it is. People grow apart.” This was the best response I could think of. 
-
-“Do you mean, me coming back into your life brought memories of Johnny.”
-
-I was dumbfounded, what is she talking about?
-
-“No, a few months ago I got a follow request out of nowhere from him on Instagram.”
-
-“I don't understand. What do you mean?”
-
-I felt like she was gaslighting me. I was so confused. 
-
-“I don't know how else to say it, we connected over Instagram. We chatted a little bit before inviting me to the discord group.”
-
-“Okay fine! I get it, you don't want anything to do with me. You could have just said so, I can understand. But what you're doing right now is cruel beyond words. If you intended to make me cry, you did, I hope you're happy.”
-
-I stared at this message for way too long, because she blocked me before I had a chance to respond. 
-
-What the fuck is going on? I needed answers, I needed to message Johnny. There was one problem though, I couldn't find his Instagram profile. I mean that's not exactly unprecedented, I've had this happen before. Usually when someone's profile disappears overnight, it turns out they just deleted it. In fact it happens all the time. 
-
-Fine, I'll just message him on discord. I just don't know what his username is. We never sent each other a friend request, I just joined his group. I navigated to the group and looked around. Since I don't really use discord, I don't know all the ins and outs. Is there not a way to see all the members of a group? This is a lot harder than I thought it would be, so I just messaged the general chat. 
-
-“Hey Johnny, I don't know what your User Name is, can you send me a friend request, it's Ben.”
-
-“Who's Jonny?”
-
-“He's the guy that invited me to this group.”
-
-“I don't think there's a Johnny in this group”
-
-“No there is, like I said, he invited me to this group.”
-
-“Hey Ben, I think you're messaging the wrong group.”
-
-I know that username, it's my coworker. I don't remember joining a group with him in it. I could have sworn this was the group Johnny invited me to. 
-
-“Oh, hey Phillip, I must have gotten confused. My bad.”
-
-“All good dude.”
-
-“Weird question though, is there someone in this group with the username ‘6ftundr4u’?”
-
-“No”
-
-“No”
-
-“I don't think so.”
-
-“No”
-
-“Okay thanks, nvm.”
-
-What the hell? I'm so confused right now. Am I having the world's largest brain fart, or am I losing my mind? I spent the next couple hours searching up the username 6ftundr4u. I couldn't find anything. At some point I started wondering why I cared so much. The problem sorted itself out. I didn't want anything to do with them, and they were gone. I got my wish. I just felt a huge amount of guilt. I somehow really upset Kate, and I don't like hurting people. 
-
-After a few weeks, everything went back to normal, and I forgot about it. At least until my mom messaged me on Facebook. 
-
-“Hey, just checking in, how's everything going?”
-
-“Hey mom, everything's going well, how ‘bout you?”
-
-“Good good. I was just going through old photos, and I came across a few with you and Johnny.”
-
-Oh my god, it won't end. Even my mom won't let me keep it in the past. 
-
-“Oh yeah?”
-
-“Yeah, he was such a good kid and you guys got along so well.”
-
-I was typing out how we actually reconnected recently before she sent another message.
-
-“It's such a shame about what happened.”
-
-That's weird, I don't remember telling her about our falling out. As far as she knew, we just drifted apart. She sent another before I got a chance to respond. 
-
-“He had such a bright future ahead of him.”
-
-I stared at that message for way too long. A deep anxiety arose from within me. 
-
-“How old would he be today? 37, just a year younger than you, right?”
-
-The memory of looking down at him lying in his casket returned to me. 
-
-“Mom, I'm so sorry, I completely forgot that I picked up a shift that starts in ten minutes, I gotta go.”
-
-“Okay hun, be safe, I love you. <3”
-
-“Love you <3 <3 <3”
-
-I knew I had blocked out some memories from that time in my life, but I had no idea I blocked out something this big. How do you forget something like that?
-
-The thing about deleting a social media account, is that it's never really gone. If you change your mind, you can always have it reinstated. At this specific moment, I wish they could just stay deleted forever, because I'm looking at a message notification right now. One from an account that disappeared recently, and had just come back. 
+Wish me luck.
