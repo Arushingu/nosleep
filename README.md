@@ -1,47 +1,94 @@
-# Night shift at the Supermart
-(Part 1)
-Far up north, there is a convenience store that’s open 24 hours a day, all around the year, except on Christmas. It’s easy to spot from a distance, even half buried in the snow – a red, rectangle shaped building with a glowing neon sign above the automatic doors. The crimson letters spelling SUPERMART.
+# Time loops aren't what they tell you they are.
+Can I tell you about my biggest fear?
 
-The store’s parking lot is an ice-covered death trap designed by Satan himself, where at least one person slips, falls and hurt themselves once a week. The forest behind the store is just like the dark and scary woods that the Grimm brothers warned you about as a kid, and I don’t recommend going on walks out there. We got bears here, and a couple of elks that don't seem to be that afraid of the bright eyes of a fast-moving car in the winter.
+It's sort of a silly one, and I've never really heard anyone else talk about it, but I'm terrified of being predictable.
 
-There is also Fat Tony, an obese, sugar addicted raccoon that has made it a habit to take a dive in our dumpster. We put locks on it, but the little shithead must have gotten his hands on a lockpicking kit or something. He gets in anyway. The only way to deal with him is to spot him in time, and rush at him with a broom while screaming like some madwoman.
+When I was in kindergarten, we learned what the word meant in this huge picture book full of 'big words'. My teacher would tell us a story from the book, have us guess a few words, then give us the answer. And it had been fun for the first few words, the ones I can remember being these cute animals baking for the word 'decadent', this lizard learning the word 'humid', stuff like that.
 
-Four shelves line the interior of the Supermart, creating five small aisles between the left and right wall. On the ceiling are three security cameras and in one of the corners is an old, black payphone. We sell pretty much everything here that the average household needs: diapers, snacks, coffee, knives, black tape, cleaning tools, rope, shovels and bags that don’t leak.
+The word predictable had this story attached (of course, paraphrased. My memory isn't *that* good..)
 
-I work the night shift. 9 pm to 6 am. You’ll usually find me sitting by the cash register near the entrance – pink hair, slim waist, small boobs – reading a magazine or swiping my phone.
+'Every day, a man wakes up in the same house, puts on the same clothes, and eats the same breakfast.
 
-Cell reception is shit out here (reason why we still have a payphone, I guess), but the wifi still works to some degree. Meaning I can look at guys' abs and fantasise that I’m on a hot beach in a bikini somewhere, and not in the freezing hell that is Alaska.
+He gets into the same car he's always had, goes to the same job he's always worked, drives home on the same route, then goes to bed to have the same day all over again.'
 
-Now, the idea of a 24-hour convenience store in the middle of nowhere might sound a bit idiotic to some. You might be thinking, what sort of dumbass goes grocery shopping at three in the morning? Not many, sure, but some of them do. It’s usually the other night workers; the ambulance nurses, police officers, garbage men, that visit me, however. Coming in to get themselves a pack of cigarettes, or a bag of donuts or a microwave meal. Something small to get them through their shifts.
+Pretty depressing for kindergarten, right?
 
-It’s not bad work. Looking after the Supermart. But I would lie if I said that it doesn’t get to me. You know what I mean if you ever worked in any kind of remote place over a long period of time. It’s the emptiness and silence that does it.
+I can vividly recall what the guy looked like in the book, this pale man slumped into a purple couch, bored eyes looking forward at nothing. I remember thinking he looked like he was melting.
 
-When you work alone like this you start to imagine things. Darkness takes root. Time and space slowly start to lose its grip, and you start to become unsure of what reality really is. Does the world outside the store really exist, or if it’s just some long, bad dream you had?
+When I looked at my folder that night, I watched the plastic crinkle over my math homework and thought of the homework I had done last night, of *all* the homework I had done for the past year. Subsequently, I burst into tears. 
 
-What I am trying to say is this, weird things happen here. The sort of things that don’t fit into a police report, and that you can’t really talk with your therapist about (I can’t at least). Things that you only can share with complete strangers over the internet.
+When my mother had walked over and asked what was wrong, I blubbered,
 
-There was that one time a thin man with a hook for a hand came into the store. I’m not kidding. A hook. I thought he was going to rob me when he walked up to the counter, before handing me a five-dollar bill and, with a low, gruff voice, asked for a scratch card.
+“My life is so predictable!”
 
-“Today is my lucky day”, he said to me. “God told me so.”
+So, with that in mind, you could see how being stuck in a time loop is my personal hell.
 
-I gave him a card, he did pay after all, and he began to scratch it with his hook. He didn’t win, and with an inhuman scream ate the card before storming out.
+I've been stuck in May 11th, 2026, for a while. I want to say a few months, now? I'm not the best at keeping track of time.
 
-Now that I think back on it, I’m pretty sure that was just a dream. But I am not certain. Could have been someone on drugs, I guess.
+I've tried the usual tactics for escape, like staying up all night (hasn't worked, day stays the same when it hits 12:00), suicide (I just wake back up on the same day), giving a beautiful monologue admitting my faults (only worked for the dude in groundhog day), stuff like that.
 
-Another time, I saw a deer get run over by a truck near the parking lot. It hit the payment and disappeared underneath the wheels. Driver didn’t stop either. He just kept driving like nothing happened, the red lights gone a few seconds later. I grabbed my phone, ready to call someone.
+I'm not even sure this post will last a full day, since everything always resets.
 
-And that’s when the deer stood up again.
+So yeah, being stuck wouldn't have been too bad, even with my fear of monotony. I mean, there are some pros, like eating as much as I want without gaining any weight, or having all the time in the world to do what I like.
 
-It was dark, so I couldn’t really see that well, but the way it moving didn’t seem right to me. Its legs twisting outwards, head spinning the wrong way. The deer looked at me with its black, empty eyes before turning around and sprinting into the woods.
+But if that were the case, I think it would've taken me way longer to finally sit down and write this out. No, that isn't why I'm writing.
 
-There are also pools of black water forming on the floor sometimes. I’m not exactly sure where it comes from. My current theory is that the heat from the store is melting the snow on the roof, which then finds its way in through a small crack, turning black when passing through the roof’s insolation, and dripping down on the floor. The problem with that theory, is that the black pools don’t form in the same spot. It’s always different. And I have never seen, or heard any sound of, leaking water.
+I'm writing because I got even more stuck.
 
-Then there are the other strange night visitors, the weird junk we keep in storage, the urban myths about Supermart having a secret basement, and the snowmen out in the parking lot that appear from time to time when I’m not looking. I know it’s just kids playing, but it’s odd that I never see them put old Frosty together; that’s he’s already standing there when I peek outside, ready to come to life.
+It happened while I was having brunch with one of my friends. It was spontaneous, since there isn't really any planning ahead for me.
 
-If I were to tell you of every unnerving and frightening encounter I had inside this store, real or make-believe, my fingers would be bleeding before I was done. And if you are wondering, yes, I am typing all of this on my phone while at work. Just something to do while waiting for the next customer.
+I was listening to her tell me about the salon she works at when the idea first entered my head: what if I told her?
 
-And to try distracting myself from the fact that while I was restocking the shelf behind the counter, someone built a new snowman. A scarf around its neck, top hat on its head and its twig arm raised in a greeting gesture. I don’t trust it.
+Miraculously, I hadn't tried to tell anyone yet. I guess coping with the embarrassment of someone not believing me was worse than repeating the same day over and over.
 
-Anyway, I guess I can tell you a story or two, but I should really get back to work for now. Just checked the security feed and it turns out Fat Tony is getting ready for his nightly swim.
+"Odette," I began, trying to find the words. "Can I tell you something crazy?"
 
-Wish me luck.
+"Crazier than the salon?"
+
+I fidget with my straw. "I'd say so."
+
+She shrugs, taking a bite out of a scone, and I take it as a 'go ahead'.
+
+"I think... I'm stuck in a time loop."
+
+It feels really, really cringey to say, even if I am being genuine. Odette, however, just rolls her eyes.
+
+"How very cliche of you."
+
+"I'm being serious!" A few people turn to look our way. "I've lived today a bunch of times. I don't know what to do about it, I mean, I've tried almost everything."
+
+I watch her eyebrows furrow, and I silently hope she won't ask me to tell her what's going to happen next, since despite living today a million times, I haven't repeated brunch with her yet.
+
+But she never asks anything.
+
+In fact, her face seems stuck in the same expression, a slight frown tugging at her features.
+
+"Hello? Odette?" I wave my hand in front of her face, hoping that she was yanking my chain or something. But she doesn't move, aside from her expression.
+
+When I turn my head to look at the other tables, I realize that the restaurant ambiance sounds *awful*. Just a cacophony of a few words being repeated, the same forks hitting the plates at the same time, a baby crying in the same pitch and tone repeatedly. For a few minutes, all I do is sit.
+
+I get up, and Odette doesn't say anything, her eyebrows furrowing again. I don't bother making an excuse for myself.
+
+Stepping onto the street, it sounds worse, louder than it did in the restaurant. I pick my way across the street, avoiding the cars as they drove forward a few inches, then returned to the same spot.
+
+I was stuck in the same minute.
+
+You know, the same day on loop isn't as bad as they tell you it is. I mean, sure, there are downsides, but as long as you fill your days with activity, and you don't mind being alone, it isn't all bad. You can still talk to people, then. You still get your sunsets and sunrises, then. You still have the nights to sleep in, then. You still remember what silence is, then.
+
+The same minute is hell. I'm surprised I haven't lost my mind yet, hearing the same noises over and over again. But even still, being stuck in the same minute isn't what inspired me to write this post.
+
+About seven hours ago, I was still walking around, trying to tune out the noise enough to think. About seven hours ago, I bumped into someone on the street.
+
+I apologized without thinking, and they did too, then kept on walking. It was only after I was a few feet away that it dawned on me that I *bumped into someone*.
+
+I turned to watch them walk away, only to find that they had stopped too, their back still turned to me.
+
+I ran all the way home. I didn't stick around to find out if they were friendly or not.
+
+I'm sitting at my computer now. It's a miracle that my computer is letting me type, an even bigger miracle that I've been focused enough to actually write.
+
+I just want to know if anybody else is experiencing this. It'd be a little comfort to know I'm not alone. Please, feel free to reach out. I promise, if you *are*, I'll talk. I have all the time in the world.
+
+Reddit won't let me update this draft. It just keeps loading, loading, loading.
+
+God, I hope this posts.
