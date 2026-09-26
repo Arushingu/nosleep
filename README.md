@@ -1,585 +1,1344 @@
-# Something From My Childhood Came Back - Part 3
-I’m starting to understand why people who experience impossible things become so frustrating to talk to.
+# The fulfilling computer
+\\--------------------------------------------------------------------------------
 
-You want them to tell you exactly what happened. You want rules. You want them to separate what they know from what they think they know, preferably in chronological order, with enough detail that the whole thing eventually makes sense.
+\\--------------------------------------------------------------------------------
 
-I wanted that too.
+\\--------------------------------------------------------------------------------
 
-Unfortunately, I’ve discovered that reality doesn’t seem particularly concerned with being easy to explain.
+\\--------------------------------------------------------------------------------
 
-Since my last post
+The first night after we buried my dog, I woke up because I thought I heard him drinking water.
 
-[https://www.reddit.com/r/nosleep/s/3gzdxWxT1Q](https://www.reddit.com/r/nosleep/s/3gzdxWxT1Q)
+That was it.
 
-I’ve been trying to keep notes. Not just about the obvious things. I’ve been writing down little details too. Places. Times. What I was doing beforehand. Whether anyone else was nearby. Which things seemed aware of me and which didn’t. I’ve even started drawing some of what I see, despite possessing roughly the artistic ability of a drunk toddler with a crayon.
+Nothing dramatic.
 
-There are already patterns.
+Just the faint, rhythmic sound of a tongue hitting the bottom of a metal bowl.
 
-That’s the good news.
+Tink.
 
-The bad news is that every pattern seems to reveal three exceptions.
+Pause.
 
-I also need to clarify something because a few people misunderstood me last time. I don’t think I’ve gained some magical ability that lets me see the world as it actually is. I’m starting to suspect the opposite.
+Tink.
 
-I think I’m seeing more of it.
+Pause.
 
-There’s an important difference.
+I lay there with my eyes closed.
 
-I still walk into a grocery store and see cereal, shopping carts, fluorescent lights and somebody blocking an entire aisle while deciding which peanut butter will finally bring meaning to their life.
+For a few seconds, I didn't remember.
 
-I just see other things there now too.
+That he was dead.
 
-And every day it’s getting harder to pretend those things aren’t there.
+I opened my eyes.
 
-Mr. Crooked has been absolutely useless at making any of this easier.
+The bedroom was dark.
 
-I’ve tried asking him questions.
+I checked my phone.
 
-He answers some.
+2:13 a.m.
 
-Others get me a stare.
+The sound came again.
 
-And occasionally he’ll give me an answer so bizarre that I spend twenty minutes trying to figure out whether he’s being profound or whether I’ve somehow befriended the supernatural equivalent of an asshole.
+Tink.
 
-I’m leaning toward both.
+I sat up.
 
-But something has changed since I started writing these posts.
+It stopped.
 
-I’m remembering things.
+I listened.
 
-Not clearly. Not enough to put together a timeline. They’re more like pieces of photographs I didn’t know had been torn up. A room. A smell. Something somebody said. The feeling of being very small while something enormous moved through the darkness nearby.
+Nothing.
 
-And Mr. Crooked is in more of those memories than I expected.
+The house made the usual nighttime noises. The refrigerator is humming somewhere downstairs. The pipes ticking inside the walls. Wind pushing gently against the windows.
 
-That’s what bothers me.
+I almost laughed at myself.
 
-Because apparently I knew him much better than I thought I did.
+Grief does strange things to your brain.
 
-I just don’t know why I forgot him.
+I'd read that somewhere.
 
-Yet.
+I turned over and tried to sleep.
 
-A few days after they discharged me, I went back to work. I still had my arm in a sling and a colorful collection of bruises, but sitting in my apartment staring at the walls was only going to make me crazy. I needed normal. I needed spreadsheets and bad coffee.
+Then I heard three very soft clicks from the hallway.
 
-The problem was, "normal" didn't exist anymore. The Unseen was everywhere.
+Click.
 
-On Monday, I noticed something sitting under my coworker Brenda's desk. It looked like a wet sack of flour covered in twitching, hairless spider legs. It just sat there by her feet, occasionally vibrating. Brenda typed away, completely oblivious. Two weeks ago, I would have panicked. Now? I just took a sip of my coffee and walked past. I saw things clinging to the sides of buildings on my commute, and strange, translucent shapes weaving through rush hour traffic. I didn't react. I'd learned the hardest lesson of this new reality: just because I could see a problem didn't mean I understood it, and it definitely didn't mean I was the one who should fix it.
+Click.
 
-I also started noticing something new about Mr. Crooked.
+Click.
 
-He wasn't constantly hovering over my shoulder anymore. I would go hours, sometimes a full day, without spotting him. Then I'd glance out the breakroom window and see him standing across the street, perfectly still, watching me from the roof of a parking garage. Or I'd walk out of a coffee shop and catch him folded impossibly behind a mailbox that couldn't hide a golden retriever, let alone an eight-foot-tall nightmare. It sparked flashes of childhood—fragmented memories of looking out my bedroom window and seeing him tucked behind the neighbor's oak tree.
+His claws.
 
-The real trouble started on Tuesday evening.
+I sat upright again.
 
-I was walking to my car, keys in hand, when I heard it.
+This time I didn't move.
 
-"Daniel."
+The sound came from directly outside my bedroom.
 
-I stopped dead. I knew that voice. I spun around instinctively, searching the rows of parked cars. "Mom?"
+Then nothing.
 
-The parking lot was empty. Just the wind blowing a stray receipt across the asphalt. My mother lives three states away. She wasn't here. She couldn't be.
+I waited.
 
-I shook it off as exhaustion, but the next day, it happened again. I was in aisle four of the grocery store, debating between brands of pasta sauce, when a harsh whisper drifted from the next aisle.
+Thirty seconds.
 
-"Hey, Dan. Over here."
+A minute.
 
-It was Marcus, a guy I hadn't worked with in five years. I walked around the endcap. Aisle five was completely deserted.
+Two.
 
-By Thursday night, the bleeding of the impossible into the mundane reached my front door. I was sitting on my couch, trying to watch television, when I heard heavy footsteps in the hallway. They stopped outside my apartment.
+Eventually, I got out of bed.
 
-"Daniel? It's your father. Let me in."
+The hallway was empty.
 
-My dad has been dead for four years.
+I didn't call his name.
 
-I froze, my heart hammering against my ribs. I stared at the deadbolt. The voice was perfect. The exact timber, the slight rasp from decades of smoking.
+I didn't investigate.
 
-From the corner of my living room, the shadows stretched. Mr. Crooked unfolded himself from the darkness near the ceiling, his joints popping like dry branches.
+I locked my bedroom door instead.
 
-He didn’t move toward the door. He moved toward me, his impossibly long limbs carrying him across the living room in two silent, stuttering steps. He crouched in front of the couch, blocking my path to the hallway. His head tilted, hanging at that severe, broken angle, and he raised one massive, pale finger to where his lips should have been.
+Then I checked the cameras.
 
-The voice came again. "Dan? It's freezing out here, buddy. Open up."
+I'd had them for years.
 
-I opened my mouth to shout, to ask who the hell was out there playing this sick joke, but Mr. Crooked leaned in close. His breath smelled like old dust and copper.
+Front door.
 
-He finally gave me one instruction.
+Back door.
 
-"If you cannot see who is speaking, don't answer."
+Driveway.
 
-His voice didn't echo in the room; it resonated directly inside my skull, a vibration that made my teeth ache.
+Hallway.
 
-"Why?" I whispered, my heart hammering against my ribs. "Who is that?"
+I checked them every night before bed anyway.
 
-Crooked just stared at me with those bottomless black eyes. His grotesquely huge smile stretched a fraction wider, but he didn't offer a single word of explanation. We sat there in silence for ten minutes until the footsteps outside my door finally shuffled away.
+The feeds were normal.
 
-The escalation happened the very next day.
+Nothing moving.
 
-I was walking back from the pharmacy, taking my usual route past the alley behind the old brick laundromat. It was three in the afternoon. Broad daylight. The sun was shining, traffic was humming on the main road, and I was just trying to ignore the dull throb in my dislocated shoulder.
+No one outside.
 
-Then I heard her.
+No one inside.
 
-"Daniel? Come here a second."
+I called the police.
 
-It wasn't screaming for help. It wasn't a desperate plea. That would have been too obvious, too cinematic. It was just my mother, speaking in the exact, casual tone she used when she needed me to carry groceries in from the car.
+They arrived twenty minutes later.
 
-"Mom?" I said, the word already forming on my tongue, my body pivoting toward the alley before my brain could catch up with the impossibility of her being there.
+Two officers searched the house.
 
-I nearly answered automatically.
+Every room.
 
-A hand the size of a catcher's mitt clamped onto my good shoulder, yanking me backward with enough force to knock the breath out of me. I stumbled, looking up to see Mr. Crooked standing half-merged with the shadow of a dumpster.
+Every cupboard.
 
-Something was inside the alley.
+The garage.
 
-I couldn't properly see it. The shadows back there seemed too thick, folding over each other like heavy curtains. But I could hear it moving. It sounded like wet leather dragging over broken glass.
+The backyard.
 
-Then it started changing voices.
+They found nothing.
 
-"Hey, Dan, over here," Marcus whispered from the dark.
+One of them asked if I'd been drinking.
 
-"Mr. Mercer? Do you have the quarterly reports?" asked my old boss, a woman I hadn't seen in six years.
+I hadn't.
 
-It cycled through them rapidly, discarding them like radio stations. A college girlfriend. My landlord. The barista from the coffee shop down the street.
+The other officer checked the doors and windows.
 
-Eventually, the shifting stopped. The wet dragging sound paused.
+Everything was locked.
 
-A new voice drifted out of the shadows. A frightened little boy.
+He told me grief could cause auditory hallucinations.
 
-"Crooked?"
+I knew that.
 
-I froze. The blood drained from my face, leaving my skin cold and prickling.
+I thanked them.
 
-Because the voice was mine. Not adult Daniel. It was my voice, exactly as it had sounded when I was eight years old.
+Before they left, I wrote down their names and badge numbers.
 
-And just like that, a door in my mind kicked open, and a memory I hadn't realized I was missing flooded into the present.
+I wrote down the time they arrived.
 
-I remembered lying in my childhood bed. It was dark. The house was quiet, but my room wasn't. Something was beneath my bed. I could hear it scratching against the floorboards, a heavy, rhythmic gouging. I could hear it breathing—a wet, congested rattling that smelled like stagnant water and rotting meat. Occasionally, it whispered things I couldn't understand in a language that made my ears ring.
+2:34 a.m.
 
-And Mr. Crooked was standing beside the bed.
+And the time they left.
 
-Young Daniel was terrified of him. I remembered hiding beneath my Transformers blankets, peering out through a tiny gap, crying silently. I begged Mr. Crooked to leave. “Go away” I had whispered. “Please go away”
+2:58.
 
-But Crooked wouldn't.
+Then I checked the cameras again.
 
-This entire time, I had remembered the towering, angular creature beside my bed as the source of the nightmare. I had thought he was the monster.
+Nothing.
 
-Now, standing on the sidewalk with the afternoon sun warming my back, the rest of the memory clicked into place.
+I went back to bed.
 
-Mr. Crooked hadn't been looking at me.
+I didn't sleep.
 
-His broken-necked gaze had been pointed downward. He was staring underneath the bed. He had been watching the thing with the wet breathing, the thing that smelled like a swamp. He wasn't the predator in that room. He was the wall between me and it.
+\\----
 
-In the alley, the creature shifted again, the wet leather sound slapping against the brick.
+The next morning, I found myself staring at the kitchen floor.
 
-"Crooked? Please?" my eight-year-old voice called out.
+There were four wet marks beside the cupboard.
 
-I finally realized what the thing in the alley was doing. It had started with voices it already possessed—my dad, maybe others it had stolen. Then it had listened to the people around me. It had learned voices important to me. But when I reacted emotionally just now, when my breath hitched and my heart spiked at the sound of my childhood self, it gained something new.
+Small ones.
 
-Recognition.
+Circular.
 
-I looked up at the towering entity beside me. "What happens if I answer it?" I whispered.
+I didn't touch them.
 
-Crooked didn't look at me. His black eyes remained fixed on the shifting shadows in the alley. "Then it knows you are speaking to it."
+I photographed them instead.
 
-"Obviously," I muttered, my fear making me irritable.
+Wide shot.
 
-Crooked's head snapped toward me, the movement too fast, too fluid. "Knowing you hear something, and knowing you are speaking to it, are different things."
+Close-up.
 
-I stared at him, the weight of the words sinking in. That was the rule. Attention matters. Recognition matters. Intent matters. Human beings perform these actions constantly, tossing out words and acknowledgments without realizing they might mean something entirely different to the things listening just beyond the Veil. To answer it was to invite it. To acknowledge it was to build a bridge.
+Another from the doorway.
 
-I turned my back on the alley and walked away. Crooked followed, exactly twenty feet behind.
+Then I checked the camera footage.
 
-Over the next few days, everyday life became dangerous.
+The kitchen camera showed nothing unusual.
 
-The bleed-through was exhausting. After the alley encounter, I became hyperaware of how often humans respond to voices without seeing who is speaking. It is a fundamental part of existing in society.
+At 2:13, the kitchen was empty.
 
-Someone calls from another room. A stranger says "excuse me" behind you in line. Your phone rings. A coworker shouts your name from around a corner.
+At 2:14, it was empty.
 
-For everyone else, these were meaningless, automatic interactions. For me, suddenly there was a terrifying question attached to every single one. Who am I answering?
+At 2:15, it was empty.
 
-On Friday, I was at work, trying to focus on a spreadsheet, when somebody called my name from the supply room down the hall.
+I watched the footage twice.
 
-"Daniel? Can you give me a hand in here?"
+Nothing.
 
-It sounded like Brenda. But I couldn't see the supply room from my desk. I sat there, my hands hovering over my keyboard, a cold sweat breaking out on the back of my neck. I refused to respond. I just stared at my monitor, my heart thudding.
+I cleaned the marks.
 
-"Daniel?"
+Every one.
 
-I kept my mouth shut. I didn't even turn my head.
+Then I checked the cupboard.
 
-A moment later, Brenda walked out of the supply room, carrying a stack of printer toner. She glared at me, clearly annoyed. "Did you not hear me?"
+His water bowl was inside.
 
-I let out a breath I didn't know I was holding and forced a smile. "Sorry, Brenda. Zoned out. You need a hand?"
+Completely dry.
 
-She rolled her eyes and walked past. I had to laugh it off, but my hands were shaking so badly I had to put them under my desk. The supernatural wasn't replacing my normal life; it was turning my normal life into a minefield.
+I put it in a cardboard box.
 
-That night, I was sitting in my living room when Mr. Crooked materialized from the hallway shadows. I didn't jump this time. I just watched him fold his impossible frame into the corner of the room.
+Sealed the box with tape.
 
-I needed to talk about it.
+Wrote the date on it.
 
-"You were guarding me," I said quietly.
+Then put it in the garage.
 
-Crooked didn't respond. He just stood there, his head hanging.
+I checked every door.
 
-"The memory," I pressed. "The thing under my bed. That's why you stayed."
+Every window.
 
-"Yes," Crooked said, his voice a dry rustle in my head.
+Every camera.
 
-"I thought you were the thing I was supposed to be afraid of."
+Everything was normal.
 
-Crooked seemed to consider this. His long fingers twitched against his thighs. "You were afraid of most things."
+\\----
 
-"I was eight."
+I'd been a horror writer once.
 
-"Eight was particularly difficult."
+A good one too.
 
-I almost laughed. The sheer, alien deadpan of the statement was absurd. But the humor faded as another piece of the childhood puzzle slotted into place.
+People used to tell me my stories gave them nightmares.
 
-I remembered all the other nights. The nights when there wasn't a wet, heavy breathing under the floorboards. On those nights, when I would wake up and see Crooked in the corner, I would scream for him to leave. And he always did. He would fold himself into the closet or slip out the window.
+Then the last three months happened.
 
-Except that one night.
+My parents divorced.
 
-"You stayed because if you left, it would have taken me."
+My girlfriend cheated on me while she was pregnant and left.
 
-Crooked did not nod. His anatomy didn't really allow for a standard human nod without looking like his neck was snapping. Instead, he blinked those solid black eyes, a slow, deliberate shuttering. "It was hungry. You were loud. Loud things attract hungry things."
+I lost my job.
 
-"I was a kid," I said, leaning forward and resting my elbows on my knees, rubbing my temples to ward off an impending headache. "Kids are loud."
+Then my licence.
 
-"Yes," Crooked said. "A severe biological flaw."
+And five days ago, my dog died.
 
-I let out a breath that was half-laugh, half-sigh. The sheer, alien deadpan of the statement was absurd, but it grounded me. I looked at the towering, impossible creature folded into the corner of my mundane living room, next to a wobbly IKEA floor lamp. For the first time since my perception of the world had cracked open, I didn't feel the urge to run from him.
+There wasn't some profound reason I started writing that night.
 
-I felt a strange, heavy affection. He was a nightmare, sure. But he was ”my” nightmare.
+I was just tired of being inside my own head.
 
-"If you saved me," I started, trying to piece together the fractured timeline of my own life, "why didn't I remember you? Not really. I just remembered vague terrors. I remembered the fear, but not the context. Why was it all erased?"
+So I opened a blank document.
 
-"Why is so much of it missing?" I asked, staring up at his fractured silhouette. "I can remember fragments of being a kid. I remember being terrified of you, and I remember the thing beneath my bed. But huge portions of that period are just completely gone. It’s like someone took a pair of scissors to my timeline."
+I typed:
 
-Crooked didn't move, but his voice vibrated against my eardrums. "You didn't lose them."
+THE HOUSE WAS QUIET.
 
-"Then where are they?" I asked.
+Then I stopped.
 
-"Where you left them."
+I deleted it.
 
-I rubbed my eyes, a spike of irritation piercing through my exhaustion. "And where the hell did I leave them?"
+Typed it again.
 
-Crooked stared at me for several seconds. The silence stretched until the air in the room felt heavy. "Somewhere you were very happy to leave without them."
+Then kept going.
 
-I let out a long, frustrated breath. It was a classic Mr. Crooked response. He had this maddening habit of giving answers that were technically words arranged in a sentence, but fundamentally useless to a human being. I assumed it was just his usual bizarre way of avoiding a straight explanation, wrapping a simple "I don't know" or "I won't tell you" in layers of alien riddles.
+The story was about a man whose dog had recently died.
 
-Before I could press him for something that actually made sense, Crooked suddenly stopped paying attention to me.
+I didn't name the dog.
 
-The shift was immediate and terrifying. His head, which usually hung at that broken, severe angle toward whoever he was speaking to, snapped upward. His solid black eyes locked onto a corner of my apartment near the hallway—a space where I saw absolutely nothing but drywall and a shadow cast by the television. His strange, unsettling humor vanished. The relaxed slouch of his shoulders tightened. He was listening to something I couldn't hear.
+I didn't describe the death.
 
-"What are you doing?" I asked, my voice dropping to a whisper by pure instinct.
+I didn't even mention the man's girlfriend.
 
-"Stay here," Crooked said.
+I wanted it to be fiction.
 
-"After everything I've seen this week, 'stay here' isn't remotely enough information," I shot back, my heart rate already climbing.
+Something separate.
 
-Crooked ignored me. His body began unfolding. He rose up, his joints popping in a sickening staccato, extending to more of his true height than I was accustomed to seeing indoors. He towered near the ceiling, his impossibly long arms hanging down past his knees, his fingers twitching. He moved toward the hallway, his gaze still fixed on the empty space I couldn't perceive.
+Something I could control.
 
-"Where are you going?" I asked, standing up from the couch.
+The man in the story heard his dead dog's claws in the hallway.
 
-Crooked paused, turning his head just enough to catch me in his peripheral vision. He gave me one final warning.
+He got out of bed.
 
-"If someone calls for you, look at them before you answer."
+He checked the house.
 
-"Why?" I asked, a cold dread pooling in my stomach. "Does this have something to do with the creature from the alley?"
+Nothing.
 
-Crooked didn't answer. I blinked, and the space where he had been standing was empty. I jerked my head toward the hallway, finding him already at the far end of the corridor—a distance he couldn't possibly have covered in a fraction of a second. He didn't walk out the front door. Instead, he pressed his towering, spindly frame into the sharp corner where the walls met the ceiling, and simply folded himself through a seam in the geometry that shouldn't have existed. He slipped into the architecture like water down a drain, leaving me completely alone in the sudden, suffocating quiet of my apartment.
+Then I noticed something strange.
 
-I stood there for a long time, listening to the hum of the refrigerator.
+I'd written the exact time.
 
-Eventually, the adrenaline burned off, leaving behind a bone-deep exhaustion. I needed to pretend the world was normal for a few hours, just to keep myself from snapping. I locked the deadbolt, checked the windows, and forced myself to go through the motions of an ordinary evening. I took a hot shower, keeping the bathroom door wide open and my eyes darting to the mirror every thirty seconds. I heated up some leftover pasta, sat on the couch, and turned on a mindless sitcom, letting the canned laughter fill the empty space.
+2:13 a.m.
 
-But the Veil was already bleeding into my actual life, staining the mundane with paranoia. Earlier that evening, while I was taking out the trash, Mrs. Gable from down the hall had said, "Evening, Daniel," from behind me. Every muscle in my body had locked up. I had refused to utter a single syllable until I physically spun around, verified it was a seventy-year-old woman holding a recycling bin, and then awkwardly croaked out a hello. The same thing had happened at work. Someone shouted my name from the breakroom, and I nearly had a panic attack before realizing it was just the IT guy. I felt ridiculous, paranoid, and unhinged.
+I stared at it.
 
-But Crooked’s warning kept echoing in my skull: “Look at them before you answer.”
+I hadn't consciously chosen that time.
 
-By midnight, the apartment was quiet, and the sheer exhaustion of existing in two worlds at once finally allowed me to feel a tentative sense of safety. I was washing my plate in the sink, the warm water running over my hands, when I heard it.
+I changed it to 3:00.
 
-"Daniel?"
+Then continued.
 
-It was my own voice.
+The man went downstairs.
 
-It came from the bedroom down the hall.
+He found four wet marks on the kitchen floor.
 
-I froze. The plate slipped from my soapy fingers and clattered into the stainless steel basin. I didn't breathe. I didn't turn around. I just stared at the dark reflection of the kitchen window, Crooked's warning flashing like a neon sign in my brain.
+I stopped typing.
 
-My voice called out again. "Daniel?"
+I looked above my laptop toward my own kitchen.
 
-Then, from the direction of the living room, a second voice answered.
+I could see the cupboard from where I was sitting.
 
-"Yeah, I'm right here."
+I told myself it was a coincidence.
 
-It was also my voice.
+Four wet marks weren't exactly an impossible thing to imagine.
 
-I stood paralyzed at the sink as two versions of myself began talking to each other from different rooms in my apartment. At first, they were just repeating fragments of conversations I’d had recently.
+I kept writing.
 
-"Did you get the quarterly reports?" the bedroom voice asked.
+In the story, the man cleaned them up.
 
-"Sorry, Brenda. Zoned out," the living room voice replied.
+Then he went back upstairs.
 
-They were exact repetitions, lifted directly from my life. But as I listened, the blood roaring in my ears, they began to change. The voices started rearranging the sentences, splicing words together, experimenting with the cadence and tone.
+I wrote:
 
-"Sorry, Brenda," the bedroom voice said. "Did you get the reports?"
+He didn't notice the fifth mark.
 
-"Zoned out," the living room voice answered. "I'm right here."
+I stared at that sentence.
 
-Something was in my home, and it was practicing conversation.
+I deleted it.
 
-Then, the voice in the living room shifted. The pitch dropped, taking on a dry, rustling quality that made my teeth ache. It became Mr. Crooked. The imitation was disturbingly accurate, capturing the alien resonance that always felt like it was vibrating inside my head rather than traveling through the air.
+For some reason, I felt embarrassed.
 
-I heard my own voice ask from the bedroom: "Why can't I remember?"
+Like I'd written something stupid.
 
-The fake Crooked answered from the living room. "Because the dark is very heavy."
+I saved the document and went to bed.
 
-It was an answer the real Crooked had never given me. The things in my apartment were creating fake conversations, building entirely new interactions from the pieces of real ones they had stolen.
+\\----
 
-And then came the escalation that made my knees go weak.
+At 2:13 a.m, I woke up.
 
-From the hallway, just a few feet behind me, a new voice spoke. It wasn't merely a higher-pitched imitation of adult Daniel. It was the exact, trembling voice I suddenly remembered having when I was eight years old.
+I don't know what woke me.
 
-"Mr. Crooked?" the child called out.
+There was no sound.
 
-From the living room, the fake Crooked answered. "Yes, Daniel."
+That's the part I remember most clearly.
 
-I couldn't take it anymore. I grabbed the heaviest kitchen knife from the block and spun around, stepping out of the kitchen and into the hallway. "Who's there?" I didn't say it out loud—I knew better than to answer them—but I moved with aggressive intent, trying to locate the source.
+I simply opened my eyes.
 
-Every time I approached one voice, it instantly stopped, and another would begin somewhere behind me. I checked the bedroom, the bathroom, the living room. The voices danced around me, shifting from corners to closets to the ceiling. I could see the Unseen now—I could see Crooked, I could see the shifting shadows of the Veil—but I couldn't see this. The apartment was entirely empty, yet filled with the echoes of my own stolen life.
+My room was dark.
 
-Eventually, I stood in the center of the living room, clutching the knife, turning in slow circles.
+My phone was on the bedside table.
 
-And then, every voice stopped.
+2:13.
 
-Complete, suffocating silence fell over the apartment. I stood there for ten seconds. Twenty seconds. A full minute. Nothing moved.
+I didn't move.
 
-Then, my phone rang in my pocket.
+I listened.
 
-The sudden vibration made me jump so badly I nearly dropped the knife. I pulled the phone out with a shaking hand and stared at the glowing screen.
+Nothing.
 
-The caller ID said: MOM.
+I checked the cameras.
 
-I stared at it, my thumb hovering over the green button. I almost didn't answer. I could hear Crooked's ridiculous warning in my head, and I suddenly realized that a phone call created a massive loophole he hadn't bothered explaining. I literally couldn't look at the person speaking.
+Front door.
 
-But it was my mother. If she was calling at midnight, something was wrong.
+Back door.
 
-I swiped the screen and brought the phone to my ear. "Mom?" I didn't say hello.
+Driveway.
 
-There was a brief crackle of static, the kind you get when driving through a dead zone, before her voice came through.
+Hallway.
 
-"Daniel? Oh, thank god you picked up."
+Everything normal.
 
-I let out a breath I didn't realize I’d been holding. The tension in my shoulders dropped a fraction of an inch. It was her. The exact cadence, the slight nasal pinch she got when she was worried, the familiar warmth. "Mom? What's wrong? It's past midnight."
+I checked the timestamps.
 
-"I know, honey, I'm sorry," she said, her voice trembling slightly. "I just... I had this awful feeling. A mother's intuition, I guess. I woke up and felt like you were in trouble. Are you okay?"
+They were synchronized.
 
-I closed my eyes, the kitchen knife lowering slightly to my side. The sheer normalcy of her worry was a lifeline. "I'm fine, Mom. Just a long week at work. I'm really tired."
+Nothing had happened.
 
-"Are you sure?" she pressed. "You sound so stressed. And I heard you talking to yourself just a second ago. You always do that when you're overwhelmed."
+I stayed in bed.
 
-I froze.
+That was important.
 
-The blood in my veins turned to ice water. My mother lived in Ohio. I was in Chicago.
+I wasn't going downstairs because I'd heard something.
 
-"Mom," I said, my voice barely a whisper. "Where are you?"
+I wasn't opening doors.
 
-"I'm right here, sweetie," she said.
+I wasn't investigating.
 
-The voice didn't just come through the phone's speaker. It came from the hallway.
+I wasn't giving whatever my imagination had created an opportunity to turn itself into something real.
 
-My fingers went numb. The phone slipped from my grip, tumbling through the air in agonizing slow motion. It hit the hardwood floor with a sharp crack, the screen splintering into a spiderweb of illuminated glass. But the call didn't drop. The broken speaker hissed, emitting a low, rhythmic static.
+I stayed there.
 
-And from the dark hallway, just beyond the edge of the kitchen light, my mother’s voice spoke again.
+Eventually, I fell asleep.
 
-"Daniel?"
+\\----
 
-It was the exact same voice. The same worried, nasal pitch.
+At 6:40, I woke up.
 
-I didn't move. I couldn't. I just stared at the cracked phone on the floor, my grip on the kitchen knife turning my knuckles white.
+The sun was coming through the curtains.
 
-Then, the phone and the hallway started talking to each other.
+The atmosphere from the night before was completely gone.
 
-From the cracked speaker on the floor, my mother’s voice filtered through the static.
+The house was just a house.
 
-"Are you okay?" the phone asked.
+The refrigerator hummed.
 
-From the pitch-black corridor, the exact same voice replied. "I'm fine, Mom."
+A truck went past outside.
 
-I stopped breathing. The words hung in the air, heavy and wrong. I recognized that second sentence immediately. It wasn’t just a random phrase. It was my own sentence, the exact words I had spoken into the receiver less than a minute ago, but it was being fed back to me in my mother’s voice.
+Somebody's dog barked three houses away.
 
-The entity in the hallway wasn't just echoing. It was dissecting the audio of my life and reassembling it in real-time.
+I showered.
 
-The phone spoke again, the speaker hissing. "I knowhoney, I'm sorry," the cracked speaker finished.
+Made coffee.
 
-From the hallway, Mr. Crooked's impossibly deep, vibrating voice replied. "Because the dark is very heavy."
+Checked the cameras.
 
-"Are you sure?" my eight-year-old self asked from the ceiling.
+Nothing.
 
-"Stay here," my adult voice commanded from the corner of the living room.
+I almost felt embarrassed.
 
-It became a sickening, chaotic remix of my life. The voices overlapped, speeding up and slowing down in a dizzying auditory assault. My mother's voice laughed—a warm, familiar sound she made when she was genuinely delighted—but it was pitched down, stretched into a grotesque, guttural roar that rattled the picture frames on the walls. Then, Crooked's voice, adopting the cadence of a frightened child, cried out, "Mom? Where are you?"
+Then I noticed something on the kitchen camera.
 
-I backed against the kitchen counter, the edge of the granite pressing hard into my spine. I gripped the knife so tightly my forearm cramped, the muscles burning with the strain. I couldn't look away from the hallway, but there was nothing to see. Just the empty dark. The mimic was flaunting its collection, showing off the stolen fragments of my identity. It was a predator playing with its food, demonstrating that it didn't just know where I lived; it knew exactly who I was, and it was wearing my loved ones like cheap suits.
+The footage from 2:13 was missing.
 
-"Daniel?" my mother's voice pleaded from the bedroom.
+Not corrupted.
 
-"Yes, Daniel," Crooked's voice answered from the sink beside me.
+Missing.
 
-And then, like a radio suddenly unplugged from the wall, every single voice snapped off.
+2:13:00.
 
-The silence that followedwas absolute. It wasn’t just the absence of the mimic’s stolen audio; it was a total, suffocating vacuum. The ambient hum of the refrigerator had ceased. The distant, ever-present rumble of Chicago traffic outside my window was gone. Even the air felt thick and motionless, as if the apartment had been encased in amber. I stood frozen, my chest heaving, the kitchen knife still gripped so tightly my palm ached.
+Then—
 
-Then, the cracked phone on the hardwood floor lit up, vibrating violently against the wood.
+2:13:11.
 
-The harsh, buzzing sound shattered the silence like a gunshot. I flinched, taking a half-step back. Through the spiderweb of shattered glass on the screen, the caller ID glowed in the dim light: MOM.
+I watched the footage before and after it.
 
-I stared at it. Crooked’s warning echoed again. ”If someone calls for you, look at them before you answer.” But how could I look at someone through a phone? Was this another trick? Was the mimic resetting its game, trying a new angle to draw me out into the dark?
+Nothing.
 
-The phone kept buzzing. It felt desperate.
+I checked the other cameras.
 
-I slowly crouched down, never taking my eyes off the shadowy expanse of the hallway, and scooped the device off the floor. The glass bit into my fingertips. I pressed the phone to my ear, keeping my thumb hovering over the end-call button.
+They hadn't lost footage.
 
-"Hello?" I whispered, my voice rough and entirely my own.
+Only the kitchen camera.
 
-"Daniel? Are you there? The line went dead."
+I saved the recording to two different drives.
 
-It sounded exactly like her. The same slight nasal pinch, the same underlying current of maternal anxiety. But I had just heard that exact voice coming from my empty hallway. I needed proof.
+Then I unplugged the camera.
 
-"Mom," I said, my voice trembling. "Tell me something only you would know. Right now."
+I didn't replace it.
 
-There was a pause on the other end. "Excuse me? Daniel, it is a quarter past midnight. I am not playing trivia games with you."
+I went to work.
 
-"Please, Mom. Just do it."
+\\----
 
-I heard a heavy, exasperated sigh—a sound so profoundly human and uniquely hers that a fraction of the tension in my chest began to loosen. "You broke your collarbone when you were seven because you thought a black trash bag would work as a parachute off the garage roof. Now, what on earth is going on with you? First you call me out of the blue acting bizarre, and now this."
+On the drive to work, a police car pulled out behind me.
 
-I blinked, the knife lowering slightly. "Wait. What do you mean, I called you first?"
+I saw it in the mirror.
 
-"Don't play dumb, Daniel," she said, her tone shifting from worried to annoyed. "We just spoke twenty minutes ago. I don't know why you're acting so strange now."
+I checked my speed.
 
-The ice water in my veins froze solid. "Mom... I didn't call you twenty minutes ago."
+Under the limit.
 
-"Yes, you did," she insisted. "You called and woke me up. You were asking all those weird questions about your childhood."
+Seatbelt on.
 
-"What questions?" I breathed, the words barely scraping past my throat.
+Phone in the holder.
 
-"Just questions" she said, her voice softening slightly, sensing the genuine panic in mine. "About what you were like before you turned eight. You kept asking for specific memories, things you used to say, how you used to pronounce certain words. You were so insistent. You kept asking me to repeat the exact phrases you used to use when you were upset. You sounded so... clinical about it. Like you were taking notes."
+Everything legal.
 
-My stomach dropped into a bottomless abyss.
+Then the lights came on.
 
-The mimic in my apartment hadn't just been playing back audio to frighten me. It hadn't just been a mindless echo chamber. It was actively researching me. It had spoofed my number, called my mother in the middle of the night, and perfectly replicated my voice to conduct an interview about my own life. It was gathering data. It was learning my history, my mannerisms, the specific tones of my childhood.
+My stomach dropped.
 
-The terrifying question bloomed in the forefront of my mind: Why? Why did it need to know so much about me?
+I pulled over immediately.
 
-As soon as I had the thought, a soft, grotesque chuckle sounded right beside my left ear.
+Turned off the engine.
 
-It was a wet, gritty noise, like mud and raw meat being pulled apart. It was so close I could feel the phantom displacement of air against my cheek.
+Put both hands on the steering wheel.
 
-I violently violently swung the kitchen knife in a blind arc, stumbling backward into the counter. The blade sliced through empty space. There was nothing there.
+The officer approached.
 
-And then, like a rubber band snapping back into place, the apartment returned to normal.
+"Morning."
 
-The oppressive, heavy atmosphere vanished in an instant. The refrigerator kicked on with a familiar, rattling hum. Through the window, the distant wail of a police siren drifted up from the Chicago streets. The Veil had closed. The unseen weight that had been pressing against my eardrums evaporated, leaving behind the mundane reality of my messy, brightly lit kitchen.
+"Morning."
 
-"Daniel?" my mother’s voice called from the phone, pulling me back. "Daniel, what was that noise? Are you okay?"
+"Licence and registration."
 
-I leaned heavily against the granite counter, dropping the knife into the sink with a loud clatter. I pressed the heel of my hand against my forehead, trying to steady my breathing. The entity was gone. For now.
+I handed them over.
 
-"I'm here, Mom," I managed to say, forcing a calm into my voice that I absolutely did not feel. "I'm sorry. I just... I dropped the phone. Listen to me very carefully," I said, dropping the fabricated calm. "I have to go right now, but you need to promise me something."
+He looked at the licence.
 
-"Daniel, what's going on?"
+Then at me.
 
-"I need you to turn your phone off," I insisted, my grip tightening on the cracked plastic. "Do not answer any more calls from my number. If you hear my voice outside your bedroom door, or outside your window, do not speak to it. Lock the doors and ignore it. It is not me. Do you understand?"
+"Where are you heading?"
 
-A long, terrified pause stretched across the line. "Ok but you're scaring me.”  
-I hung up and stared at the shattered screen. I was feeling the same way.
+"Work."
 
-So that’s where things stand.
+He looked back at the card.
 
-I haven’t heard the voices again since that night. I realize writing that sentence is basically the supernatural equivalent of telling everyone in a horror movie, Don’t worry, I think it’s gone, but I’m working with what I’ve got.
+"You're aware your licence is suspended?"
 
-I’ve also developed a few new habits.
+I closed my eyes.
 
-I don’t answer anyone who calls my name unless I can see them. This has already made work interesting. Yesterday somebody called for me from the break room and I walked all the way over there before responding. Apparently staring suspiciously around the corner before saying, “Yeah?” makes people think you’re either having a nervous breakdown or hiding from the police.
+For a second, I couldn't remember.
 
-My phone isn’t much better.
+Then I did.
 
-Every time it rings, there’s now a moment where I stare at the caller ID and wonder whether answering it counts as acknowledging whatever is on the other end. I tried asking Mr. Crooked about that.
+I'd lost it the previous week.
 
-He stared at my phone for a while.
+I'd simply forgotten.
 
-Then he asked me why humans put voices inside rectangles.
+The officer asked me to step out.
 
-So we’re making excellent progress.
+I did.
 
-The part I can’t joke about is my mother.
+He searched the vehicle.
 
-Something used my voice to speak to her. It knew enough about me to sound convincing, and it wasn’t calling her to threaten her or lure her somewhere.
+Nothing.
 
-It was asking questions.
+He gave me a ticket.
 
-That’s what keeps bothering me.
+I signed it.
 
-Predators make sense. Even the things I’ve seen since all this started make a certain kind of sense once you stop expecting them to behave like people. Things hunt. Things defend territory. Things feed. Things hide.
+Then he asked why I looked nervous.
 
-But this thing wanted information.
+I told him about the house.
 
-About me.
+The noises.
 
-About when I was a kid.
+The missing footage.
 
-About years of my life that apparently contain things I can’t remember.
+The paw prints.
 
-And whatever it learned from my mother, it knows now.
+He listened.
 
-I don’t.
+Then he said:
 
-That’s a sentence I really wish I hadn’t needed to write.
+"Honestly? You did the right thing calling us."
 
-There’s something else that’s been bothering me too.
+I thanked him.
 
-For most of my life, I’ve thought of forgetting as passive. Memories fade. Childhood gets blurry. Your brain throws out useless information so it can preserve important things like every embarrassing thing you’ve ever said to another human being.
+He told me not to drive.
 
-But my missing memories don’t feel faded anymore.
+I called a taxi.
 
-They feel absent.
+While I waited, I checked the camera feeds remotely.
 
-There’s a difference.
+Nothing.
 
-Every time one comes back, it doesn’t feel like remembering something I’d forgotten.
+I watched the driveway camera.
 
-It feels like finding something that was missing.
+Nothing.
 
-I asked Mr. Crooked about that again tonight.
+Front door.
 
-He gave me one of those answers that probably means something and is therefore completely useless.
+Nothing.
 
-Then he climbed into the corner near my ceiling.
+Back door.
 
-I asked him why he was up there.
+Nothing.
 
-He said:
+Then I checked the kitchen camera.
 
-“Better view.”
+Black.
 
-“Of what?”
+I had unplugged it.
 
-He looked down at me.
+I stared at the screen.
 
-“You don’t want to know.”
+The officer's radio crackled beside me.
 
-So naturally I haven’t looked behind me for the last twenty minutes.
+I looked up.
 
-Personal growth.
+He was talking to someone.
 
-Anyway, I’m going to keep writing everything down. The creatures. The rules. The memories. Especially the memories.
+Then he walked over.
 
-Because something out there is interested in the part of my childhood I can’t remember.
+"You said you called us last night?"
 
-And after what happened with my mother, I’ve realized something that scares me considerably more than hearing my own voice speaking from an empty room.
+"Yeah."
 
-Whatever happened to me when I was a kid isn’t just something I forgot.
+"What time?"
 
-There are things out there that remember it.
+"2:13."
 
-And apparently they’re starting to ask questions too.
+He took out his notebook.
+
+"Because we don't have a call logged from your address at that time."
+
+I showed him my phone.
+
+The call was there.
+
+Sixteen minutes.
+
+He stared at it.
+
+Then at me.
+
+"If I were in your shoes I wouldn't stay here tonight."
+
+I didn't.
+
+\\----
+
+That night I stayed with a friend.
+
+I told him everything.
+
+He thought I was losing my mind.
+
+Then I showed him the photographs.
+
+The footage.
+
+The call log.
+
+The notes.
+
+He stopped laughing.
+
+We ordered pizza.
+
+Watched television.
+
+Talked about stupid things.
+
+For several hours, nothing happened.
+
+The atmosphere disappeared completely.
+
+That was almost worse.
+
+There was no dread.
+
+No strange noises.
+
+No feeling of being watched.
+
+Just two guys eating pizza while some reality show played in the background.
+
+At 11:47, my friend fell asleep.
+
+I stayed awake.
+
+I checked my phone.
+
+Nothing.
+
+I checked the cameras.
+
+Nothing.
+
+I checked my bank account.
+
+Nothing.
+
+I checked the weather.
+
+Rain tomorrow.
+
+Normal things.
+
+Mundane things.
+
+I began to feel stupid again.
+
+Then I remembered the story.
+
+I hadn't opened it since deleting it.
+
+I opened my laptop.
+
+The document was gone.
+
+I checked the recycle bin.
+
+Empty.
+
+Cloud storage.
+
+Nothing.
+
+I searched the entire computer.
+
+Nothing.
+
+I closed the laptop.
+
+Then I went to sleep.
+
+\\----
+
+The next morning, I went back to the house with my friend.
+
+We didn't go inside.
+
+I called the police.
+
+Two officers arrived.
+
+I explained everything.
+
+They entered first.
+
+They searched the house.
+
+Nothing.
+
+No broken windows.
+
+No forced locks.
+
+No damaged doors.
+
+Nothing.
+
+The house looked exactly as it should.
+
+One officer checked the cameras.
+
+The front camera had recorded normally.
+
+The driveway camera had been recording normally.
+
+The back camera had recorded normally.
+
+Nobody had entered.
+
+Nobody had left.
+
+The kitchen camera remained unplugged.
+
+I told them I wanted the laptop gone.
+
+One officer said they couldn't take it if it wasn't evidence of an offence.
+
+i reluctantly accepted his reasoning.
+
+Before we left, I walked into the kitchen.
+
+I didn't want to.
+
+But I did.
+
+The floor was clean.
+
+The cupboard was closed.
+
+I looked at the place where the four marks had been.
+
+Nothing.
+
+I locked the house.
+
+Then I gave my keys to my friend.
+
+I wasn't going back.
+
+\\----
+
+That night I checked into a motel.
+
+I chose one with cameras in the parking lot.
+
+Second floor.
+
+Room near reception.
+
+Deadbolt.
+
+Chain.
+
+Window locked.
+
+I checked everything.
+
+Then I pushed a chair beneath the door handle.
+
+I put my phone on the bedside table.
+
+I sat on the bed.
+
+And for the first time since my dog died, I opened the story again.
+
+The file was there.
+
+I hadn't put it there.
+
+The title was still:
+
+THE HOUSE WAS QUIET.
+
+\\----
+
+I stared at the screen.
+
+I read it from the beginning.
+
+It was good.
+
+Better than anything I'd written in months.
+
+I kept reading.
+
+The story followed the same events I'd experienced.
+
+The dog.
+
+The hallway.
+
+2:13.
+
+The four wet marks.
+
+The missing camera footage.
+
+The police.
+
+Even the motel.
+
+Except I'd never written the motel before.
+
+I hadn't remembered doing it.
+
+The protagonist in the story had left his house and gone to a motel.
+
+He had chosen a room on the second floor.
+
+He had checked the deadbolt.
+
+The chain.
+
+The window.
+
+He had pushed a chair beneath the handle.
+
+I stopped reading.
+
+I looked around my own room.
+
+Deadbolt.
+
+Chain.
+
+Window.
+
+Chair.
+
+Exactly the same.
+
+I checked the document again.
+
+The paragraph ended with:
+
+He decided that if something wanted him, it would have to come through the door.
+
+I laughed quietly.
+
+"Good."
+
+I kept reading.
+
+The protagonist sat on the bed and began writing.
+
+The story he wrote was about a man whose dog had recently died.
+
+I frowned.
+
+Then I realized what I was reading.
+
+He was writing the story I was reading.
+
+I scrolled.
+
+The words described him typing.
+
+Then they described what he typed.
+
+Then-
+
+I stopped.
+
+The final paragraph was missing.
+
+Not deleted.
+
+There was simply nothing after the previous paragraph.
+
+The cursor blinked.
+
+I stared at it.
+
+Then I understood.
+
+The story wasn't finished.
+
+It was waiting for me.
+
+I checked the clock.
+
+1:46 a.m.
+
+I looked at the motel door.
+
+Locked.
+
+Chain attached.
+
+Chair underneath the handle.
+
+I checked the window.
+
+Locked.
+
+I checked the room.
+
+Bathroom empty.
+
+Closet empty.
+
+Under the bed empty.
+
+I checked the hallway camera through the motel's guest portal.
+
+Nothing outside my room.
+
+I checked the parking lot.
+
+Nothing.
+
+I checked the fire escape.
+
+Nothing.
+
+I called reception.
+
+A tired voice answered.
+
+"Everything okay?"
+
+"Yeah."
+
+I almost said no.
+
+Instead:
+
+"Could you tell me if anyone has come upstairs?"
+
+The receptionist checked.
+
+"No."
+
+"Nobody?"
+
+"No."
+
+"Okay. Thank you."
+
+I hung up.
+
+I checked the document.
+
+The cursor was still blinking.
+
+I started writing.
+
+\\----
+
+The protagonist hears the dog in the hallway.
+
+He doesn't move.
+
+He knows better.
+
+He waits.
+
+The sound stops.
+
+Nothing happens.
+
+He checks the cameras.
+
+Nothing.
+
+He checks the locks.
+
+Everything is secure.
+
+He tells himself the sound was grief.
+
+He continues writing.
+
+The protagonist hears the first click.
+
+Click.
+
+He stops.
+
+Then another.
+
+Click.
+
+Then another.
+
+Click.
+
+He doesn't look toward the door.
+
+He keeps writing.
+
+The sounds continue.
+
+Closer.
+
+Click.
+
+Pause.
+
+Click.
+
+Pause.
+
+Click.
+
+The protagonist notices something strange.
+
+The footsteps aren't coming from the hallway.
+
+They're coming from somewhere behind him.
+
+I stopped typing.
+
+I looked at the room.
+
+Nothing.
+
+The television was off.
+
+The air conditioner was running.
+
+A car passed outside.
+
+Normal.
+
+I smiled.
+
+I was letting myself get carried away.
+
+I looked back at the screen.
+
+I continued.
+
+\\----
+
+The protagonist keeps writing.
+
+He knows the safest thing he can do is not react.
+
+He doesn't turn around.
+
+He doesn't investigate.
+
+He doesn't make a sound.
+
+He keeps his eyes on the screen.
+
+The clicking stops.
+
+For several seconds, there is nothing.
+
+The protagonist begins to relax.
+
+Then he hears breathing.
+
+Very close.
+
+He doesn't turn around.
+
+He keeps writing.
+
+The breathing is wet.
+
+Slow.
+
+Patient.
+
+He can hear something shifting behind him.
+
+He continues typing.
+
+He knows that if he looks, he gives it something.
+
+So he doesn't.
+
+He writes:
+
+The protagonist could smell his dog's breath.
+
+I stopped.
+
+My fingers hovered above the keyboard.
+
+I could smell something.
+
+Wet.
+
+Animal.
+
+Faint.
+
+I looked toward the air conditioner.
+
+Nothing.
+
+I checked the room.
+
+Nothing.
+
+I looked at the screen.
+
+The sentence I'd just written was still there.
+
+I stared at the cursor.
+
+Then I laughed.
+
+A short, nervous laugh.
+
+"Okay."
+
+I rubbed my face.
+
+I was tired.
+
+That was all.
+
+I continued.
+
+\\----
+
+The protagonist can hear the animal behind him.
+
+He knows it isn't possible.
+
+His dog is dead.
+
+He tells himself this.
+
+Again.
+
+And again.
+
+The sound behind him changes.
+
+The breathing stops.
+
+There is a faint movement of skin.
+
+Dry.
+
+Slow.
+
+The protagonist realizes what he is hearing.
+
+The lips are pulling apart.
+
+He can hear the dryness of them separating.
+
+A soft, sticky sound.
+
+He doesn't move.
+
+He doesn't turn around.
+
+He keeps writing.
+
+The jaw begins to lower.
+
+Slowly.
+
+Farther than a jaw should.
+
+The protagonist can hear the joints stretching.
+
+He can hear the muscles working.
+
+Then
+
+I stopped.
+
+My hands were shaking.
+
+I stared at the paragraph.
+
+I hadn't written the last sentence.
+
+The cursor blinked beneath it.
+
+I knew what came next.
+
+I knew exactly what came next.
+
+I should have stopped.
+
+I should have closed the laptop.
+
+I should have left the room.
+
+I should have called the police.
+
+But I had spent my entire life writing horror.
+
+I knew the rule.
+
+Never let the character do what the reader knows is stupid.
+
+So I didn't.
+
+I stayed exactly where I was.
+
+I kept my eyes on the screen.
+
+I took a breath.
+
+And wrote:
+
+\\----
+
+TWO DAYS LATER
+
+POLICE INVESTIGATE GRUESOME MOTEL HOMICIDE
+
+Police are investigating the death of a 19-year-old man whose body was discovered inside a motel room early Tuesday morning.
+
+Emergency services were called shortly after 2:00 a.m. following concerns raised about the occupant.
+
+The man was pronounced dead at the scene.
+
+Police have confirmed the death is being treated as a homicide.
+
+Investigators have declined to release the exact cause of death.
+
+However, a police spokesperson described the injuries as "severe" and "consistent with significant blunt-force trauma."
+
+Sources familiar with the investigation say the victim suffered catastrophic injuries to the head.
+
+The sides of the skull had been crushed inward.
+
+Police have ruled out suicide.
+
+There were no signs of forced entry.
+
+The motel room was locked from the inside.
+
+The deadbolt was engaged.
+
+The security chain remained attached.
+
+The windows were locked.
+
+There were no signs that anyone had entered through the bathroom.
+
+There were no unidentified fingerprints.
+
+No usable DNA belonging to another person has been recovered.
+
+Investigators have reviewed the motel's security footage.
+
+No person is seen entering the victim's room.
+
+No person is seen leaving.
+
+Police have not identified a suspect.
+
+The victim's laptop was recovered from the room.
+
+Investigators have confirmed that a document containing a partially completed horror story was open at the time of his death.
+
+Police have not commented on whether the document is connected to the investigation.
+
+One detail at the scene remains unexplained.
+
+A single paw print was found on the carpet near the victim's body.
+
+Forensic investigators believe the print was made after the victim's death.
+
+The print appears to have been made as something walked away from the body.
+
+It is the only paw print found anywhere inside the room.
+
+There are no corresponding prints leading toward the victim.
+
+There are no prints in the hallway.
+
+None on the stairs.
+
+None in the lobby.
+
+None outside the motel.
+
+Just one.
+
+Perfectly formed.
+
+Five toes.
+
+A small pad pressed into the carpet.
+
+The print is wet.
+
+Investigators have not determined what caused the moisture.
+
+\\----
+
+The news report ends with a photograph of the motel room.
+
+The image is grainy.
+
+Most of the scene is obscured by forensic screens.
+
+But in the lower corner of the photograph, beneath the edge of the bed, the paw print is visible.
+
+Perfect.
+
+Clean.
+
+Untouched by blood.
+
+The camera zooms in.
+
+And for a moment, before the report cuts away, there is something else in the frame.
+
+A laptop.
+
+Still open.
+
+The screen shows the final lines of the story.
+
+The cursor still blinking beneath them.
+
+And the last sentence reads:
+
+The protagonist hears the jaw click.
+
+Click.
