@@ -1,180 +1,44 @@
-# Seven knocks
-I still don't know whether what happened to me was a coincidence, a psychological breakdown, or something else entirely.
+# When we were kids, we thought the ‘Hollow Men’ were just a local legend. Then we found the town ledger from 1982 [Part 4]
+[\[Part 3\]](https://www.reddit.com/r/nosleep/s/2vohnULS94)
 
-Three years ago, my grandfather died.
+The ground didn't just shake it split. Deep, jagged fissures spider webbed across the parched soil of the scrap lot. A thick, sickening plume of dust blew out from the crevasse, reeking of ancient marsh water and ozone.
 
-His final words to me were strangely specific.
+Mayor Vance and the council members didn't even try to run. They dropped to their knees, weeping and pressing their faces into the dirt as the trees at the edge of the woods began to snap like toothpicks.
 
-"If someone knocks exactly seven times after midnight... don't answer."
+Out of the widening trench came the real Hollow Men.  
+The things we’d seen before were just workers scouts. What crawled out of the deep earth were towering, grotesque leviathans made of gnarled black oak roots, ancient peat, and petrified bone. They had no faces, only massive, yawning chasms in their torsos that rattled with the dry, terrifying hum of millions of cicadas.
 
-At the funeral everyone laughed when I brought it up. They said he was delirious from the medication. Eventually I forgot about it.
+My dad hauled Nic over his shoulder like a sandbag while I laid down a wall of buckshot into the treeline. The lead buried itself uselessly into the thick wood and mud, barely slowing them down.
 
-Fast forward almost two years.
+"To the truck! Get in the truck!" my dad screamed, his voice raw over the thunderous roar of the collapsing woods.”
 
-I had moved into a tiny rented apartment on the edge of town. The building was old enough that the pipes groaned at night and the hallway lights flickered every few minutes. My bedroom window overlooked an abandoned railway line covered in weeds.
+We sprinted across the gravel lot as the scrap metal stacks around us collapsed like tossed jackstraws. The creature that used to be my Uncle Mikey didn't chase us. It just stood at the edge of the pit, watching us with those milky, dead eyes as the giant root beings rose around it.
 
-Around 12:43 a.m. one rainy night...
+We threw Nic into the back seat of my dad’s Ford F-250, slammed the doors, and my dad floored the gas just as a massive, wooden limb smashed down onto the hood, crushing the grille like aluminum foil.  
+We tore down Main Street at eighty miles an hour, the truck grinding and spewing steam from the damaged engine.
 
-Knock.
+What we saw through the windshield made my blood run cold. The breach hadn't stayed at the tree line.  
+All across Blackwood Creek, the earth was vomiting up soil. Deep sinkholes were opening in the middle of paved roads, swallowing streetlights and parked cars whole. The dry summer grass on the town lawn was bursting into spontaneous, blueish green flame the same color as the burning ledger.
 
-Knock.
+Air raid sirens began to wail across the valley, a high, panicked scream that echoed off the hills. People were running out of their homes in their pajamas, screaming as tall, shadowy figures stepped out from the cornfields surrounding every neighborhood, blocking the roads out of town.
 
-Knock.
+"They're harvesting," my dad whispered, his knuckles white on the steering wheel. "The contract wasn't just a promise for crops, Jackson. The ledger was a levee holding them back. You didn't break a deal... you opened the floodgates."
 
-A pause.
+Suddenly, the back seat rattled. I whipped around. Nic was sitting upright, his hands clawing desperately at his face. The hemp twine stitched through his lips was snapping on its own, dry corn silk spilling from his mouth like blood as he gasped for air.
 
-Then four more.
+"Jackson..." Nic rasped, his voice sounding like two stones grinding together. "They aren't looking for grain anymore. They're collecting the town's interest."
 
-Exactly seven.
+My dad slammed the brakes, skidding the truck sideways into the gravel parking lot of the old Blackwood Creek High School. The building was a heavy, poured concrete shelter built in the 1950s the only structure in town with a basement set deep into bedrock rather than topsoil.
 
-I froze.
+Over a dozen cars were already parked outside, headlights shining wildly into the dusty air. Dozens of townsfolk our neighbors, my high school teachers, the grocery clerk were shoving their way inside through the heavy steel double doors, seeking cover from the chaos in the streets.
 
-The weirdest part wasn't the knocking.
+My dad grabbed a crate of shotgun shells from the truck bed while I helped Nic walk. Nic’s eyes were bloodshot, his skin unnaturally cold, but he was lucid enough to stumble inside.
 
-It was that nobody rang the bell.
+We crammed into the windowless gymnasium with nearly fifty other survivors. Sheriff Miller my dad's second cousin was trying to maintain order, shouting over the commotion of crying children and buzzing cell phones. None of the phones had service; the cell tower on North Ridge had already gone dark.  
+Then, the lights in the gym flickered and died, plunging us into pitch blackness.
 
-I looked through the peephole.
+A collective gasp echoed through the room. And then, from directly beneath the hardwood basketball court, came three slow, heavy, rhythmic thuds. 
 
-Nothing.
+The floorboards began to warp upward.
 
-The hallway was empty.
-
-Thinking it was kids messing around, I opened the door anyway.
-
-No one.
-
-Not even footsteps.
-
-But there was a wet footprint.
-
-Just one.
-
-Facing toward my apartment.
-
-Not away from it.
-
-I convinced myself I was overthinking it.
-
-Then things slowly became... wrong.
-
-Every morning, one object in my apartment would be somewhere else.
-
-My toothbrush.
-
-A spoon.
-
-A framed photo.
-
-Nothing valuable ever disappeared.
-
-Just moved.
-
-I bought a cheap security camera.
-
-For six nights...
-
-Nothing.
-
-The seventh night...
-
-The camera stopped recording at exactly 12:43.
-
-When it came back online at 12:46, my bedroom door—which I always slept with closed—was wide open.
-
-The police checked for intruders.
-
-Nothing.
-
-No forced entry.
-
-No fingerprints besides mine.
-
-Friends started avoiding me because I wouldn't stop talking about it. My girlfriend left because she thought I was becoming paranoid. I quit my job after going nearly a week without proper sleep.
-
-Eventually I moved.
-
-The strange events stopped immediately.
-
-I almost forgot about the entire thing.
-
-Until last week.
-
-My old landlord called.
-
-He sounded nervous.
-
-He asked a question that made my stomach drop.
-
-"Did you ever notice someone standing outside your apartment around midnight?"
-
-Apparently the tenant who moved in after me had been filing the exact same complaints.
-
-Objects changing places.
-
-Seven knocks.
-
-Camera failures at 12:43.
-
-He eventually disappeared.
-
-No signs of struggle.
-
-Phone left charging.
-
-Wallet still on the table.
-
-Police classified it as a voluntary disappearance.
-
-Then my landlord said something he'd never mentioned before.
-
-Years before I rented that apartment, an elderly man had lived there alone.
-
-He was found dead inside after neighbors complained about a strange smell.
-
-No family.
-
-No visitors.
-
-According to the report...
-
-He had written the same sentence dozens of times on scraps of paper found throughout the apartment.
-
-"If someone knocks exactly seven times after midnight... don't answer."
-
-I requested the police file.
-
-There wasn't one.
-
-The landlord later admitted he'd invented that part because he thought it would "give me closure."
-
-So now I honestly don't know which part of this story was real anymore.
-
-The knocks?
-
-The moved objects?
-
-My own sleep deprivation?
-
-Or the landlord trying to comfort me with a lie that somehow matched my grandfather's last words almost perfectly.
-
-Sometimes I wonder whether the most terrifying thing isn't ghosts...
-
-It's how easily the human mind can build a prison out of coincidences.
-
-And for some reason...
-
-Every year, on the anniversary of my grandfather's death...
-
-I wake up at exactly 12:43 a.m.
-
-No alarm.
-
-No nightmare.
-
-Just awake.
-
-Waiting.
-
-Listening.
-
-Hoping I never hear seven knocks again.
+We're trapped in a concrete basement with fifty terrified people, the floor beneath us is turning into mud, and my dad just realized the school was built right on top of the 1980 council's original burial ground how do you fight an enemy when you're standing on their roof?
