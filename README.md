@@ -1,38 +1,132 @@
-# What I saw in the Ozark woods still doesn't make sense to me
-I'm from the Ozarks. My name doesn't matter for this, so I'll just leave it out. There are maybe forty houses in our village, and as far as I know, my family's been on this land since sometime in the 1800s, back when my great-great-grandfather first settled here.
+# The Night I Learned My Life Was Too Precious to Waste
+When I was a kid, my father, who worked as a bank security guard, was shot and killed during an armed robbery.
 
-Before I get into it, I want to say I'm not using my real name or anything that could point back to the actual location. I don't want people showing up asking questions, and I really don't want to cause trouble for my family or anyone still living there. That's the only reason I'm being vague about certain details. Everything else is exactly how I remember it.
+After his death, I spiraled into heavy drug addiction. 
 
-Our village sits in a valley, and forest wraps around most of it, state land that doesn't even show up right on hiking apps. There was one rule everybody followed without question. You don't go into those woods. Not during the day, not at night, not for anything. There were old signs nailed to the trees at every path leading in, most of the paint faded to nothing, but a few still had something painted under the No Trespassing lettering that had been covered over so many times it was just a dark blur now.
+For three long years, my mother tried everything: rehab centers, interventions, and endless tears. 
 
-Whenever I asked why, the adults always said the same thing. People who go too far in there don't always come back the same. Nobody ever explained further than that. Livestock disappeared out there my whole childhood, cows, goats, once a neighbor's dog. When it happened, a few of the men would walk the tree line calling out, maybe go in twenty yards, and then just stop. My dad told me once there were two people from our community, years before I was born, who went in looking for something and never came back at all. He said their names quietly, like it still bothered him, and I never asked more.
+But my volatile mood swings, constant trouble, and bad company terrified my two younger siblings. 
 
-By nineteen I'd decided it was just old mountain superstition. I figured the missing animals were coyotes or black bears. I hunted the edges plenty and never had a problem.
+Eventually, out of desperation to protect them, my mother made the hardest decision of her life and kicked me out.
 
-Then one evening in October, right at dusk, one of our cows got through a rotted section of fence I didn't even know had gone bad. I was doing the last check of the day when I saw her push through, and before I thought about it I was already running after her. My dad yelled at me from near the barn to leave her, that she'd wander back on her own. I didn't listen. I figured five minutes, tops.
+I ended up living on the freezing streets, completely numb to the world.
 
-She didn't turn back. She kept going straight into the trees, and I followed without really registering how far I was getting until I was already deep in.
+One night, around 12 AM, I was wandering through the bitter cold when I saw an old woman struggling to carry a heavy bag up the steps of a dark apartment building. 
 
-It got quiet fast. Not peaceful quiet. No birds, no bugs, no wind, just my own footsteps sounding too loud. I followed broken branches and fresh tracks for what felt like ten minutes, deeper than made sense for a cow that should've tired out by then.
+Desperate for a few bucks or a warm meal, I offered to help. 
 
-Then I heard her scream. Not mooing. Screaming, the kind of sound that doesn't sound like it should come from a cow at all.
+She smiled, praised my kindness, and invited me inside.
 
-I ran toward it without thinking. I came into a small clearing, the light almost gone by then, that gray in-between light where your eyes can't settle on anything, and something was crouched over her.
+The entire apartment was lit only by candles, emitting a thick, suffocating atmosphere. 
 
-He stopped what he was doing and looked at me. The second I saw him, my breath just stopped in my chest. He wasn't a bear and he wasn't a man, not fully either one. It was like looking at something built out of pieces of both, wrong in a way I couldn't name fast enough before my body reacted for me.
+I set the bag down and turned around to speak, but she had vanished. 
 
-My foot found a dry branch on its own. It snapped, loud, way too loud in all that silence.
+I called out twice, receiving no answer. 
 
-I didn't wait to see anything else. I turned and ran on two legs as hard as I've ever run in my life. Branches tore across my face and I didn't feel any of it. Behind me I could hear something moving, and it wasn't running like an animal, it was running like a person losing their mind, and then the sound changed, like it dropped down onto four legs and started closing the distance, then back up onto two again. The sound behind me was the kind that makes your whole chest hurt just from hearing it.
+Moments later, she emerged from the bathroom—except she didn't seem to be walking at all.
 
-I was looking straight ahead, one direction, and I hit a tree so hard it knocked me flat. I didn't stop for even a second. I pushed myself up with my hands still half on the ground and kept going, stumbling, catching myself, running until my legs finally found rhythm again.
+She looked like she was floating off the ground.
 
-I don't know how long that lasted. I broke through the tree line and went straight into the ditch by our fence line, and that's where my dad found me. He and two of our neighbors had already come out with flashlights because I'd been gone too long. I couldn't get a full sentence out for a long while. I just kept pointing back toward the trees, shaking, and my dad picked me up under the arms and got me walking toward the house without asking anything yet.
+She opened the refrigerator. 
 
-Inside, my mom put coffee on even though it was almost eleven at night by then. My dad sat across from me at the kitchen table and just waited. When I finally managed to talk, it didn't come out in order. I told him about the cow, about the sound, about turning around and seeing something that didn't fit into either shape it should've been. He didn't interrupt once. When I was done he just nodded slowly, like I'd confirmed something he already carried with him, and told me I was lucky. He said whatever it was had probably already known I was there long before that branch ever snapped.
+Bizarrely, a bright yellow light illuminated from inside the fridge, even though the apartment clearly had no electricity. 
 
-The next morning a few of the men went out and fixed the fence. Nobody mentioned the cow again, not that day, not ever, not even my mom, who usually kept track of every head of livestock we owned down to the number. Nobody searched for her. It was like she'd already been written off before I even made it back to the house.
+She pulled out a plate of steaming hot meat and a glass of warm milk—just like my mother used to make. 
 
-I didn't leave the village over it, not permanently. But I'll admit I went and stayed with a friend about two counties over for almost four months afterward, just to get some distance and sleep through a full night again. Even then, I never stopped wanting to come back. I still love that place, the valley, the mountains, all of it, more than anywhere else I've lived since.
+My starving body didn't care how meat could be boiling hot inside a fridge; I devoured the meal in minutes.
 
-What still gets to me, more than the running or the sound behind me, is one thing I didn't put together until years later. When it turned to look at me, it didn't look startled. It didn't look caught. It turned slow, almost like it had been expecting me the whole time, like it already knew exactly where I was standing before I ever made a sound at all.
+When I finished and tried to leave, her hand clamped onto my wrist with terrifying strength. 
+
+"It's freezing outside, son," she purred. 
+
+"My grandson is your age. Stay the night." 
+
+The warmth of the apartment felt too good to refuse. 
+
+She led me into a child's bedroom, handed me a glass of water, and disappeared again.
+
+I threw myself onto the bed, exhausted.
+
+For a second, I glanced toward the floor beneath the edge of the bed and saw a hand wearing a white glove sticking out from underneath it before slowly disappearing back beneath the bed.
+
+I told myself it was just a hallucination caused by my drug use. 
+
+Deep down, I knew it wasn’t, but the warmth of the apartment was too tempting to leave.
+
+At almost 4 A.M, I woke up dizzy and nauseous from the stench. 
+
+Walking into the hallway, I noticed a thick, black liquid dripping heavily from the bag I had carried up. 
+
+Horror seized me. 
+
+I rushed toward the bedroom to grab my jacket when the old woman’s soft voice echoed from the next room: 
+
+"Boy, your jacket is here."
+
+I approached hesitantly. 
+
+A hand extended from the dark, not an old woman's hand, but a giant, swollen, bluish-white hand of decaying flesh with long, unnatural fingers. 
+
+Terrified, I snatched my jacket and bolted to the stairs but the building door was locked tight. 
+
+I ran up the stairs to the upper floors, desperately trying every door, but every apartment I checked was empty and abandoned.
+
+I had been trapped in a dead building with this thing all night.
+
+I ran back downstairs to find the apartment door wide open. 
+
+The old woman's voice boomed behind me, now harsh and demonic: 
+
+"Take off your clothes! If you don't, I will cut off a piece of your body!"
+
+Overwhelmed by primal fear, I stripped naked, crying and begging for mercy. 
+
+She ordered me to stand inside a circle of candles in the middle of the room. 
+
+She began crawling toward me like a grotesque, cursed beast—her long hair Filthy and unkempt, her body Deformed, Smelling like disgusting decay.
+
+She stepped into the circle, hovered over me, and began chanting:
+
+"O my creator, my beloved... make his blood pour as a blessing on my life... take what I offer you..."
+
+A black liquid began pouring from her blackened face onto my skin.
+
+I cowered on the floor, expecting death.
+
+Then—STAB! STAB! STAB! STAB!
+
+Rapid, ruthless stabs targeted her neck from behind. 
+
+Foul, rotten blood splattered across my body as the creature collapsed dead on top of me.
+
+I shoved the heavy corpse off, Crying loudly. 
+
+Standing over her was a tall man holding a bloody knife, wearing White latex gloves. 
+
+His cold, sharp green eyes locked onto mine.
+
+He knelt down beside me. 
+
+He grabbed my face, inspecting my eyes and neck with cold precision, like a butcher examining livestock before slaughter.
+
+he spoke in a chilling, flat voice.
+
+"You’ve used up all your luck tonight,"  "Maybe you should start appreciating your life from now on."
+
+He stood up, walked downstairs to unlock the entrance door, and then went back upstairs into the quiet darkness.
+
+I scrambled out into the freezing snow completely naked. 
+
+Trembling, I pulled my clothes on, wiped the foul blood from my face, and reached into my jacket pocket, finding a stack of cash.
+
+I used that money to rent a room in a cheap hotel. 
+
+That horrifying night shattered something inside me. 
+
+I found a low-paying job and fought through the hellish nightmare of rehab, quitting drugs forever. 
+
+A year after getting clean, I reunited with my mother and finally returned home.
+
+To this day, the nightmares still haunt me. 
+
+Her heavy hands around my ribs, nearly squeezing the life out of me, are enough to remind me that life is more precious than any pleasure.
