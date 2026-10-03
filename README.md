@@ -1,132 +1,84 @@
-# The Night I Learned My Life Was Too Precious to Waste
-When I was a kid, my father, who worked as a bank security guard, was shot and killed during an armed robbery.
+# I Had Never Seen Another Person Before
+When I was a child, I lived with my grandmother in a cabin in the middle of the forest. She told me that my parents had abandoned me. I never thought there was anything strange about the fact that it was just the two of us and that I was completely isolated from everyone else. I didn't know anything different, and I never really felt like I was missing anything.
 
-After his death, I spiraled into heavy drug addiction. 
+One day, when I was five years old, I went for a walk and met a man. He was the first person I could remember seeing. He was wearing green clothes and had something strapped to his back that I didn't recognize.
 
-For three long years, my mother tried everything: rehab centers, interventions, and endless tears. 
+He asked me where I had come from. I told him that I lived with my grandmother in a cabin not far from there. He looked at me strangely and said that was impossible because nobody lived there. He would know, he told me, because he was a hunter and looked after that forest.
 
-But my volatile mood swings, constant trouble, and bad company terrified my two younger siblings. 
+He took me by the hand and said he would take me somewhere where they could help me. I had no idea what he meant. I didn't want to go anywhere, but he pulled me along.
 
-Eventually, out of desperation to protect them, my mother made the hardest decision of her life and kicked me out.
+We were almost at the edge of the forest when I heard heavy breathing and rustling behind us. I turned around, and there was something horrible standing behind us.
 
-I ended up living on the freezing streets, completely numb to the world.
+The whole time, I had been trying to pull my hand free from the man's grip, but now I held onto him as tightly as I could and started screaming.
 
-One night, around 12 AM, I was wandering through the bitter cold when I saw an old woman struggling to carry a heavy bag up the steps of a dark apartment building. 
+The thing behind us had several clumps of something that looked like hair growing from its head. Its eyes were red, and several teeth protruded from its mouth, but they looked more like needles than teeth.
 
-Desperate for a few bucks or a warm meal, I offered to help. 
+It was hunched over.
 
-She smiled, praised my kindness, and invited me inside.
+Then I realized what it was wearing.
 
-The entire apartment was lit only by candles, emitting a thick, suffocating atmosphere. 
+Clothes I recognized.
 
-I set the bag down and turned around to speak, but she had vanished. 
+My grandmother's clothes.
 
-I called out twice, receiving no answer. 
+It tried to smile and reached toward me with a hand that had long claws instead of fingers.
 
-Moments later, she emerged from the bathroom—except she didn't seem to be walking at all.
+“Stellooo,” it rasped.
 
-She looked like she was floating off the ground.
+That voice…
 
-She opened the refrigerator. 
+It was my grandmother's voice, but it sounded different.
 
-Bizarrely, a bright yellow light illuminated from inside the fridge, even though the apartment clearly had no electricity. 
+Evil.
 
-She pulled out a plate of steaming hot meat and a glass of warm milk—just like my mother used to make. 
+When I looked at the man, he was completely pale. He started running with me, and the monster chased after us on all fours.
 
-My starving body didn't care how meat could be boiling hot inside a fridge; I devoured the meal in minutes.
+It was incredibly fast.
 
-When I finished and tried to leave, her hand clamped onto my wrist with terrifying strength. 
+It was already upon us.
 
-"It's freezing outside, son," she purred. 
+It knocked me away from the man and threw him against a rock. His head hit it, and he collapsed to the ground.
 
-"My grandson is your age. Stay the night." 
+I tried to get away from it. Its claws dug into me everywhere—my arms, my back. It felt like knives were slicing through my skin. Drops of my blood covered my clothes.
 
-The warmth of the apartment felt too good to refuse. 
+I had no chance against it.
 
-She led me into a child's bedroom, handed me a glass of water, and disappeared again.
+It dragged me away when suddenly I heard a terrible bang and felt its grip loosen.
 
-I threw myself onto the bed, exhausted.
+I looked ahead and saw the man holding something in his hand. I later learned that it was a gun. Until then, I had never seen one before.
 
-For a second, I glanced toward the floor beneath the edge of the bed and saw a hand wearing a white glove sticking out from underneath it before slowly disappearing back beneath the bed.
+He quickly ran back to me and took me to the police.
 
-I told myself it was just a hallucination caused by my drug use. 
+I found out that when I was two years old, someone had killed my parents. They never found the killer.
 
-Deep down, I knew it wasn’t, but the warmth of the apartment was too tempting to leave.
+I did have a grandmother, but she wasn't the one who had been living with me all those years.
 
-At almost 4 A.M, I woke up dizzy and nauseous from the stench. 
+My real grandmother was incredibly happy that I was back, and I slowly learned what it was like to live a normal life.
 
-Walking into the hallway, I noticed a thick, black liquid dripping heavily from the bag I had carried up. 
+Now I'm an adult, and for years I told myself that maybe it really had been a bear, even though that wouldn't explain a lot of things.
 
-Horror seized me. 
+I wanted to believe that.
 
-I rushed toward the bedroom to grab my jacket when the old woman’s soft voice echoed from the next room: 
+But today, I was driving my daughter, Esme, to kindergarten.
 
-"Boy, your jacket is here."
+Something made me look to the left.
 
-I approached hesitantly. 
+There is a forest not far from the kindergarten.
 
-A hand extended from the dark, not an old woman's hand, but a giant, swollen, bluish-white hand of decaying flesh with long, unnatural fingers. 
+And there it was.
 
-Terrified, I snatched my jacket and bolted to the stairs but the building door was locked tight. 
+Just as horrible as I remembered it.
 
-I ran up the stairs to the upper floors, desperately trying every door, but every apartment I checked was empty and abandoned.
+It had the same terrifying smile, and it was pointing at my daughter.
 
-I had been trapped in a dead building with this thing all night.
+I immediately got her back into the car and drove home as fast as I could.
 
-I ran back downstairs to find the apartment door wide open. 
+Now I don't know what to do.
 
-The old woman's voice boomed behind me, now harsh and demonic: 
+I don't know what it is.
 
-"Take off your clothes! If you don't, I will cut off a piece of your body!"
+I don't know how far it can go.
 
-Overwhelmed by primal fear, I stripped naked, crying and begging for mercy. 
+All I know is that it is capable of hurting someone.
 
-She ordered me to stand inside a circle of candles in the middle of the room. 
-
-She began crawling toward me like a grotesque, cursed beast—her long hair Filthy and unkempt, her body Deformed, Smelling like disgusting decay.
-
-She stepped into the circle, hovered over me, and began chanting:
-
-"O my creator, my beloved... make his blood pour as a blessing on my life... take what I offer you..."
-
-A black liquid began pouring from her blackened face onto my skin.
-
-I cowered on the floor, expecting death.
-
-Then—STAB! STAB! STAB! STAB!
-
-Rapid, ruthless stabs targeted her neck from behind. 
-
-Foul, rotten blood splattered across my body as the creature collapsed dead on top of me.
-
-I shoved the heavy corpse off, Crying loudly. 
-
-Standing over her was a tall man holding a bloody knife, wearing White latex gloves. 
-
-His cold, sharp green eyes locked onto mine.
-
-He knelt down beside me. 
-
-He grabbed my face, inspecting my eyes and neck with cold precision, like a butcher examining livestock before slaughter.
-
-he spoke in a chilling, flat voice.
-
-"You’ve used up all your luck tonight,"  "Maybe you should start appreciating your life from now on."
-
-He stood up, walked downstairs to unlock the entrance door, and then went back upstairs into the quiet darkness.
-
-I scrambled out into the freezing snow completely naked. 
-
-Trembling, I pulled my clothes on, wiped the foul blood from my face, and reached into my jacket pocket, finding a stack of cash.
-
-I used that money to rent a room in a cheap hotel. 
-
-That horrifying night shattered something inside me. 
-
-I found a low-paying job and fought through the hellish nightmare of rehab, quitting drugs forever. 
-
-A year after getting clean, I reunited with my mother and finally returned home.
-
-To this day, the nightmares still haunt me. 
-
-Her heavy hands around my ribs, nearly squeezing the life out of me, are enough to remind me that life is more precious than any pleasure.
+Or even killing them.
