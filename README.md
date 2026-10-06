@@ -1,65 +1,10 @@
-# The man in the Top Hat
-Nobody knows how long it has been this way or how it started. Our town has everything we could ever want. We never go without food. No one ever gets sick. No one has to work. We all live in harmony. It’s so peaceful here, but in order to keep it this way, we just have to follow a couple of simple rules.  
-The most important rule: Stay away from the man with the top hat.
+# Eerie Himalayas
+Previous year, November 2025 I made up my mind to visit the Himalayas and the beautiful towns and villages in it’s foothills, packed the essentials and started from the capital Delhi at 12 in the noon and till I reached Rishikesh, it was a beautiful twilight, foggy mountain roads with blurred yellow streetlights, boarded off the mini bus and carried the immense bag-load all the way just to find a cheap stay near the Ganges.
 
-In fact, all the rules we have are because of him. We have to be inside before sunset with the doors locked. We cannot peek outside once it’s dark. It’s that simple. We follow those rules, and we get to live this perfect life.
+The exceptional cold and mosquitoes inside that hotel deprived me of a good sleep, woke up at 9, had some buttered breads and proceeded straight to the main mountains in a jeep which at every turn, by God’s grace was inches away from tumbling down. Finally I reached the trek, the experience was indescribable, I was a literal ant surrounded by the majestic white walls of the Himalayas. All day was spent climbing and descending the snowy hills with a wooden hiking stick i purchased from Rishikesh.
 
-Sometimes people go missing. People who couldn’t follow the rules. We don’t talk about it.
+As the dusk approached, I was overcome by exhaustion like never before, water and biscuits I carried did a terrible job to refuel me. I made a rather brave move to spend the night camping off trek, assembled the tent, fastened it, and by then there was absolute darkness. My tent was on top of  one of the many steep slopes. There is no question of having a deep sleep in that region. Shout as much as you can, nobody’s listening.
 
-I was walking home. It was late, but since it was summer, it didn’t get dark until late. I still had plenty of time, and the streets were full of people.  
-All of a sudden, it got really quiet. People started walking at a faster pace. Confused, I looked around and froze.
+I got bored and crawled out of tent just to get lost in that heavenly ambience of snow clad peaks around me, glittering under the full moon’s effulgence, cold breezes and eerie silence howling deep in the Himalayas. Seems that i was the last man on Earth. Had noodles with me, went inside, turned the stove on and began gazing at the stars as the water boiled, I could easily tell from peripheral sight that something is in motion, maybe this was the snow leopard or brown Himalayan bear I wondered, rushed inside, pulled the zip down and was in complete awe ! there were four robed men of heights as much as 9-11 feet, exceptionally lean and gravely walking past my tent. 
 
-There was the man with the top hat at the end of the street I had just come from.
-
-Now, it wasn’t uncommon to see him. As long as you minded your own business and made it inside your home before dark, you were fine. This wasn’t my first time seeing him, but he always created an uneasy feeling.
-
-I quickly turned around and started walking home faster. I couldn’t let my fear take control of my body.  
-I made it to the next block and glanced behind me.  
-There he was, up the next street, right where I had been.
-
-He wasn’t staring at me, which gave me a small glimmer of hope. He had to be looking for anyone who was going to break the rules.
-
-I kept walking home. With each block, I would look back, and there he would be, standing at the previous spot I had just been. Always looking. Searching for his next victim.
-
-Each time, I moved faster until I was running.  
-Something was wrong. I knew it.
-
-It was taking me much longer to get home, and it was getting dark fast. The streets were empty except for me and the man with the top hat.  
-Finally, I made it to my house.
-
-I rushed inside. The sun was just barely peeking over the mountains. I slammed the door shut and locked it.
-
-I let out the breath I had been holding.  
-I had made it. I was safe.
-
-BANG! BANG! BANG!
-
-Someone was hitting my door so hard I thought it would knock it down.
-
-I backed away from it and fell to the ground. My heart started to race. I had never been so scared in my life. I couldn’t breathe. I couldn’t move.
-
-All I could do was stare at my door, praying that it would stop.
-
-After what felt like hours, it finally stopped.  
-I didn’t move, afraid that even the slightest sound would make it start again.
-
-Finally, I stood up. I started to feel safe again. I didn’t dare peek outside. It had to be dark by now.  
-I sighed in relief.
-
-I had made it. I had followed all the rules, and that was why I was safe.
-
-I made a mental note to start heading home sooner so this wouldn’t happen again.
-
-I started heading upstairs to get ready for bed when a sound made me stop dead in my tracks.
-
-Click.
-
-The lock on my door had just undone itself.  
-I watched as the handle twisted and the door slowly opened.
-
-There, standing in the doorway, was the man with the top hat.
-
-He had a smile on his face that was far too wide for a normal person.
-
-He looked at me and said,  
-“Do you really think following some rules will stop me?”
+The leading man joined his palms and looked up to the moon, his face was nothing short of a skull covered hardly in a layer of skin with deep sunken eyes, the water i kept for boiling reached its point and began bubbling, the last thing I wanted to happen, the man fixed his focus straight to my peeping eyes and grinned from ear to ear, eyes were sort of restored from that sunken state and became radiant like an animal’s eyes under a car’s headlight in dark ! The leading one screeched inhumanly which echoed throughout the valley giving chills through my heart. They turned, lowered their heads  in sync and bolted towards my tent, this was the last thing i perceived before waking up with a severe migraine on a hospital bed surrounded by curious faces. 
