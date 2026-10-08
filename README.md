@@ -1,55 +1,98 @@
-# The new chemical weapon we got is way to potent
-When they took me from my jail cell and told me to sign up for a chance of "freedom" I knew that I should have declined. I knew it was too good to be true but I signed up anyway. I was serving 50 years, that might as well be a life sentence. Didn't have anything to lose anyway.
+# My sugar daddy makes me follow a single rule
+Let me start out by saying that my arrangement isn’t what you think. 
 
-For the record, I went in for a string of murders that I honestly don't regret.
+My sugar daddy, we’ll call him Mark, doesn’t pay me to satisfy some weird sexual fantasy. It’s much more mundane than that. 
 
-I have never been a good person, never tried to be honest. Never saw the point. Everyone that is and was in my group had the same decades-long sentences as me.
+He takes me on dates, buys me nice things, and we hang out in his multi-million dollar mansion two to three times a week. The guy is lonely. That, I can deal with. But what happened last week has me questioning everything I know about this job.
 
-Maybe that's why the outside of our bodies displays the monsters we are on the inside.
+Mark pays for just about all of my bills. I won’t give the exact amount for privacy reasons, but just know that it’s enough to not only keep the lights on but put me into early retirement if I’m not stupid about my spending. 
 
-Our hair, nose, ears, lips, eyelids are gone. Completely dissolved. The rest of our bodies are covered in scabs and chemical burns. Could have just been the chemical weapons they make us use. Or it could have been the mixture of the weapon with the "combat stimulants" they make us inject to keep us from collapsing on the spot. Who knows, better yet who cares.
+I used to think that arrangement was a godsend. Now, I’m not so sure. 
 
-All I know is that as long as I keep taking them I don't feel all the things wrong with my body. Like my dry eyes underneath my gas mask. Or the open wounds on my hands.
+Like I said before, our relationship isn’t sexual. The most Mark and I have ever done is hold hands. That’s it. It’s not that I dissuade him from it. It’s just that it’s not what Mark is after.
 
-10 months ago we received the new gas canisters. They didn't bother to even tell us what it is called. But when we saw the string of warning labels on the canisters together with receiving new stronger gas masks we already knew this would be way worse than the old stuff we had before. But we had no clue just how extremely bad it would be.
+I’m not even the only girl he has this arrangement with. 
 
-Thankfully I didn't get picked to be in the crew to release it the first time. We didn't expect it to be as bad as it was, so just about everyone outside of the officer didn't take the new stricter rules seriously.
+Sometimes Mark has multiple women over at once. I’ve been around long enough to see dozens of girls cycle through. Each time a new one comes around, Mark tells her the same thing. 
 
-When they attacked us again, it was released like we were told to do. The people of our own crew were the first to suffer the effects of their lack of safety measures. About 10 seconds after release, they started to scream and flail around like they were on fire. Every hole in their clothing it could find, the gas seeped into. Turning skin into blisters and burns. At least they survived for how much that is worth around here.
+“This relationship has one stipulation. One rule that you must follow, no if’s and’s or but’s about it. Under no circumstances should you *ever* go into the basement.” 
 
-One idiot in the group decided that the new gas masks were too uncomfortable so he stuck to his old one despite the warnings. I am sure the only reason the officer didn't beat him into submission is so he could be an example for the others. When he started to scream his lungs out, our officer ordered us to pay attention to what happened to him. He tore his gas mask off.
+That’s it. Just respect his privacy and don’t open the basement door. 
 
-All the soft tissue on his head was melting off. His nose was drooping down and was hanging over where his lips used to be. His eyes were bubbling inside of their sockets. His screaming turned into a gurgle in the span of 20 seconds. When he fully collapsed and started to spasm and convulse on the floor, the officer decided we had learned the lesson. He then caved his skull in with an entrenching tool until he stopped moving.
+Now I’ll admit, I have gotten curious a time or two. I’ve heard some… less than normal sounds coming from down there on a few different occasions. Whimpering, heavy grunts, chair legs scraping against the floor. 
 
-Don't feel too bad for him he was a useless drug addict who had killed his mom before he got here. He got what he deserved, just like all of us will.
+Mark doesn’t acknowledge it. I figured it was none of my business what he was hiding down there. And really, what choice did I have? 
 
-When we release the gas, it finds the lowest elevations in terrains and sticks around for a while. Turning shell craters and trenches into small gas chambers. The people that are stuck in there turn into a slurry of sorts because it's so acidic. Their clothes stick to their bodies. Their skin sloths off their body together with anything else that's soft and squishy in the human body. So you end up looking at this amalgamation of clothing and equipment in a fleshy puddle around a skeleton.
+My parents died in a car wreck when I was freshly eighteen without a penny to their names. All they left me was a house with a $350,000 mortgage and a twenty-three-year-old Ford F-150. I hadn’t even graduated high school yet. 
 
-And trust me you really don't want to step on one of the fresh bodies by accident. Your boot goes straight through them. It feels like stepping in one of those mud puddles that is going to cost you a boot to get out of. And guess what it might cost you a boot to if you haven't tied your laces good enough.
+Needless to say, I came to depend on Mark’s generosity. He had only ever shown me kindness. If he was dabbling in something shady, I didn’t want to know. 
 
-It's even worse when they decided to die on top of something you need. I am so tired of scraping human soup off equipment we need. It's stringy, it's sticky and has all the colours a human body should never have.
+Until last week. That was when I heard a sound from the basement that I couldn’t ignore. 
 
-Well, at least I can't smell it anymore not having a proper working nasal cavity anymore. But from my earlier days when I still had a nose I remember vividly what it smelled like. I used to live around this industrial area that had a huge chicken slaughterhouse in the middle. During hot days of summer, the horrible smell of blood and chicken shit would hang around that area for months. Now mix in that smell with someone holding vinegar directly under your nose and you get the idea of what it smells like here.
+“Kayla, I’m going to shower. Be out in a sec.” Mark shot me a smile.
 
-You cant even throw up properly if you want to because you don't want to open your mouth in fear of the smell going into your mouth and then having to taste it. Thank god I decided to rather throw up in my mouth and swallow it back down. Because some of the others that didn't keep their mouths closed can't taste anything and their tongues are covered in random spots of scar tissue.
+“Have fun!” I said as he disappeared behind the elevator doors.
 
-But the bodies don't really decay at all. Since the gas kills just about anything that is alive. That means thankfully no rats, insects or other pests to deal with. What's not so great is that all the old shell craters are filled with a human slurry that reaches up to your knees if you are lucky.
+I heard the faint noise of the shower turning on moments later. Seconds afterward, I heard something else. Something that made my blood run cold. 
 
-New cannon fodder gets the honorable task of sifting through the human slurry for anything useful like weapons, etc. When I think about it long enough, I can still feel what it's like to do this amazing task. It's basically like reaching deep into mud and taking any solid object out until it's something useful instead of human bones.  
-After a bit you can feel by shape alone that you are once again holding onto someone's ribs.
+“Help.” 
 
-Our outpost is so heavily understaffed it might as well be empty. "Outpost" fancy way to describe a muddy trench that connects 3 bunkers together. Of those 3 bunkers, only 1 hasn't collapsed yet. I think you can figure out from where I am typing this.
+I immediately stopped scrolling on my phone. My eyes grew wide as dinner plates. I strained my ears, praying that it was somehow my mind playing tricks. 
 
-We haven't called in to command for a week now since our radioman is probably dissolving in a puddle somewhere together with our officer. Can't even use the contraband phone that I found in the human slurry in a random shell crater. Since there is not really any reception after months of bombardment. Thankfully the phone at least made me able to type this out so I have something to distract myself with.
+“Help. Please.” 
 
-But Command not hearing from us means that our barrier troops meant to keep us in place should show up soon to discipline and/or kill us. I wish them good luck since they are going to have to kill our not-so-friendly neighbours outside the bunker first.
+I heard it clear as day. The voice of a little girl. 
 
-They told me that if I lasted for 4 months, my prison sentence would be dropped. I already knew that was a lie there was no way it would be that short.
+I shot off the couch and started toward where I’d heard the sound. “Hello? Where are you?” 
 
-I figured if I lasted 1 year they might actually grant me my freedom. It has been at least 26 months at this point. I have been lucky or unlucky enough to last this long with a handful of others. Most cannon fodder they bring in lasts a couple of hours at most.
+I hoped beyond all hope that the response wouldn’t come from behind that door. But something in me knew that it would. 
 
-Speaking of a couple of hours, that's probably the amount of time we have left at this point. Our chemical weapon storage is in one of the 2 collapsed bunkers. I think that once our friends outside figure that out, they will give us a taste of our own medicine.
+“Help me, please! It’s so dark.” 
 
-I intend to blow my brains out before I turn into a human puddle. And looking around me, I am sure the rest of us that are left are thinking the same. We don't deserve to leave this place.
+A knot twisted in my gut. My intuition was correct. The little girl’s voice was coming from behind the basement door. 
 
-For whoever is reading this. I hoped it sucked to get the phone out of the human soup that is my body.
+I hesitated. “Who are you? Why are you in there?” 
+
+“Please, lady. Let me out. Mr. Mark trapped me in here. I’m so scared…” 
+
+The fear in her voice broke my heart. I reached for the doorknob without thinking. Before I knew it, the door had been flung open. 
+
+My jaw fell to the floor. I wasn’t looking at a scared little girl. What I saw instead was a pair of red, glowing eyes in the midst of the inky black. 
+
+A low, rough chuckle emitted from the darkness. It rang in my ears, vibrating through my head. 
+
+When it died down, it was as if I could *feel* whatever was down there smiling at me. It made my skin crawl - like spiders skittering across my flesh. 
+
+I was frozen with fear. 
+
+And then it spoke. 
+
+“Naughty girl. You should have followed the rules. Now you belong to me.” 
+
+I was suddenly thrown backward. Cool air rushed into my mouth and nose. For a moment, I thought I was having the life sucked out of me. Then it stopped. 
+
+I sat there on the floor, hyperventilating, the gaping maw of the basement staring into me. 
+
+Once I got my bearings, I glanced up. 
+
+Mark was standing there, towel wrapped around his waist. His face was pale as a ghost. He looked at me then back to the open door. He only muttered two words. 
+
+“Get out.” 
+
+It’s been six days since then. Mark has completely cut me off. He gave no explanation. The second I crossed the threshold of his property, he blocked me on everything. 
+
+But that’s not the worst part.
+
+I’ve been experiencing blackouts ever since. Parts of my memory that are just… blank. These aren’t just innocent mental lapses. 
+
+Three days ago, I woke up clutching a knife to my throat. 
+
+Yesterday, I found myself staring down the barrel of a handgun.
+
+Today, I came to with a lit match in my hand. 
+
+I’m scared. So scared. The thing in the basement… I think it’s inside me. 
+
+I don’t know who to turn to. I have no family. No friends that I can rely on. I’m all alone. 
+
+And that’s *exactly* what [it wants.](https://www.reddit.com/r/HorrorJunkie123/) 
