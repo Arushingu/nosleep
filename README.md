@@ -1,149 +1,128 @@
-# The mall where I work is slowly becoming obsolete, but I think something underneath it is very much alive [Part 1]
+# I homeschool my child, and today we got a new student.
+I can’t leave the house. I’ve tried the front door, the back, the windows. They all open to the same grey field I’ve never seen before, stretching out under a sky with far too many moons. I don’t know if this is a warning or a confession or just the last coherent thing I’ll ever write, but someone needs to know what happens to us.
 
+**8:05 AM – Bellringer**
 
-My job the past year has been my one constant. Now you may not have heard of Ulric’s pretzels. Not a ton of people have. We aren’t a very big chain and well… we happen to be in the process of going out of business. 
+I walked into the kitchen this morning to start the school day. Ximena was already at the table, spooning cereal with the careful concentration of a child who hasn’t yet decided if the morning is gonna be good or bad. She was sat next to a boy I don’t think I’ve seen before.
 
-But I’m getting ahead of myself. You know how malls have a certain comradery to them? Well, maybe you don’t. Maybe you’re too young to remember or simply never had the experience of being set free in the giant playground of glass and linoleum by your aggravated parents on a Saturday evening with a wad of cash and two friends laughing like feral hyenas at your side. 
+He looked about her age—nine—dressed in a grey button-up shirt, dapper and old-fashioned. The fabric looked textured wrong—like it had been woven from old photographs, sepia and shiny and fragile. His eyes were wide, owlish, and terribly still. He smiled at me with polite expectations, like a student waits for a teacher in the midst of a chaotic classroom.
 
-Or maybe you’ve never worked at a food court and had the luxury of high fiving your favorite Orange Julius worker and spending your 15% off mall discount on a post-shift treat so tantalizing that you nearly fall over after hours in a hot kitchen. 
+My brain ran through the list: *Did I forget a playdate? Did Ximena let someone in? Whose kid is this?* I checked the back door. Locked. Deadbolt. I checked the driveway camera on my phone. The playback showed the kitchen empty all night, then Ximena alone at the table, spooning cereal into her mouth with no one beside her. Then, almost to the second I walked down the stairs, I blinked and he was with her at the table.
 
-I don’t know your life. What I do know is that my city has one of the best malls I’ve ever encountered. Or moreso, one of the only malls I’ve ever been to. Not having ventured much outside of my own neighborhood, I don't have much to compare it to. Still, as far as jobs go, I’ve had much worse. 
+“Ximena…” I said, aiming for calm, “who’s your friend?”
 
-What a lot of people don’t realize is that a mall can be a leg of a community. A strange type of third space that you only start to notice if you’re there more than once a week. Early in the morning, the mall walkers start their trek through the place like they’re on a mission. 
+She didn’t look up as she giggled. “That’s Amodeus, Mom. You remember him!”
 
-It’s often the older people who’ve made it their routine exercise regimen. Or the unhoused that need a place to cool off from the summer heat. Occasionally you see habitual shoppers carting bags around in full suitcases. As mall workers, we see all types of people in the duration of a day.
+The boy inclined his head. He didn’t speak. He just watched me, that patient smile never reaching his eyes. And something in my chest flickered—not fear, not yet—but recognition. Maybe I did know him.
 
-At first, my smiles and waves were more compulsory. It was my job to be friendly and give out samples. But the more time I spent there, I started to notice myself genuinely looking forward to their company. Everyone is a moving part. A cog in a perfect Truman show-esque machine that seems to loop every half hour or so. 
+I made coffee and we started the day.
 
-I’d start to think, oop there’s lady-with-perm again, arguing with her husband next to the department store. In about fifteen minutes we’ll see the old man with the Yankees cap on his third lap of the day and he’ll smile and wave and make a joke about how if he worked here he’d be eating the cheese right from the nozzle. 
+**9:00 AM – Mathematics**
 
-Don’t get me wrong, the conversations aren’t always so predictable. I’ve had a middle aged dude rant to me about the history of Kaiju in film, helped a teen girl plan her promposal to a boy she was pining over and even wound up consoling a teary-eyed woman about her divorce. 
+Fractions. Ximena hates fractions. She was chewing on her eraser, staring at ¾ + ¼ like it called her hair ratty. Amodeus reached over with a crayon—burnt sienna, I don’t know why I remembered that—and started correcting her work.
 
-So when I first met Hope, I wasn’t at all phased by how she turned the conversation existential. I’d assumed this came with the territory given my boss was a part of a semi-popular church and we had a lot of regulars who happened to have some flavor of religious. 
+I leaned in to ask him not to write on her paper, to ask him where his parents were and where he lived.
 
-The first thing I noticed about her was that she seemed genuinely untroubled. Not in the smile-at-customer-service worker, kneejerk way. But another level of happy. She had this casual ease about her. It made me feel like somehow, if I just listened to her, everything was going to be okay. 
+But he hadn’t just solved the addition. The page was covered in geometry that folded into themselves at angles my eyes couldn’t track. When I blinked, the lines rippled. A headache started behind my left eye, a low thrum like a second heartbeat.
 
-“Have you been curious about His word?” She asked me. I paused, trying to think of how to react. I knew what she was likely implying, given that my parents had been religious. But I’d fallen out of it due to time constraints in college. 
+“Honey,” I said, “what is this?”
 
-I wasn’t necessarily uninterested. I only hadn’t thought about it in any substantial way. 
+She smiled. “Amodeus says numbers are just a lie to keep the world quiet. He says you can tell the truth if you draw the truth.”
 
-Though I had often wondered what that meant for me. If the very banal life I was living, having just left a long-term relationship and living alone, (only entertainment the kooky customers that stopped by the storefront on occasion) meant that I was subjecting myself to a bleak afterlife with not much to show for my actual, current life. 
+I looked over to Amodeus and saw him writing on his own worksheet now, doing simple math to add the fractions, as though nothing had happened.
 
-I told her that in all honesty, it depended on the day. That I *did* believe in Him but simply didn’t have reason to be consistent about it. She seemed genuinely content with my honesty, chewing on her pretzel casually
+I don’t know what got into me. I just… tore the paper into pieces. They fluttered to the floor, and when they landed, a new glyph was perfectly reassembled among the scraps, whole and quiet and humming at a frequency I felt in my nostrils.
 
-Nothing about her seemed too preachy. Actually, she really didn’t need to be. For some reason I didn’t want her to leave. Not only because of this subdued allure she exuded, but because my shifts tended to be so dull and lonely I’d have done anything to break them up. Just to talk to someone. Anyone.
+**10:30 AM – History**
 
-As we wrapped up our conversation, we exchanged numbers. I felt strange about the whole thing. But she explained to me that she worked at the shop across the way, selling candles and room fresheners. Something about that felt comforting. A fellow employee that was probably just as eager for friends as I was.
+I pulled out the textbook. Something safe. Dates, dead civilizations, the comforting dust of things that no longer touch us.
 
-She slipped me a coupon for 50% off tea lights. On the back she’d written,
+We were talking about the Celts this week. I pointed to a photograph of a reconstructed chieftain. Amodeus made a noise. I thought he had shat himself at first, not completely out of the ordinary for this age, I guess, and if he was non-verbal or on the spectrum, I didn’t want to act too harshly. Then Amodeus pointed at the picture, and his noise became a low, guttural groan that vibrated the water glass on the table. Through his groans, he wrote on a piece of paper: A script that moved, shimmering, sinking into the page like ink made of fever heat. It was Nahuatl, words I’d forgotten I knew from my childhood:
 
-*Mandy,* 
+*ISTLI TLEN ATID.*
 
-*Trust that he will not forsake you.*
+*“LIE OF ATID.”*
 
-The sentiment unsettled me a bit. Did I come off as some pitifully lonely pretzel girl that needed a stranger’s reassurance? 
+A memory flooded in like a tongue in an unwanted kiss. I saw a sky full of stars. A sound like a thousand drums beating on wet earth. A shape above a horizon of trees and rivers—a shape coiling, vast, like a bundle of serpents wearing the sun as a mask. And a voice, vast and indifferent, asking us to forget.
 
-What bothered me most was that I hadn’t offered my name. Only my phone number on a bit of scrap paper. I hadn’t even worn my nametag in months because I had forgotten it a few times and the boss didn’t seem to care. It wasn’t like it would have been hard to find. But I suddenly found myself feeling too… *seen.* 
+Ximena’s singsong voice cut through the memory, snapping me back to reality with the calm of a nursery rhyme: “Amodeus says we forgot the old ones because looking at them made our eyes melt. He’s helping me remember without melting.”
 
-After catching glimpses of her note near the register for the next few hours, I tore the thing up. 
+I shut the textbook, took a deep breath, and composed myself. *I’m hallucinating, a side effect of the new meds, maybe.* When I opened the book again, there was a new chapter at the back. The title shimmered like that same script: *THE PRE-HISTORY OF DISPLACEMENT.* I didn’t read the rest. I was afraid I already knew what it said.
 
-Every so often after that I would catch Hope staring at me. It wasn’t threatening or anything like that. It was more like she was… studying me. Like now we had some kind of connection that made me important in her eyes. 
+**1:00 PM – Biology**
 
-To add to my stress, the shop was getting a bit destitute. They were cutting hours to the point where I was digging into my meager savings just to pay rent. When I did come in, I was working on my own, eyes bloodshot from scrolling on indeed the whole night previous. 
+Lunch was quiet. Amodeus didn’t eat. He didn’t blink. He watched my jaw move, my throat swallow, my fingers tear bread. He was taking notes with his eyes. When I asked if he wanted a sandwich like Ximena, he just smiled and shook his head.
 
-But who was I kidding? This job was all I had. I’d never gone to college and the idea of working anywhere else felt wrong to me now. Like leaving a little piece of me behind. I know that sounds dumb, but when most of your friends leave town, you start to rely on the few things that you’re left behind with.
+I pinned up the anatomy poster for science next. The human body, bright and clean, systems mapped in friendly colors. I grabbed some butcher paper and asked Ximena to draw herself. Amodeus drew too.
 
-Even when I wasn’t seeing Hope at the sales counter, I would see her in the reflections of the glass doors or out of the corner of my eye I would catch a swath of curly hair, just out of sight. 
+His self-portrait was a child’s stick figure covering the entire four feet of paper, but where the stick of a torso was, he began to cover it with a swirling galaxy—pinprick stars, dark fibrous voids, slow-moving nebulae the color of bruises and autumn. He labeled the parts with a pencil, his handwriting was perfect, better than cursive. The words burned into my mind: *Hunger Node. Emotional Repository. Singularity Gland.*
 
-I think that’s also when the humming started. It was as if it was coming from right behind my eyes. 
+He tapped the Emotional Repository and pointed directly at me.
 
-I started thinking maybe it was the building doing construction somewhere, shaking the walls. But it wasn’t mechanical. I googled tinnitus on my break but it didn’t quite match up with how other people describe it. Almost a lyrical hum that toyed at my attention. 
+Ximena’s didn’t look up from her blocky self-portrait: “He says your bodies are just cocoons for a very specific kind of life. He wants to know what it feels like when you realize I’m not in mine anymore.”
 
-On Sunday, I saw one of our regulars. But she wasn’t looking so good. 
+I looked at my daughter. For one breath, her skin went translucent. There was a slow-moving light inside her, swirling cold stars where veins should have been. Then she looked up to smile, and she was just Ximena again, chewing on her lip.
 
-Linette had always been a bit on the grunge side. She let her teenage granddaughters add lilac streaks into her grey hair and talked about her high school garage band like they’d been bordering on being the new Kiss. 
+They both giggled like I’d missed a joke. It was a cute giggle. It horrified me.
 
-But she’d always taken good care of herself and held conversations with me on a regular basis. We talked about music and whatever new combination of fry oil and cheese had cropped up at the food court.
+**2:30 PM – Recess**
 
-That day I noticed she was staring into space instead of rattling off her usual order. Or at least I thought she’d been spacing out. I soon noticed it was the reflective wall. 
+I sent them outside. I told myself I needed a moment to think, to breathe, to find a weapon. The truth is I just needed them out of the room.
 
-Beyond that, she looked gaunt. I’d never seen someone lose so much weight in the span of a week. Her skin bunched around her brow bone and cheeks like the jowls of a neglected dog. The darkness under her eyes made them look bruised like she hadn’t been sleeping either. 
+The sun was high, but the shadows were wrong.
 
-I said hello to get her attention and her face snapped towards me, suddenly more aware than I'd been expecting.
+Out the window in the front yard, Amodeus’s shadow stretched to the left. Ximena’s to the right. They held hands in the middle of the yard, playing some version of tag and ring-around-the-rosie, and their shadows merged into a single jagged, multi-limbed, unhuman shape. It raised one long arm and waved at me through the window.
 
-“Oh, honey…” She raised a hand to my face, startling me. “Don’t you want to know what happens after?”
+I ran and dialed 911, keeping my eyes on their childish game above a monstrous shadow. I didn’t even hear the phone ring when the operator’s voice came through calm and sibilant. “The number you have dialed is not observable from this plane. Please do not hang up, and do not try again.”
 
-I froze for a moment, noticing that her hands looked rough and desiccated, like she’d been doing an unholy amount of yard work. I stepped back, letting her hand fall and hit the counter. She didn’t flinch, arms hanging useless by her sides. 
+The line didn’t disconnect. It started humming the same dissonant tune from the math worksheet.
 
-I muttered an apology regardless. She was a nice lady and I hadn’t meant to cause her harm, just to weasel out of her grasp.
+I looked at my phone and found a text:
 
-“After what?” Having had Hope on the brain, I had wondered if maybe she was also trying on some new religious ideology. Not that she seemed to be the type to attend church. But it wasn’t impossible.
+Check your desk.
 
-Linnette mimed some laughter as if she were humoring my feigned ignorance. But I wasn’t feigning anything. She poked a thumb at me as if to say “get a load of this gal” and then simply walked away without buying anything.
+I didn’t have a desk, but I found a Weekly Lesson Plan on the kitchen counter, printed on crisp paper the color of a stormy sky. The letterhead read: *ATTACHMENT ARCHITECTURE.* Below it, a sticky note in my own handwriting: 
 
-The interaction stayed in my head all week on replay. What had she meant? Was it in fact some kind of mall-centric cult that I had missed the memo on? Or was she maybe alluding to the fact that she knew we might go out of business soon?
+*Amodeus is a fast learner. The first stage of his thesis requires complete immersion. You are the control group. Please treat him as any other.*
 
-I kept remembering the feeling of her crusty hand on my face. It was possible that she was just going through something mentally. But the timing of both interactions couldn’t have been a coincidence.
+When I called the kids in, Amodeus gave Ximena a stiff hug, smoothed his grey shirt, and walked out the back door into a sunset that had no business arriving that early. I locked the door behind him. It didn’t feel like it mattered.
 
-So now we come to tonight. It’s a Wednesday and of course as usual it's pretty slow. But it’s always slow on weekdays and frankly I don’t mind. I usually catch up on reading or draw in the margins of the employee manual. 
+**Late Night**
 
-But today, I got a call from my boss. The man was in tears explaining how we most likely will only last another week or so. That I should make other preparations for work. It doesn’t surprise me enough to hit me right in the moment. 
+Every question I asked Ximena received a giggle and a complacent “You already know that, mama!” By the sixth try and lack of new info, I chalked it up to my own hysterics.
 
-It took a couple of hours to really sink in. But as I’m brushing butter and salt on what will most likely be some of my last pretzel tots, I get a pang of anxiety in my gut. No, I was not surprised. But what am I going to do without this?
+That night, I couldn’t sleep. Something was gnawing at me, like a splinter of recognition I couldn’t work free. I blinked and found myself digging through the hall closet, past old coats and half-finished art projects, until I found a box of notebooks from when Ximena was small.
 
-*Don’t you want to know what happens after?*
+I shuffled through birth records, Build-a-Bear certificates, and old photos of a family of three I refused to look at.
 
-The words have been echoing through my synapses. They’re making a mockery of me. Of this life I’ve built.
+Then, under a note from her daycare and the birthday cards from her grandparents, I found a story I wrote for her when she was five, during a long winter when I felt so lonely I thought I might disappear. A story about a boy made of starlight who came from a faraway land to learn about love. I drew pictures. I gave him a name.
 
-I’ve been realizing that it’s very possible that the reason I haven’t found a new job yet is because I don’t want one. 
+*Gottlieb*.
 
-Anyway, I was closing up today which meant that by the time I left the mall it was dark and empty. The humming became even more intense now and I don’t know what could possibly be making the sound now that all of the bustle is gone. 
+The drawing was a little boy with wide eyes and a kind smile. I remembered Ximena and I worked together, cutting up old pictures to make his clothes, blurry misclicks we’d forgotten to throw away from the developed films.
 
-A stress reaction. That’s all.
+**3:45 AM**
 
-When I walked out carrying the day’s trash thrown over my shoulder, the only sound was the night cleaner guy across the way wiping down the windows. An ominous squeak, woosh. It gave me a chill anyway. Call me jittery but until you’ve worked a closing shift in the echoing maw of an empty mall, you have no idea what it’s like.
+I walked into the kitchen on legs I couldn’t feel. On the fridge, held by a ladybug magnet, was an envelope. The paper felt like cold skin.
 
-Next, I entered the service hallway. This is something I would immediately regret. But the alternative was venturing down an alley to get to the outside dumpster and I was not prepared nor in the mood for the anxiety of all that.
+Inside, typed in a font that seemed to breathe under the kitchen light:
 
-The emergency lights did not illuminate enough to ease my jitters either, but that was to be expected. 
+*To the Guardian of the Primary Subject:*
 
-I shuffled through the darkness. The place was too quiet. Besides the steady humming that seemed to get louder every minute. 
+*Amodeus has completed his initial practicum in Emotional and Dimensional Fostering. Your daughter has been a wonderful conduit for the concept of “familial bond.” He feels he fully comprehends dependency and is ready for his final lesson: Consumption of Grief at the Point of Material Dissolution.*
 
-I curse my lack of foresight here, because I could’ve gotten out my phone flashlight. But I wanted to get out as quick as possible and I knew that digging into my backpack would only hold me back. 
+*Please prepare tomorrow’s materials: one memory of holding Ximena as a baby, one warm hug on a foggy day, and one scream. The scream may be provided should one prove unavailable.*
 
-I saw the light at the end where someone had propped the door open to the exit. But I let that make me cocky. Or maybe that had been the plan for me all along.
+*—The Teaching Collective*
 
-My foot caught on a sudden nothing and I fell through the void I now realize must’ve been an open vent or bulkhead or something. Before I could process the lurch in my stomach from the fall I hit a new patch of ground. 
+Then from Ximena’s room, I heard a soft, conversational voice. I moved down the hallway, my bare feet silent on the old wood, gripping an old cabinet handle I’d been meaning to toss out. Ximena’s door was slightly ajar.
 
-My knee made a cracking sound as it met the concrete and my eyes watered with the pain. The contents of the trash bag had belched open on top of me and I could feel salt and grease already starting to mingle with my hair. 
+Amodeus was in there, sat on the edge of her bed, his back to me, his grey shirt blending into the shadows. Ximena was sitting up, her face calm, her voice as sweet and ordinary as a child discussing a cartoon.
 
-I was about to cut my losses, leave the bag and run up the closest flight of stairs out of the place when I saw it. The altar. 
+“It feels warm,” she said. “Like a blanket. Like when you’re falling asleep and you know someone is holding you.”
 
-Candlelight illuminated what had to be at least ten feet of store items stacked into a tower, glistening with some kind of tar-colored viscous goo. I could make out brief glimpses of breakfast cereals, designer bags, the latest trendy keychain that’d been selling at a nearby kiosk, body oils, soaps, candles. 
+Amodeus’s voice—clear, resonant, utterly polite—came for the first time, like the voice of a child who’d seen too much to be called young. “And what about forgetting?”
 
-I crouched there, at first more perplexed and mesmerized by the glowing beacon than afraid. It started to concern me, actually. The lack of urgency when I looked at it. All my panic melting away. But then I saw something move at the foot of the tower. 
+I felt a sudden cold tug behind my breastbone. A memory of Ximena at four months old, her first real laugh, a hiccupping little sound she made when I blew raspberries on her tummy. I felt it slip, like a bead sliding off a string. I reached for the sound, the shape of it, and there was nothing. Just a smooth, blank space where her laugh used to be.
 
-A figure appeared to have been kneeling and praying. Not just any figure, but Hope. She had turned her eyes to me. They were glassy and I could see tears shine on her face. I knew they weren’t tears of sadness but… something else. Devotion? 
-
-She gave me a hollow, sickening smile.
-
-Her hands were still clasped at the altar and I gaped in horror as I saw that one of them was nailed down to the side of the plastic base of the monstrosity. Blackened blood pooled out from her palm. 
-
-I realized finally what it was that was housing the tower’s collection. Our mall’s old wishing well. The one I’d tossed pennies in as a child. 
-
-It’s needless to say I got out of there fast. Despite hearing the sing-song calls of Hope trying to lure me back. “MandyMandyMaaandy” I heard not far behind me. The fact that she must have literally ripped herself away to follow me was more than disconcerting. 
-
-But eventually, like drains leading to the ocean, apparently all tunnels in the mall eventually lead to an exit when you’re frantic and running from an unhinged sales lady. 
-
-So I'm in my car now, after having sprinted to the back of the parking lot because even the parking is a struggle here. I’m wondering what the hell I should do besides writing this. 
-
-I know I should probably quit, but with Ulric’s going under, I feel awful leaving the poor guy at his weakest point. 
-
-Besides, I would be lying if I said I wasn’t morbidly curious about what exactly is happening here. These people are my people and I don’t want to abandon them without an explanation.
-
-Still, I can't help feeling a sense of dread wondering what it is that they are praying to. Who or what is taking their offerings.
-
-Like I said, the mall is all I have at this point. So I might as well stick around and find out.
-
-(To be continued)
-
+Please, if anyone knows what this is, who they are— please help.
