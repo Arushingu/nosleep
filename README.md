@@ -1,464 +1,54 @@
-# The Night I Woke Up and Couldn't Move: The First Time I Met Her
-I've heard stories about sleep paralysis for as long as I can remember.
+# I'd always been afraid of the dentist, and now my teeth feel strange...
+All of my life I've been afraid of the dentist. I can't point to one singular event that made me have this extreme fear, but I know my mother had to wrestle me through the door of the dentist's office kicking and screaming when I was younger and to this day I avoid it at all costs. As a result of this my teeth aren't in the best shape, but that's never affected me too much- my teeth are all a pale, sickly yellow, misshapen and pointing in all directions.
 
-People waking up unable to move.
+However, recently, I've been noticing my teeth have taken a turn for the worse.
 
-One friend once told me that during an episode, he could see himself floating above his own body, looking down at himself lying in bed.
+I'd gotten home from work, threw off my jacket and shoes and made myself dinner. My teeth had been killing me all day and I couldn't eat my lunch due to the pain. I knew I should try and go to the dentist, but what was the point now? My teeth were messed up as it is, nothing they could do now. I pushed the thought and the accompanying anxiety down and made myself dinner. While eating dinner- a meager meal of ramen and stale white bread- I bit down on my sandwich absentmindedly while focusing on my phone. My mouth clamped down on the bread but all I felt was my teeth softly grazing the sides as I pulled it out of my mouth. I put my phone down and frowned. Was I having a stroke? I tried again, faster this time, roughly shoving the sandwich in my mouth and biting down as hard as I could- pain bloomed between my gums and all I could do was squeeze the sandwich between my teeth. I looked down at the bread. There weren't any *usual* teeth marks, rather it looked like someone had pushed their finger down on to the bread in a large semi circle- smooth, rounded marks where my teeth should have been. My breathing quickened- a sticky panic settled high in my chest as I rushed to the bathroom.
 
-I always thought those stories were terrifying.
+Sweat beaded down my forehead as I opened my mouth. I fumbled with my phone, it almost slipping out of my grip; with my phone torch illuminating the inside, I could see my teeth properly.
 
-I never expected to experience something like that myself.
+The normal hard bone had been replaced with soft, squishy dark brown epidermis. Every tooth, top to bottom, felt spongy to the touch- like I was pressing my fingers together. Each tooth was covered in a dark, sticky film and I could feel some kind of warm pulp in the liquid below the surface as I gently touched my finger to my back tooth. The gums beside them were angry and inflamed which made each tooth throb painfully, as if I had bruised a finger or a toe.
 
-At the time, I thought this was my first experience with sleep paralysis.
+I almost passed out from the shock. I sat on my bathroom floor running my tongue over my 'teeth', feeling every wrinkle and fold between them, feeling them move against each other with every touch. In my stupor, I sent a dazed message to my mother. Switching my phone off, I placed it face down on my sink and went to lie in bed. My tongue was obsessively going over every tooth, saliva pooling between them- the enzymes causing my 'teeth' to throb even more, as if every one of them had their own heartbeat. Liquid coursed inside the membranes, like water balloons full to the brim that sloshed with my every movement. After a while of tossing and turning I finally passed out.
 
-Years later, I realized it wasn't.
+In the middle of the night I woke up with a shock. My body stained the sheets with sweat and I groggily sat up, causing a dart of pain to shoot over my jaw. I groaned and held my jaw as it twitched. My mind instantly went to my teeth. My tongue ran over my back teeth and felt a small tear in one of them- not enough to cause a hole but small enough to be noticeable. I gently pushed my tongue against it but felt the tooth widen in size, epidermis stretching painfully as it swelled larger. At this point I had to keep my mouth open as closing my jaw even slightly would cause a horrible pressure against my swollen tooth. It had grown so far that it was touching the roof of my mouth even with my jaw open. The smell coming from these 'teeth' was nauseating- a festering necrotic stench that left my eyes watering as I exhaled hot, damp air and sprayed brown drool over my bedsheets. I was shivering; hot and cold at the same time and had a head full of cotton wool. Every movement felt like I was underwater. I thought of my mom- maybe I should call her? I reached for the side of my bed but all I did was pat the wood. Of course my phone was still in the bathroom. Despite the pain in my head, I stood up slowly, blearily; and took a shaking step towards my bathroom.
 
-But that's another story.
+I'd done this thousands of times before; it wasn't a long walk, I counted the steps. 24 of them to be exact. Nothing I hadn't done before.
 
-This is the night I met **her**.
+1, 2, 3...
 
-I was in my mid-twenties.
+My ankles shuddered underneath me.
 
-I don't remember how my dream started.
+10, 11, 12...
 
-I remember being somewhere else, watching some kind of event unfold. Then, without any transition, I was suddenly standing inside a cave.
+Bolts of pain raced up and down my neck, settling as a consistent agony underneath my skin.
 
-It was completely dark.
+15, 16, 17...
 
-Not dim.
+A particularly sharp pain caused me to clench my jaws shut. *Hard*.
 
-Not nighttime-dark.
+I felt a gush of sour, dank liquid fill my mouth. Instantly my body rejected this and it spurted out of my mouth and nose fast enough to splash onto the carpet below. It steamed as it hit the ground. The pain in my mouth reached a blinding high and my nostrils burned from the acidity of whatever it was I'd just vomited. I stood there gasping, staring at the dark brown stain below me and dry heaved from the pain and disgust. As I went to close my mouth, it felt like the pain had almost... gone? However, to my horror, I felt my gums brush together. A shuffling limp to the bathroom later and I discovered that all that was left of my teeth were soft pits in my gums where my teeth should have been. Those liquid sacs were gone, and as I checked the stain again, were ejected once they had popped alongside with the liquid inside of them. Leathery skin pierced into thin chunks that now curled onto the fabric of my carpet. The holes still oozed that dark liquid, and it drooled out of my mouth onto my t-shirt as it filled my mouth once more.
 
-There was absolutely nothing around me.
+My phone buzzed.
 
-I couldn't see the walls. I couldn't see the floor. I could barely see my own hands.
+I had totally forgotten about my mom. She'd left me a voice message the night before.
 
-But far ahead, there was a tiny light.
+I sat on the floor with my head in my hands and clicked play.
 
-I started walking toward it.
+"Hey darling, I just heard your message, I hope you're alright. If you need me I'll come over- I've had issues with my teeth as well, you know about me and my dentures! I know just what it's like. Anyway, thinking of you, love you so much!"
 
-The light became brighter as I approached, and eventually I realized it was a fire.
+I took my hands off my eyes, still feeling the thick liquid drip from my mouth. I shuffled back to my bed, ignoring the stain and the drips leading to and from the bathroom; I just thought some sleep might help me wake up from whatever horrible dream I was stuck in. I slept for what felt like forever, gums getting increasingly more painful and inflamed, from the near constant poking and prodding from my tongue. I woke up to my jaw hanging slack, my swollen tongue turning a deep, sickly grey and lolling out of my mouth.
 
-A bonfire.
+I raised a finger to rub my sore jaws when I felt something hard protruding through my fingertip. It felt strange and dimpled, like a raised wart- I looked at my hand and saw this protrusion was on all of my fingers, like whiteheads dotting each finger and palm. Hands shaking, the protrusion grew, slowly; pressing beneath the skin, threatening to break the surface. I stood up from my bed to see better in the light when it felt like I was standing on broken glass. My shaking legs dropped me to the ground and I saw blood seeping into the cotton of my socks. I ripped the socks off my feet and screamed as hard, white protrusions broke through the soles of my feet, tearing the skin around them and gushing blood onto the floor.
 
-It was sitting in the middle of a large cavern.
+My hands were similar; dimpled white bone pushing through my palm and fingertips at awkward, jagged angles, injuries weeping blood onto the floor. My mouth agape, I wailed in agony spraying brown pus on to my hands. My tears clouded my vision turning everything a pallid shade of brown. Roughly wiping my eyes with the back of my bloody hand, I saw that my tears had turned the same colour as the saliva currently pouring out of my inflamed gums. I had to crawl to the bathroom, dragging my heavy body on my hands and knees- every push of my had was excruciating as the floor pushed the new bone in my fingers back in and out.
 
-There were four paths around it—one going left, one going right, one continuing straight ahead, and the path behind me that I had just come through.
+As I reached the bathroom, collapsing in a heap underneath the sink, a terrified panic spread fast across my body. Something hard was pushing against my tear ducts. I cried and cried as that same pale bone pushed through the tiny duct, propping my eyelid open as it twitched frantically trying to blink away whatever was blocking the tear duct. More tears poured out of my eye, sputtering around the blockage, covering my face in a drying brown film. It squeezed my eye and pushed my cornea to the side to where I couldn't move my eye anymore. My ocular nerves snapped like tight strings as my eye was squeezed to the breaking point. As it grew, so did the pressure in my eye; tighter and tighter, until...
 
-Then I saw someone beside the fire.
+My eye popped, leaking reddish jelly-like fluid down my already snotty face.
 
-She was squatting.
+Covered in drying blood, vomit, fluid and brain matter, I raised myself up slowly to look in the mirror.
 
-At first, I couldn't tell whether she was a child or an old woman.
+I knew exactly what was growing out of my body but didn't have the strength to fully believe it.
 
-Her hair was long, black, tangled, and completely wild. It hung around her face and shoulders in thick, filthy strands.
-
-She was shaking.
-
-Not trembling from fear.
-
-Her entire body seemed to twitch as she rocked back and forth, her head moving from side to side.
-
-And she was making a sound.
-
-A low growl.
-
-I wasn't scared yet.
-
-I remember that clearly.
-
-I was more confused than anything.
-
-Then I realized she was eating something.
-
-I took another step closer.
-
-And another.
-
-That's when I saw it.
-
-A leg.
-
-A human leg.
-
-She was crouched over it, tearing pieces of flesh away with her teeth.
-
-Blood covered her mouth.
-
-She kept chewing.
-
-I froze.
-
-I was only a few feet away from her.
-
-The problem was that the path I needed to take went directly past her.
-
-There was nowhere else to go.
-
-So I started moving sideways.
-
-Slowly.
-
-I kept my eyes on her.
-
-Her hair was hanging over her face, but I could see her features now.
-
-Her skin was unnaturally pale, almost gray.
-
-Her face looked old and decayed, but her body was tiny.
-
-Her eyes were dark and sunken, surrounded by deep shadows.
-
-And her mouth—
-
-Her mouth was horrifying.
-
-It was stretched unnaturally wide, with dark, uneven teeth exposed beneath blood-covered lips.
-
-She continued eating.
-
-And growling.
-
-I kept moving.
-
-One step.
-
-Then another.
-
-I was almost past her.
-
-Then she stopped.
-
-Her chewing stopped.
-
-Her head slowly lifted.
-
-I didn't wait to find out what she was going to do.
-
-I ran.
-
-I ran straight into the darkness.
-
-I didn't know where I was going.
-
-I couldn't see anything.
-
-All I could hear was my breathing.
-
-And somewhere in the darkness—
-
-*Drip.Drip*
-
-Water.
-
-Then I heard her.
-
-That growling.
-
-Behind me.
-
-At first, it was distant.
-
-Then it got closer.
-
-I ran faster.
-
-The sound followed me.
-
-Closer.
-
-I could hear her breathing now.
-
-I could feel something behind me.
-
-I closed my eyes.
-
-And then I stumbled.
-
-I hit the ground.
-
-When I opened my eyes, she was on top of me.
-
-She grabbed my left arm.
-
-I screamed.
-
-I tried to pull away.
-
-She was unbelievably strong for something so small.
-
-Her face came toward mine.
-
-I could smell blood.
-
-Then she sank her teeth into my arm.
-
-The pain was immediate.
-
-I screamed as loud as I could.
-
-And then—
-
-I woke up.
-
-I was in my bedroom.
-
-For a moment, I didn't understand where I was.
-
-My room was lit.
-
-I never sleep with the lights off. There are reasons for that, but that's another story.
-
-I could see everything.
-
-My computer.
-
-The furniture.
-
-The walls.
-
-My daughter sleeping beside me.
-
-She was about six years old at the time.
-
-Everything looked completely normal.
-
-Then I tried to move.
-
-Nothing happened.
-
-I couldn't lift my arms.
-
-I couldn't move my legs.
-
-I couldn't sit up.
-
-I couldn't even turn my head.
-
-I could move my eyes, though.
-
-And that's when I saw her.
-
-She was on my left side.
-
-The same woman.
-
-The same tiny body.
-
-The same long, tangled hair.
-
-The same pale face.
-
-She was standing beside my bed.
-
-She had my left arm in her hands.
-
-**And she was eating it.**
-
-I could see the blood.
-
-I could see her teeth sinking into my skin.
-
-I could see her tearing into my flesh.
-
-I felt the pain.
-
-It wasn't a dream anymore.
-
-At least, it didn't feel like one.
-
-I tried to scream.
-
-Nothing came out.
-
-I tried to move my arm.
-
-Nothing.
-
-She bit down again.
-
-I felt it.
-
-I felt the pressure of her teeth.
-
-I felt the pain shoot through my arm.
-
-And all I could do was watch.
-
-I started crying.
-
-My daughter was lying only a few feet away from me, completely asleep.
-
-I wanted to reach for her.
-
-I couldn't.
-
-I remember thinking:
-
-*Am I dying?*
-
-Then I remembered my friend.
-
-He had told me that when he experienced sleep paralysis, he would concentrate on moving his toes.
-
-So I tried.
-
-I focused everything I had on my feet.
-
-*Move.*
-
-Nothing.
-
-I tried again.
-
-*Move.*
-
-A tiny twitch.
-
-Then another.
-
-My body slowly started responding.
-
-The woman's grip seemed to loosen.
-
-I could move my toes.
-
-Then my foot.
-
-Then my leg.
-
-I pushed with everything I had.
-
-And suddenly—
-
-I sat upright.
-
-I was free.
-
-I was drenched in sweat.
-
-My heart was pounding so hard that I could hear it.
-
-I was gasping for air.
-
-I immediately looked at my arm.
-
-There was no blood.
-
-No wound.
-
-No bite mark.
-
-Nothing.
-
-But my arm hurt.
-
-Not a little.
-
-It genuinely hurt.
-
-The exact spot where she had bitten me in the dream was throbbing.
-
-I touched it.
-
-There was nothing there.
-
-I looked at the clock.
-
-**3:00 AM.**
-
-I didn't sleep again that night.
-
-I stayed awake until morning.
-
-And for days afterward, I was afraid to close my eyes.
-
-I told my mother what happened.
-
-I described the woman to her as best as I could.
-
-At the time, I simply called her **the Old Hag.**
-
-I didn't know that name had any connection to anything.
-
-I hadn't been watching videos about sleep paralysis.
-
-I had never seen an image of her.
-
-I had no explanation for what happened.
-
-Years later, as the internet became filled with stories about sleep paralysis, I eventually came across descriptions of something called the **Old Hag** or **Night Hag**—a frightening figure people sometimes report seeing during episodes of sleep paralysis.
-
-The descriptions were disturbingly familiar.
-
-But even then, I didn't know what to believe.
-
-Maybe my brain was creating an incredibly vivid hallucination.
-
-Maybe it was sleep paralysis.
-
-Maybe there was another explanation.
-
-I don't know.
-
-What I do know is that I experienced the pain.
-
-I felt her teeth.
-
-I felt her hands gripping my arms.
-
-I remember one dream, years later.
-
-I was walking through a forest, and the only light came from the moon. Then I saw the entrance to a cave.
-
-Even though it was just a dream, I somehow knew she was inside.
-
-**Is that the same cave?**
-
-**I could feel her presence.**
-
-I didn't go near the cave. I avoided it completely.
-
-Then I woke up.
-
-It was only a dream.
-
-**But somehow, I knew she had been there.**
-
-I’ve never shared this story online before.
-
-I’m in my late 30s now, and I’ve always been afraid to tell this story—to share something this personal with complete strangers. I always wondered if talking about it might somehow affect someone else.
-
-I kept it to myself for years.
-
-But lately, I’ve had this strange feeling that maybe she wants me to tell it.
-
-So here I am, sitting at my computer, randomly sharing this with strangers on the internet.
-
-Maybe it’s nothing.
-
-**Maybe someone out there has dreamed about her too.**
-
-For years, I thought that night was the first time something like that had ever happened to me.
-
-But as I experienced more episodes like it, I slowly began to realize something.
-
-**It wasn't the first time.**
-
-When I was much younger, something had happened to me that I had completely forgotten about.
-
-It wasn't her.
-
-**It was something else, but that's a different story.**
-
-You may wonder...
-
-Did she ever visit me again?
-
-She did.
-
-**Years later.**
-
-Eventually, she visited me for the last time.
-
-**Or so I hope** but that's another story.
+Brand new, shiny, teeth. Just like I'd always wanted.
