@@ -1,54 +1,100 @@
-# I'd always been afraid of the dentist, and now my teeth feel strange...
-All of my life I've been afraid of the dentist. I can't point to one singular event that made me have this extreme fear, but I know my mother had to wrestle me through the door of the dentist's office kicking and screaming when I was younger and to this day I avoid it at all costs. As a result of this my teeth aren't in the best shape, but that's never affected me too much- my teeth are all a pale, sickly yellow, misshapen and pointing in all directions.
+# My treadmill has virtual running routes. Tonight, a new one appeared.
+A couple of weeks ago, I found an incredible deal on a premium treadmill. It’s the kind with the little TV hooked up to it so you feel less like you’re on a hamster wheel staring at a white wall, and more like you’re on a hamster wheel staring at a screen in *front* of a white wall. It’s pretty nice, especially since I’m on the night shift, and there aren’t any 24 hour gyms within reasonable commuting distance.
 
-However, recently, I've been noticing my teeth have taken a turn for the worse.
+Tonight, before getting ready for work, I decided to get in a quick run. I was already getting tired of the “hike through the Italian Alps” and the “walk along the beach in Oahu.” I’d begun to recognize every hill and wave. I even started waving at the cameo pedestrians and sunbathers. I knew exactly when each recording was about to reset. There are only so many times you can go through the same five scenes.
 
-I'd gotten home from work, threw off my jacket and shoes and made myself dinner. My teeth had been killing me all day and I couldn't eat my lunch due to the pain. I knew I should try and go to the dentist, but what was the point now? My teeth were messed up as it is, nothing they could do now. I pushed the thought and the accompanying anxiety down and made myself dinner. While eating dinner- a meager meal of ramen and stale white bread- I bit down on my sandwich absentmindedly while focusing on my phone. My mouth clamped down on the bread but all I felt was my teeth softly grazing the sides as I pulled it out of my mouth. I put my phone down and frowned. Was I having a stroke? I tried again, faster this time, roughly shoving the sandwich in my mouth and biting down as hard as I could- pain bloomed between my gums and all I could do was squeeze the sandwich between my teeth. I looked down at the bread. There weren't any *usual* teeth marks, rather it looked like someone had pushed their finger down on to the bread in a large semi circle- smooth, rounded marks where my teeth should have been. My breathing quickened- a sticky panic settled high in my chest as I rushed to the bathroom.
+But tonight, there were six scenes to choose from. I figured it must still be synced with the manufacturer and automatically downloaded a software update. The new one was called “Night Run.” There wasn’t a thumbnail image or touristy location name. Just: *3.2 miles*.
 
-Sweat beaded down my forehead as I opened my mouth. I fumbled with my phone, it almost slipping out of my grip; with my phone torch illuminating the inside, I could see my teeth properly.
+Good enough.
 
-The normal hard bone had been replaced with soft, squishy dark brown epidermis. Every tooth, top to bottom, felt spongy to the touch- like I was pressing my fingers together. Each tooth was covered in a dark, sticky film and I could feel some kind of warm pulp in the liquid below the surface as I gently touched my finger to my back tooth. The gums beside them were angry and inflamed which made each tooth throb painfully, as if I had bruised a finger or a toe.
+I hit “go” and notched up the pace to a steady jog. The recording started on a dark suburban street, pockets of which were brightly illuminated by streetlights. There wasn’t much to look at. Dark porches. Parked cars. The occasional blue glow from a television through half-shut blinds.
 
-I almost passed out from the shock. I sat on my bathroom floor running my tongue over my 'teeth', feeling every wrinkle and fold between them, feeling them move against each other with every touch. In my stupor, I sent a dazed message to my mother. Switching my phone off, I placed it face down on my sink and went to lie in bed. My tongue was obsessively going over every tooth, saliva pooling between them- the enzymes causing my 'teeth' to throb even more, as if every one of them had their own heartbeat. Liquid coursed inside the membranes, like water balloons full to the brim that sloshed with my every movement. After a while of tossing and turning I finally passed out.
+After a minute, my eyes caught on a tacky mailbox shaped like a fish. I always thought those were so ridiculous. What kind of person loves fishing enough to make the mailman shove their utility bills down a largemouth bass’s throat? Then I realized why the annoyance was so personal; I pass by one of those mailboxes on my commute. They’re common enough, but once the thought was in my head, my brain started to pick out more features on the screen.
 
-In the middle of the night I woke up with a shock. My body stained the sheets with sweat and I groggily sat up, causing a dart of pain to shoot over my jaw. I groaned and held my jaw as it twitched. My mind instantly went to my teeth. My tongue ran over my back teeth and felt a small tear in one of them- not enough to cause a hole but small enough to be noticeable. I gently pushed my tongue against it but felt the tooth widen in size, epidermis stretching painfully as it swelled larger. At this point I had to keep my mouth open as closing my jaw even slightly would cause a horrible pressure against my swollen tooth. It had grown so far that it was touching the roof of my mouth even with my jaw open. The smell coming from these 'teeth' was nauseating- a festering necrotic stench that left my eyes watering as I exhaled hot, damp air and sprayed brown drool over my bedsheets. I was shivering; hot and cold at the same time and had a head full of cotton wool. Every movement felt like I was underwater. I thought of my mom- maybe I should call her? I reached for the side of my bed but all I did was pat the wood. Of course my phone was still in the bathroom. Despite the pain in my head, I stood up slowly, blearily; and took a shaking step towards my bathroom.
+First, generalities. Then, things harder to dismiss.
 
-I'd done this thousands of times before; it wasn't a long walk, I counted the steps. 24 of them to be exact. Nothing I hadn't done before.
+A yellow house with a white picket fence. A stop sign with a rusty metal support post.
 
-1, 2, 3...
+I jammed my thumb on the “up” arrow to let me run faster.
 
-My ankles shuddered underneath me.
+Green trash bins overstuffed with broken down boxes and plastic bottles, awaiting the next morning’s recycling pick-up.
 
-10, 11, 12...
+I had to keep running, keep confirming what I was seeing.
 
-Bolts of pain raced up and down my neck, settling as a consistent agony underneath my skin.
+Then the road curved. I knew what was going to be around the bend before it appeared.
 
-15, 16, 17...
+The basketball hoop on the curb still had the net missing. The backboard had a spiderweb crack through one corner.
 
-A particularly sharp pain caused me to clench my jaws shut. *Hard*.
+I stopped running. The recording paused too.
 
-I felt a gush of sour, dank liquid fill my mouth. Instantly my body rejected this and it spurted out of my mouth and nose fast enough to splash onto the carpet below. It steamed as it hit the ground. The pain in my mouth reached a blinding high and my nostrils burned from the acidity of whatever it was I'd just vomited. I stood there gasping, staring at the dark brown stain below me and dry heaved from the pain and disgust. As I went to close my mouth, it felt like the pain had almost... gone? However, to my horror, I felt my gums brush together. A shuffling limp to the bathroom later and I discovered that all that was left of my teeth were soft pits in my gums where my teeth should have been. Those liquid sacs were gone, and as I checked the stain again, were ejected once they had popped alongside with the liquid inside of them. Leathery skin pierced into thin chunks that now curled onto the fabric of my carpet. The holes still oozed that dark liquid, and it drooled out of my mouth onto my t-shirt as it filled my mouth once more.
+I looked closer at the monitor itself and saw the distance remaining had dropped from 3.2 miles to 1.5 miles.
 
-My phone buzzed.
+Then I saw that the recording actually hadn’t paused at all; the screen wasn't frozen. A breeze pushed through and bowed a few branches in one of the trees, sending several leaves scattering across the road ahead. Moths fluttered erratically around a streetlight.
 
-I had totally forgotten about my mom. She'd left me a voice message the night before.
+And the camera itself was moving. Just a slight, rhythmic sway. Up, down. Up, down.
 
-I sat on the floor with my head in my hands and clicked play.
+Whatever I was looking through was standing there, catching its breath.
 
-"Hey darling, I just heard your message, I hope you're alright. If you need me I'll come over- I've had issues with my teeth as well, you know about me and my dentures! I know just what it's like. Anyway, thinking of you, love you so much!"
+I jumped off the treadmill like it had given me an electric shock.
 
-I took my hands off my eyes, still feeling the thick liquid drip from my mouth. I shuffled back to my bed, ignoring the stain and the drips leading to and from the bathroom; I just thought some sleep might help me wake up from whatever horrible dream I was stuck in. I slept for what felt like forever, gums getting increasingly more painful and inflamed, from the near constant poking and prodding from my tongue. I woke up to my jaw hanging slack, my swollen tongue turning a deep, sickly grey and lolling out of my mouth.
+My eyes were locked on the screen, my heart pumping adrenaline through my blood and impossible thoughts through my mind.
 
-I raised a finger to rub my sore jaws when I felt something hard protruding through my fingertip. It felt strange and dimpled, like a raised wart- I looked at my hand and saw this protrusion was on all of my fingers, like whiteheads dotting each finger and palm. Hands shaking, the protrusion grew, slowly; pressing beneath the skin, threatening to break the surface. I stood up from my bed to see better in the light when it felt like I was standing on broken glass. My shaking legs dropped me to the ground and I saw blood seeping into the cotton of my socks. I ripped the socks off my feet and screamed as hard, white protrusions broke through the soles of my feet, tearing the skin around them and gushing blood onto the floor.
+I stepped back onto the belt. The picture had steadied now, and remained in place.
 
-My hands were similar; dimpled white bone pushing through my palm and fingertips at awkward, jagged angles, injuries weeping blood onto the floor. My mouth agape, I wailed in agony spraying brown pus on to my hands. My tears clouded my vision turning everything a pallid shade of brown. Roughly wiping my eyes with the back of my bloody hand, I saw that my tears had turned the same colour as the saliva currently pouring out of my inflamed gums. I had to crawl to the bathroom, dragging my heavy body on my hands and knees- every push of my had was excruciating as the floor pushed the new bone in my fingers back in and out.
+A mile and a half away from my house.
 
-As I reached the bathroom, collapsing in a heap underneath the sink, a terrified panic spread fast across my body. Something hard was pushing against my tear ducts. I cried and cried as that same pale bone pushed through the tiny duct, propping my eyelid open as it twitched frantically trying to blink away whatever was blocking the tear duct. More tears poured out of my eye, sputtering around the blockage, covering my face in a drying brown film. It squeezed my eye and pushed my cornea to the side to where I couldn't move my eye anymore. My ocular nerves snapped like tight strings as my eye was squeezed to the breaking point. As it grew, so did the pressure in my eye; tighter and tighter, until...
+I hit “go,” but didn’t adjust the speed, letting the motor grind at a snail’s pace. It was so slow that I had to keep my feet on the side rails to prevent myself from tripping.
 
-My eye popped, leaking reddish jelly-like fluid down my already snotty face.
+Seconds went by, then, on the monitor, a small push forward. No, not a push…a *step*.
 
-Covered in drying blood, vomit, fluid and brain matter, I raised myself up slowly to look in the mirror.
+A few more seconds. *Step*.
 
-I knew exactly what was growing out of my body but didn't have the strength to fully believe it.
+Seconds. *Step*.
 
-Brand new, shiny, teeth. Just like I'd always wanted.
+I hit one of the treadmill’s preset speeds, jumping from 0.1 mph to 6.0 with a single button, and I rapidly went back to a swift jog. The view lurched forward to match my pace.
+
+Somewhere outside, a shrill siren roared to life, maybe a few blocks away. That made me wonder, for the first time, if I should call the police. And tell them what? That there’s someone, *something*, in my neighborhood, seeming to be making its way to my home? That it’s only-
+
+Suddenly, blue and red lights bathed the path on the treadmill screen as the emergency vehicle drove by, what looked like one street to the left.
+
+A few moments later, at the next intersection, the trail view cut to the left.
+
+I realized with horror that I was still running.
+
+I used the knuckle of my index finger to hit “STOP” as hard as I could and hopped off the belt.
+
+From the side of the equipment, I craned my neck to see the remaining miles.
+
+*0.5*
+
+I yanked the red safety key from its magnetic holding and unplugged the treadmill, staring at it with a combination of disbelief and near-crippling fear.
+
+There’s nothing to worry about, right? I just have to not use the treadmill again. *Ever* again. Tonight, I’ll go to work, and when I’m done, I’ll load this thing into my truck and haul it to the junkyard just in time for them to open in the morning.
+
+I’ll admit, I’m still shaken up. There’s no way I’m telling anyone at work about this, so I figured I’d post it here before I leave. I don’t know much about “smart” exercise equipment. Is there some feature I’m missing here? Some way it could be pulling in a live feed based on my location, or even picking up sound from around me? Maybe by the time my shift is over, one of you will have an explanation that makes sense.
+
+The treadmill has been unplugged for almost twenty minutes now. The screen is black. Nothing has happened. I think I’m okay.
+
+Wait.
+
+I can hear something outside.
+
+Clicks?
+
+No, taps.
+
+Now pounding.
+
+Someone is *running*.
+
+They’re getting louder.
+
+Faster.
+
+Closer.
+
+
+
+
+
+I have to go.
