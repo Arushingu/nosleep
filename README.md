@@ -1,332 +1,816 @@
-# The old man I worked for cut headstones before anyone was dead. One of them was mine.
-The cemetery's nearly full now. Seven rows, thirty-odd stones to a row. Two spots left at the end of the last one.
+# I Work at a Used Mattress Store. We Don't Offer Refunds.
+Let me give you a bit of advice.
 
-I'm the one who says where people go. I've been doing it sixteen years.
 
-Halfway down the fifth row there's a bare patch. Grass and nothing else. The field filled in all around it and that one stayed the way it was.
 
-I cut it myself. In the fall I run the rake over it twice a month.
+Never buy a used mattress.
 
-People ask me sometimes why that spot's still open. I tell them it's reserved, that we're waiting on somebody important. They laugh. It's a good joke. I've been making it for years and it still holds.
 
-Then they go, and I stand there a minute longer than I need to.
 
-It's an old question and it stayed down sixteen years. This morning it got up before I did.
+No matter how cheap, it's just not worth it.
 
-The shoe factory in Vigevano where I cut uppers shut in September. Eighteen months later I was still home. This was January 2010.
 
-My wife did nights at a nursing home in Mortara. She got in at seven, we swapped at the door, she slept till one. We had a three-year-old and a car that wouldn't start in the cold.
 
-The posting was on the board at the town hall. Cemetery worker, on call, nine hundred euros a month. I was the only one at the interview. The clerk had me sign two sheets and told me to show up Monday.
+And it's not bedbugs or bodily fluids that are the problem.
 
-Remo had held the contract since before I moved back to town. He was past seventy. He shook my hand and said he needed somebody who could dig, because he couldn't stay bent over anymore.
 
-It wasn't a figure of speech. From that Monday on, every hole out there was mine.
 
-The shed sits against the perimeter wall, behind the chapel. The tools are in there, the sacks of gravel, the bench where Remo worked the stone, and a stove I never once saw lit. Behind the door, on a nail, the ropes for lowering the coffins.
+About a month ago, I sat on the couch in my mom’s basement. I was looking for work; the last job I had told me I needed to take a ‘permanent vacation ’, a humbling thing to hear from McDonald's. I scrolled lazily through online listings; everything I saw either didn’t pay enough or required some experience that I didn’t have. That is all but one; what caught my eye was the pay. $45 an hour. What’s more, no experience required. A security guard position at Uncle Dan’s Mattress Emporium.
 
-First thing you learn is the pump. This is rice country and the water sits a meter or so down. A hole opened in the evening is full by morning.
 
-So you dig, you set the pump on the edge, you drop the hose in and run the other end out to the ditch. Then you let it go. You shut it off the day of the funeral, an hour before the people come. You can hear it from the road.
 
-The hose clogs. When it clogs you have to go down and clean the filter with your hands. I've been down there twice.
+I applied, and the next morning an email informed me I had been hired, and my first day was Monday at 10 AM. No call, no interview, but I wasn’t complaining. And on the following Monday, I found myself sitting in my worn-down car in Uncle Dan’s empty parking lot at 9:50.
 
-And if the pump quits and nobody starts it back up, the hole fills in one night and the sides come down on their own.
 
-The other thing is the boards. Two of them, wood, laid along the edges so you've got something to stand on while you work. They were there before me and both of them creaked.
 
-I mentioned it to him once. He said they hold.
+The parking lot was large, but run-down. Wild weeds sprouted in cracks in the weathered asphalt. Uncle Dan’s Mattress Emporium was a massive, bland warehouse. Dirty, greyish-white walls bore no windows and were only broken up by a row of glass automatic doors in the center. Above them, a huge sign shouted ‘Uncle Dan’s Mattress Emporium’ in a dull lemon yellow. Next to the words, a winking man with an over-saturated moustache grinned wildly into the parking lot.
 
-With wet ground all it takes is one foot wrong. You go down on your back into two meters of water and mud, and the bottom pulls. It's not that you sink. It's that you don't come back up.
 
-I thought about that, and then I dug. Nine hundred euros isn't much, but it beats nothing.
 
-Some days Remo didn't come in. He didn't say where he went and I didn't ask. I signed the hours sheet for both of us.
+I walked up to the store; the first thing I noticed was two bright red posters on the sliding door that read:
 
-In February he told me to open one in the old section, fourth row.
 
-I asked who'd died. He said nobody.
 
-I dug. Five hours, pump on the edge, hose out to the ditch. I figured he was getting ahead of things, that at his age you plan, that the ground's easier in winter. The town paid us on call and nobody checked how long we were out there.
+NO REFUNDS. ALL SALES FINAL.
 
-In the afternoon I found him at the bench with the chisel. He had a gray stone in front of him, one of the low ones, and he was going at it. Tick, tick.
 
-I went over to get the weed whacker. There was a day on the stone, a month, a year. Nothing else.
 
-No name. No date of death, no cross, no photo. Numbers and slashes between them, set in the middle of the stone, like the rest was supposed to come later.
+Reaching the doors, they didn’t open for me. Looking inside, the lights were off, but movement caught my eye, so I banged on the glass till a figure moved towards the door. The man inside flipped a switch near the doors, and they opened for me.
 
-I took the weed whacker and went to do the edges. At six I signed the hours sheet and went home.
 
-I made the kid his dinner. The game was on.
 
-They called on the Thursday. A woman of eighty-six, on via Roma, the one with the green gate.
+“We’re not open for another 40 minutes,” he stated drily
 
-The hole was already there, dry, the pump going two days. I shut it off and waited for the priest.
 
-In the register, in the shed, you write the name, the date of birth, the date of death and the plot number. I filled it in that evening. The date of birth was the day that was on the stone.
 
-There's a little over eight hundred of us in town. Remo had known every one of them since they were born, and the woman had been sick a year — the doctor came through Tuesdays and even the bar knew about it.
+He was a slender man, except for a large, rounded belly. A comb-over failed to hide his balding head, and a large mustache covered his upper lip; he wore a red polo tucked into tan, stained slacks. A thick gold chain hung around his neck.
 
-A man who's done that job forty years knows who's next. He gets the stone ready, he gets the hole ready, and when it happens he doesn't have to hurry. That's how I put it to myself, and it was enough.
 
-The second one was in March. An old man who went down while he was cooking, found by his son two days later. That hole had been ready a week too and the stone was at the wall.
 
-"Old people go from one minute to the next. Better to be ready," Remo said, and I hadn't asked him anything.
+“Um, no, I’m not here to shop; I’m Matt. Today’s supposed to be my first day?” I took a step inside.
 
-That one lined up too.
 
-I started opening the register before he did and reading the dates without saying anything. It wasn't that I suspected him. It's that I like knowing things first.
 
-The stones stood inside the shed along the long wall, behind the bench, leaned up against it. When I started, the row ended before the window.
+“Oh right, our new day shift guard”
 
-It worked like this. One went out for a funeral, and under that funeral was a hole I'd dug. Then Remo sat down at the bench and another one came in, sometimes two. But before the bench there were the days he wasn't there.
 
-The hours sheet hung on a nail over the bench and at the end of the week we both signed it. I did his. He'd told me the first month it came to the same thing.
 
-In March I signed for him one day. In April three.
+He sighed
 
-In May a whole week.
 
-He always came back on a Monday. He'd sit down at the bench and pick up the chisel.
 
-By June the row had gone past the window. I'd look at them Monday mornings and use the sacks as an excuse. It wasn't a pile sitting still. It was a row wearing down at one end and growing at the other, and the growing end went faster.
+“Follow me”
 
-February to June I opened the ground five times and every time it went the way it was supposed to go.
 
-The funeral for the old man from via Cavour was a Saturday morning in June. Remo had been gone since the Thursday.
 
-I'd finished tamping the earth and I was loading the tools. The wife came back on her own, purse under her arm, and put an envelope in my hand.
+He turned and began to walk away, and I hurried to catch up. We awkwardly walked in silence for a while before I asked
 
-"That's for the two of you."
 
-I said there was no need. She shook her head and turned toward the car.
 
-I opened the envelope a finger's width. Usually they give twenty euros. Fifty if the family's doing all right.
+ “Are you Dan?”
 
-There was three hundred in there.
 
-"Ma'am."
 
-She stopped.
+“Who?”
 
-"Remo's a good man, isn't he."
 
-She got both hands on the purse.
 
-"I wouldn't know what you call somebody who sits at your husband's bedside two nights running. Right to the last breath."
+“Um, Uncle Dan?”
 
-Then she went to the car, where they were waiting for her.
 
-That week I'd signed for both of us. The Thursday and the Friday I'd dug on my own.
 
-I put the envelope in my pocket and loaded the shovels. With that money I bought the kid shoes and two pairs of pants. I hadn't been able to do that in a year.
+“No”
 
-Remo came back on the Monday. I didn't tell him about the envelope and he didn't ask how it had gone.
 
-By September the row of stones turned the corner toward the stove.
 
-In October a man died who wasn't from here.
+“Oh, sorry.”
 
-Farm supply rep, out of Piacenza. He was in the two rooms over the bar, the ones they rent to people passing through. He had a gas heater going and the window shut. They found him the next morning, sitting on the bed with his shoes still on.
 
-He'd never been in town before. He got in Monday evening with his sample cases and by Tuesday he was dead.
 
-The burial paperwork came through the shed, because the family was far away and took three days to get here. The permit was on the bench, under a wrench.
+“I’m Paul, the owner.”
 
-I read the date of birth. Then I went out and over to the wall.
 
-The stone was there. Remo had finished it the day it rained, and that week it rained one time. Nine days before.
 
-Nine days before, that man was in Piacenza and didn't know yet he'd be coming through here.
+“So who’s Dan?”
 
-Remo was down at the end of the field with the wheelbarrow. He waved me over for a hand with the gravel, and I gave him one.
 
-One Wednesday we were redoing the gravel on the path.
 
-Remo patted his pocket and came up with nothing. He asked me to go get him the new pack of cigarettes out of the car.
+“What the hell are you talking about?”
 
-In eleven months he'd never asked me for anything.
 
-He kept a white Panda outside the gate, always in the same spot, always unlocked. The pack was on the dash, on top of a plastic bag from the co-op.
 
-I picked it up. Under it were the receipts, the kind you empty out of your pockets and leave there.
+“Nothing, never mind.”
 
-The top one was from the bar. Il Gallo d'Oro. The one under the rented rooms.
 
-Two coffees with grappa. Eleven forty at night, on a Tuesday.
 
-The bar closes at eleven.
+He grunted and pointed to a hallway across the show floor.
 
-That Tuesday was the thirteenth of October. It's the date I wrote in the register myself, on the line for the rep from Piacenza.
 
-I put it in my pocket and shut the door.
 
-I came back up the path with the cigarettes. Remo was on his knees with the screed. He said thanks and had me hold them until he'd finished.
+“The Break room is down that hall. I’ll meet you there; I've got to grab some papers from my office.”
 
-Then he handed me the trowel, holding it by the blade, the way somebody does who learned before I did.
 
-I said I thought the weather was turning.
 
-He looked up and said yeah, it'd come around by evening.
+I nodded and headed towards the break room. The showroom was cavernous, and every inch seemed to be used; hundreds of display mattresses were set up, leaving a maze of narrow walkways. The break room was just as dingy as the rest of the place; a peeling fake leather couch sat against the far wall, and a small table and three chairs sat in the center of the room. An old fridge and kitchen sink were all that filled the rest of the space.
 
-I went home cold under my jacket. Not the cemetery, not the stones. Him.
 
-Seventy kilos of quiet old man. He'd never raised his voice at me, never sworn at me. He gave the orders and then he was gone for days, and when he came back he sat down and cut dates into stone with nothing to go on, and the dates came out right.
 
-He'd sat two nights at a dying man's bed. He'd been in the bar under the rooms the night the window was shut and the heater was on. And there was the rest of the row.
+I sat at the table and waited a moment. Later, Paul entered and sat across from me. He handed me the standard paperwork for me to sign, and as I signed, he lifted a paper for me to see and said
 
-I thought about quitting. I thought about it a whole week. Then I added up what came into the house and I stopped thinking about it.
 
-Then one morning I got up early and went down to the shed.
 
-Remo wasn't there, same as always. He'd left a note.
+“I’m going to read this; it's part of our onboarding process.”
 
-A man had died at the hospital after a long time going. The stone was ready and he'd cut the date. It was at the back of the row.
 
-I moved them one at a time, holding them by the edge, the way you handle slabs. They go forty kilos apiece.
 
-One got away from me. I caught it against my leg and set it down the right way round.
+He gave a very dry reading
 
-14/03/1983.
 
-My breath went. My day. No name. The same gray stone as the others, the same hand.
 
-I put it back where it was, face to the wall.
+“Welcome to your new career at Uncle Dan’s Mattress. We’re happy to have you as part of the family. Here at Dan’s, we are proud to be the region’s largest seller of used mattresses”
 
-I couldn't keep my head on anything after that. I kept turning around to see where he was. The shovel was in my hand and I stopped halfway down the row.
 
-Every hole out there, I'd dug myself.
 
-It had to be the cigarettes. He'd seen the receipt was gone.
+“What?” I interrupted
 
-At home my wife asked if I was sick. I said it was my back.
 
-She wasn't on shift that night. I waited until they were both asleep and went back to the shed.
 
-I took the register. My date was there, four lines past the last funeral we'd done.
+“Huh?”
 
-Three stones. Three holes. I had until the fourth one got opened.
 
-I stood over the kid while he slept and thought about the nine hundred euros he needed.
 
-I wasn't going anywhere.
+“Used Mattresses?”
 
-The three stones went out. One on the twenty-second of November, one on the twenty-ninth, one on the third of December.
 
-On the seventh Remo told me to open another. Fifth row, first free spot. Nobody had died.
 
-I dug. I set the pump on the edge and the hose in the ditch.
+“Yeah, we buy used mattresses from hotels, estate sales, and police auctions. We then sell them at a discount.”
 
-It ran eleven days. You could hear it from the county road, because with the fog the cemetery doesn't show past twenty meters and that noise is all there is of it.
 
-I hadn't slept in days. I'd lie with my eyes open until four, then I'd hear my wife come in and run the tap in the bathroom.
 
-The evening of the seventeenth the sky came down and the wind started pulling from the south. When it turns like that here, the whole thing comes down overnight.
+“I didn’t know people bought used mattresses”
 
-I thought about the open hole out there, waiting on nobody.
 
-I'd fill it back in. It was the only thing I'd come up with. Let the old man know that I knew, that I had all of it, and that he wasn't getting it.
 
-Maybe he'd take the point and leave off. It was worth a try.
+He shrugged and kept on reading
 
-If I shut the pump off, with the water under and the rain on top, the sides would come down on their own. In the morning I'd close it with half the dirt and nobody would ask me anything.
 
-I left at eleven. I did the two kilometers on the bike.
 
-You hear that pump from before the gate. There was nothing.
+“We strive to be a good working environment, and we are proud to offer our employees a generous 10% off any mattresses. Each employee will get two unpaid ten-minute breaks and a 30-minute lunch break per eight-hour shift. We are thankful for our workers and if you have any questions don’t hesitate to ask you’re shift manager.”
 
-There was a low light in the fifth row, down inside the ground.
 
-Remo was at the bottom of the hole. The water came to his knees. He was standing on the board with the hose filter in one hand, pulling the mud out of it with the other.
 
-He saw me and it didn't surprise him.
+His face was blank when he looked up from the paper.
 
-"It's clogged. Give it a pull when I say."
 
-He put the filter back under. He said now.
 
-I don't know why, but I pulled the cord. The motor caught on the second try.
+“Any questions?”
 
-What the fuck are you doing? Helping a murderer? Your own?
 
-The hose moved. He shifted over to let it past, and the board made the noise it always made, and then it didn't make it again.
 
-He went down on his back. That was when it started raining.
+I shook my head
 
-He came up. He got his hands on the edge and the edge came away with them. Wet ground doesn't hold.
 
-He shouted my name.
 
-I ran to the shed and pulled a rope off the nail behind the door.
+“Good.” He said
 
-I turned to go out and the row of stones was in front of me.
 
-Mine was where I'd put it, face to the wall. Something in me turned.
 
-I went out with the rope in my hand. I took three steps and stopped short of the edge.
+“You are our new daytime security guard”
 
-You're not a murderer.
 
-The water was coming down on the dirt pile and making a sound I'd never heard it make. The mud had shifted. The rain was picking up. The pump was struggling.
 
-You're not a murderer.
+He paused to release a sigh
 
-He gurgled something a couple of times. I think my name. The second one quieter.
 
-You're not a...
 
-Then he stopped. Him and everything in my head.
+“Part of your job will be to be on the lookout for people casing the place; we’ve had break-ins before.”
 
-The rain on the back of my neck, the diesel off the pump, the rope gone slick in my fist, the taste of dirt at the back of my mouth.
 
-I went home. I didn't go to the edge and I didn't want to look. The rope was still in my hand.
 
-In the morning it had stopped raining. The hole was full to a hand's width from the edge. The pump must have jammed again.
+He scratched his balding head.
 
-The broken board was floating. I pulled it out and put it with the firewood.
 
-I hauled the hose up. It came out heavy with mud.
 
-Then I started taking the dirt off the pile. It took me all morning and I never once looked down.
+“But the biggest part of your job will be handling people attempting to return a mattress. We don’t accept returns or offer refunds.”
 
-Monday Remo didn't come in and he didn't come in Tuesday either. They talked about it at the bar for a few days. Somebody disappears and it gets talked about, then it goes quiet again.
 
-Nobody went to the carabinieri. There was no wife and there were no children.
 
-The town stopped calling him. There was no file, no signature, no transfer.
+I nodded
 
-In January the clerk had me sign the new contract. Permanent, twelve months, thirteen hundred euros. It wasn't the right procedure, but he didn't feel like opening a competition for a gravedigger.
 
-He didn't do it out of kindness. He did it to get it off his desk. And there hadn't been one funeral since Remo went.
 
-That counted as confirmation, and in a way it settled me. I did a terrible thing, but I had a reason for it. I didn't just save my own skin. I saved who knows how many other people's.
+“I saw the sign,” I said
 
-It took me a while to get used to it, then the sleep came back.
 
-On the twentieth of March the phone rang.
 
-It was the clerk. A man dead on the county road, at the crossroads by the farm. The surveyor's son. He needed a spot for Friday.
+“Good,” Paul replied. “Some people get pretty aggressive when trying to return an item, so we need you to be the hard ‘no’ and enforce our policy.”
 
-He read out what I had to put in the register. Name, surname, date of birth. The pen made a blot on the page.
 
-March fourteenth, nineteen eighty-three.
 
-I made him say it again. He said it again. I wrote the line out to the end.
+I nodded
 
-Then I went to the wall and got that stone, the one I don't know how many times I thought about breaking. I set it on the grave myself, on the Friday, in front of half the town. The mother stood by the pile until I was done.
 
-Sixteen years have gone by and I've kept doing this work. I got good at it. The cemetery's always in order. The families are happy with me.
 
-Yesterday morning, after the phone call, I went down to the shed for the shovel. The stone was ready, the way it's always been, face turned the other way.
+“Can do.”
 
-This morning I put my hand on it and smiled.
 
-I looked over at that bare patch in the fifth row, the one that's still free as far as everybody else knows.
 
-I was finally going to know. I'd know why in sixteen years, right from when I started, I've never once had to cut a stone with my own hands.
+“Good, your uniform is in the office; go put it on.”
 
-I dug all the way down. I went well past the usual two and a half meters.
 
-The question's settled.
 
-There's nothing under it.
+I got up and headed towards the door, as I reached it Paul spoke up
+
+
+
+“Oh, another thing.”
+
+
+
+ I turned back towards him. He tossed me a handheld timer
+
+
+
+“Don't let customers test the mattresses too long. Nobody lies on anything for more than ten minutes.”
+
+
+
+“Why?”
+
+
+
+“Because that's the policy.”
+
+
+
+“What happens after ten minutes?”
+
+
+
+He looked at me like I'd asked something stupid.
+
+
+
+“You don't let them get to ten minutes. Got it? If someone gets close to ten minutes, don't argue with them. Just get them off.”
+
+
+
+“Yeah, I got it,” I said with a nod
+
+
+
+‘Must be worried about bedbugs,’ I thought to myself as I went to try on my uniform. By the time I returned from putting my cheap security uniform on, the majority of the sales staff had arrived; they all seemed nice enough, and before long the store was open for business.
+
+
+
+That first day was nothing strange; I did my best to not be conspicuous as I kept an eye on the customers. By the afternoon, I decided to start informing customers that they could only test the mattresses for a short period. Most people just nodded, but when they realized I was watching, they never lay down for long. Only a young couple gave me trouble; they laughed when I told them, and as I watched, they mocked me. But when I threatened to kick them out after they had been testing the bed for nine minutes, they made a scene and threatened to give us bad reviews online as they stormed out.
+
+
+
+Paul stopped by after they left; all he said was
+
+
+
+“Good job, keep it up.”
+
+
+
+The next few days were ordinary, if not dull. I found myself settling into a job that was proving to be more boring than McDonald's. It was Friday when things began to change. It was late in the day, about 45 minutes before closing time; I had already mentally checked out for the day. But then our last customer of the day walked in.
+
+
+
+She was young; my guess was she was a college freshman. She was dirty, her hair was unkempt, and she looked like she hadn’t washed in days. Her face was full of fear, and her eyes were red and swollen, like she had been crying nonstop. As she walked into the store, she dragged a filthy, yellowed twin-sized mattress behind her. As she walked in, her eyes locked onto me. Her pace quickened towards me, and tears began to fall down her cheeks.
+
+
+
+“I need to return this mattress, please.” Her voice was desperate
+
+
+
+Instinctively, I took a step back as she reached me. Raising both hands towards her, I calmly said
+
+
+
+“I’m sorry, ma’am, but we don’t offer refunds.”
+
+
+
+“No, you don’t understand. It's ruining my life, please.” She begged
+
+
+
+I didn’t know what to say, so I just repeated myself
+
+
+
+“Ma’am, we don’t offer refunds. I’m going to have to ask you to leave.”
+
+
+
+“I don’t want a refund; I just need to get rid of this damn mattress, please.”
+
+
+
+I raised my voice slightly
+
+
+
+“Ma’am, we don’t accept returns. Please take your mattress and leave the store.”
+
+
+
+“No!” she screamed wildly before dropping the mattress and running out of the store.
+
+
+
+I took a deep breath and tried to calm down; the woman’s yellow mattress lay on the floor. I stared at it, noticing a dark red stain on the far corner that seemed to continue onto the underside. It looked old; the reddish-brown color was so ingrained in the fabric that it seemed like no stain remover could remove it. The mattress made me uncomfortable, so I left it where it lay and used my earpiece to call for Paul.
+
+
+
+Paul walked up slowly; his eyes glanced from the mattress to me
+
+
+
+“What happened?” he asked
+
+
+
+“A customer wanted to return this. When I said no, she left it and ran off before I could stop her.”
+
+
+
+A flash of concern appeared and disappeared on Paul's face; he stared at the mattress and quietly swore under his breath. Finally, he looked at me and asked
+
+
+
+“Did you touch it?”
+
+
+
+I shook my head no
+
+
+
+“Good. Wait here.”
+
+
+
+ He jogged off to his office and returned a moment later with two pairs of black gloves. He tossed a pair to me while he put his on.
+
+
+
+“Put these on.” He said blankly
+
+
+
+I didn’t argue.
+
+
+
+Once our gloves were on, we carried the mattress to Paul’s truck; the sun was beginning to set.
+
+
+
+“Get in,” Paul demanded
+
+
+
+In silence, we drove down a dark dirt road. Paul seemed to know where we were going, but I certainly didn’t. Paul slowed the truck as we neared a dead end deep in the woods.
+
+
+
+“Did she touch you?” Paul broke the silence
+
+
+
+“What?”
+
+
+
+“The girl who brought the mattress, did she touch you?”
+
+
+
+“No, I don’t think so.”
+
+
+
+He nodded his head slowly
+
+
+
+“That’s good; can’t be too careful.”
+
+
+
+The truck stopped, and we unloaded the mattress onto what looked like a burn pile. Paul dosed the thing with lighter fluid and tossed a match onto it; instantly it ignited. The two of us stood there watching the orange flames consume the old mattress. I turned to look at Paul and couldn’t help but ask
+
+
+
+“Why did we do this?"
+
+
+
+He stared into the flames and shrugged
+
+
+
+“You never know what’s on these old things.”
+
+
+
+He turned to me and put a hand on my shoulder
+
+
+
+“You did good today. How about you take the day off tomorrow? We’ll pay you for the day, to make up for your trouble tonight.”
+
+
+
+I nodded, and we returned to the truck.
+
+
+
+ I returned to work on Monday; it was even more boring than last week. A few angry customers tried to return their mattress; an older woman screamed in my face when I refused her return, but took her mattress with her when I threatened to call the cops. The week dragged on. It was Thursday night, an hour before closing. Paul walked up to me; a frown filled his face
+
+
+
+“Everything ok Boss?” I cautiously asked
+
+
+
+“Well, not really.” He replied
+
+
+
+I swallowed, preparing for the worst.
+
+
+
+“Our night guard called in sick.” He said with a sigh.
+
+
+
+He looked me in the eye
+
+
+
+“I really need someone here tonight. I know you’re probably wanting to head home, but if you could cover this shift, I can offer you $75 an hour.”
+
+
+
+I thought for a moment; the extra money would be a big boost, and honestly, I didn’t have plans for the night.
+
+
+
+“Can I have tomorrow off if I do?”
+
+
+
+A half-grin appeared on his face.
+
+
+
+“Sure thing. Thanks, kid.”
+
+
+
+He pointed to his office
+
+
+
+“Let’s talk in the office.”
+
+
+
+We retreated to the shabby, cramped office. Paul opened a large cabinet, revealing several monitors showing multiple angles of the perimeter of the building.
+
+
+
+“You’ll be in here most of the time; keep an eye on the cameras. Every hour, do a check of the building, both the warehouse and showroom.”
+
+
+
+He pulled a flashlight from a drawer and handed it to me
+
+
+
+“Only the lights here in the office will be on, so you’ll need this.”
+
+
+
+I nodded
+
+
+
+“Oh, also, and this is important”
+
+
+
+He stared intently at me
+
+
+
+“Don’t sit or lie on any of the mattresses for more than ten minutes.”
+
+
+
+“Yeah, I remember,” I replied
+
+
+
+I walked with him up to the front doors; he flipped a master switch, and with a groan, the industrial lights of the showroom went dark. I watched Paul lock the doors from outside and head to his truck, then I turned around to the dark, vast space, flipped on the narrow beam of my flashlight, and worked my way through the maze of mattresses back to the office.
+
+
+
+After a few hours and rounds around the building, I began to settle in for the night. I set an hour-long timer on my phone and did my rounds when I had to, but other than that, I lounged in the office watching YouTube videos. I even ordered some DoorDash around midnight.
+
+
+
+Thirty minutes after midnight, I saw my DoorDash driver appear on the front door camera. I hurried my way through the dark showroom and soon saw the man holding my food, nervously looking around. I began to unlock the door when I heard a distant chuckle. I paused and looked behind me with the flashlight, but I didn’t see anything. The delivery man pounded on the door, which brought my focus back to the door.
+
+
+
+“Hey, sorry,” I said as the door opened
+
+
+
+“No worries, here.” He handed me my food.
+
+
+
+“Thanks, hey, were you laughing out here when I was opening the door?”
+
+
+
+He looked at me funny then shook his head
+
+
+
+“Nah.” He turned and walked away.
+
+
+
+I relocked the door. As I scanned the showroom with my flashlight, I did my best to convince myself that it had just been my imagination. I ate my greasy burger and fries at Paul’s desk while watching some mindless video. The security monitors were in my peripheral vision. Movement and a dull thump on one screen made me freeze mid-chew. My eyes moved to the security monitors.
+
+
+
+The monitor showed the only camera that looked into the warehouse; in the center of the screen, a mattress wrapped in clear plastic lay on the floor. It hadn’t been there before. It looked like it had fallen off the nearby storage rack.
+
+
+
+I stared at the screen intently. Swallowing hard, I stood up, and though I didn’t want to, I knew I had to go into the warehouse. Looking around the office, I saw an old baseball bat in the corner. I grabbed it and stepped into the darkness.
+
+
+
+The heavy door to the warehouse squeaked loudly as I pushed it open. I cautiously stepped inside; every step gave a muted echo in the large open space.
+
+
+
+“Hello?” I said
+
+
+
+My voice seemed so small in the vast area.
+
+
+
+“You can’t be back here.” I gripped the bat tighter.
+
+
+
+The lone mattress finally came into view. I stood next to it and scanned the space with the light. There was no sign of an intruder, since the storage racks were vaulted; there weren’t a lot of places for a person to hide. I felt a little better and easily convinced myself that the mattress hadn’t been placed properly and had fallen on its own. I pushed it off to the side; it wasn’t my job to store this junk. I did a slightly more thorough walk-through before returning to the office.
+
+
+
+It was nearly 2 am when I started getting sleepy. I could barely keep my eyes open, so I decided to do another walk around the building. I yawned and stumbled around slowly; after a while, I slowed to a stop. Before me was a king-sized mattress; it looked so inviting, so cozy. After a moment, I gave in and lay down on it.
+
+
+
+“I’ll just rest my eyes for a moment,” I mumbled aloud.
+
+
+
+It must have been after 3 am when a sharp pain in my right leg woke me up. Dazed, I sat up in bed and shone the light on my calf. To my shock, two long, deep gashes leaked my dark blood onto the mattress. It wasn’t the same mattress I had fallen asleep on. Before, it had been perfectly white and new-looking, the best-looking mattress in the whole place. But now it was worn and yellow; several black, moldy spots dotted its surface. It smelled terrible.
+
+
+
+“What the hell?” I muttered
+
+
+
+A distinct shuffling answered me. I froze, instantly aware that I wasn’t alone. I lifted the flashlight towards the darkness, but it flickered and quickly died. I smacked it a few times, but it didn’t help; more movement echoed through the store.
+
+
+
+“Who’s there?” I whispered as I scooted to the far side of the bed.
+
+
+
+“I’m here.” A dull, almost angry-sounding voice replied
+
+
+
+My heart skipped a beat as a tall, dark shape rose from behind the mattress across the aisle. It seemed to be made of nothing but shadow. I panicked and fell off the bed as the shape slowly moved closer. Back on my feet, I dashed down the aisle; the sound of bed frames scraping across the floor told me it was following me. I glanced back at the shadow with every step it seemed to change. It slowly became more human, eventually taking the form of a middle-aged man. He wore pajamas stained with blood that somehow looked to be still wet; his eyes were completely black. His pajamas were stained with blood, and when he stepped into the light, I saw two long gashes running down his right leg.
+
+
+
+At the end of the aisle, I tripped on the corner of a bed frame and tumbled to the floor. Instinctively, I crawled under the frame, passed into the next aisle, and hid under another. I held my breath as I saw the figure's feet walk by a few aisles over. It made no noise as it moved. At the end of the aisle, it froze for a moment before walking away from my hiding spot. Releasing my breath, I looked around and saw the door to the office just a few hundred feet to my left. My hands shook as I left my hiding spot and crept my way to the office.
+
+
+
+Once inside, I locked the door, pulled out my phone, and called Paul. It rang a few times before a groggy Paul picked up
+
+
+
+“Hello?” he yawned
+
+
+
+“Paul,” I whispered loudly
+
+
+
+“Someone is in the store.”
+
+
+
+“What?” he sounded more alert
+
+
+
+“They cut my leg; I got away, but they’re looking for me.”
+
+
+
+“Did you sleep on a mattress?”
+
+
+
+“What?”
+
+
+
+“Don’t lie, did you?”
+
+
+
+“Well, yeah.”
+
+
+
+He was silent for a moment before muttering
+
+
+
+“Damn it.”
+
+
+
+“Paul, what is going on?”
+
+
+
+He gave a loud sigh
+
+
+
+“Some of the mattresses we buy, usually the ones from police auctions, have some kind of attachment.”
+
+
+
+ “What?” I nearly yelled into the phone
+
+
+
+“What’d you expect from used mattresses?” Paul blankly responded
+
+
+
+“So we sell haunted mattresses?”
+
+
+
+“I wouldn’t use the word ‘haunted.’”
+
+
+
+“Well, what damn word would you use?”
+
+
+
+“Cheap.”
+
+
+
+I stared at the wall. Why did I ever take this job?
+
+
+
+“Listen,” Paul continued
+
+
+
+“There’s a container of salt in the desk drawer; line the door with salt and stay put. I’ll be there at first light.”
+
+
+
+With that, he hung up. And I quickly laid a thick line of salt across the doorway. Moments later, the door shook with desperate pounding.
+
+
+
+“I found you.” The voice was playful, but aggressive
+
+
+
+“Please come out”
+
+
+
+Loud knocks rocked the door.
+
+
+
+“You can’t get away; I’ll follow.”
+
+
+
+I hid under the desk.
+
+
+
+An angry scream filled the room
+
+
+
+“Let me in!”
+
+
+
+The door groaned and rattled in its hinges, but it held. The screaming and knocking continued for hours, only growing quiet when the light of the sunrise peeked through the window. The banging stopped, and the voice said
+
+
+
+“See you later.”
+
+
+
+Then everything was quiet. Half an hour later, I heard the sound of the door unlocking. Peeking out from under the desk, I saw Paul walk in.
+
+
+
+“You ok?” he asked
+
+
+
+“Yeah. Now I am.”
+
+
+
+He grunted and nodded.
+
+
+
+“Which mattress did you sleep on?”
+
+
+
+I led him to it. He stared at it and then took a pair of black gloves from his pocket.
+
+
+
+“I’ll help you load it up.”
+
+
+
+Confused, I looked at him
+
+
+
+“What?”
+
+
+
+“You slept on it; it’s yours now.”
+
+
+
+Panic ran through me.
+
+
+
+“I don’t want it!”
+
+
+
+“Sorry,” he said
+
+
+
+“We don’t offer refunds.”
+
+ 
+
+ 
+
+ 
