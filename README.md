@@ -1,261 +1,40 @@
-# Can you hear that?
-“Can you hear that?” 
+# Why I Quit The Crematorium On The First Day
+People ask me why I dropped a job that paid better than anything else I could've gotten as a student. I usually just say it wasn't for me. That's easier than telling the truth, because the truth makes me sound insane.
 
+My dad had been on my case for months about getting a job to help cover my second year at uni. "You can't just study philosophy and expect the world to hand you a future," he'd say, usually through a mouthful of dinner. So I started looking. Most of the listings were the usual — bar work, retail, warehouse shifts. Then I found one for an assistant role at Hallow Vale Crematorium. Something about it caught me. Morbid curiosity, I guess. I'd never really thought about what happens behind the curtain, so to speak. I applied on a whim, did a five-minute phone interview with a woman who sounded bored out of her mind, and got the job two days later.
 
+The crematorium itself sat behind a low stone wall on the edge of town, all clipped hedges and a gravel car park that crunched too loudly under my shoes. I remember feeling stupid for being nervous. It's a workplace, I told myself. People do this job every day.
 
-The voice was muffled. 
+I was met at the door by two men who I can only describe as looking like they belonged there. Brian was older, maybe late fifties, with sunken eyes and a voice like gravel dragged through a pipe. Tim was younger but not by much, thin, with a stare that lingered a beat too long before he answered anything. Both wore matching navy overalls with HALLOW VALE stitched over the breast pocket.
 
+"You're Jason," Brian said. Not a question.
 
+"Yeah. Nice to meet you both."
 
-The music blaring from my headphones drowned out everything around me. If he didn't tap my shoulder, I wouldn't have even noticed he was there.
+Neither of them said it was nice to meet me. Tim just nodded, once, like he was filing me away for later.
 
+Brian showed me round. The reception area, the chapel, the viewing room with its heavy velvet curtains, and finally down a narrow corridor to what he called "the prep area" — cold, tiled, smelling faintly of bleach and something underneath the bleach I didn't want to think too hard about. Along one wall was a bank of steel drawers, the kind you've seen in films, each one big enough to hold a person.
 
+"Bodies go in here till they're processed," Brian said, patting one of the handles like it was a filing cabinet. Tim watched me the whole time and said nothing.
 
-Sitting beside me on the bus, was a middle aged man in a hoodie and jeans. There were strange stains blotched into the dark fabric, from the colour I imagine he spilt coffee down himself. 
+About an hour in, Brian told me it was time to move someone through to the chapel for the next morning's service. He wheeled out a trolley with a black bag on top, unmistakably body-shaped, and nodded for me to take the other end. My hands were shaking a little as I gripped the cold rail. We started pushing it down the corridor, and I was doing my absolute best not to think about what was inches from my fingers.
 
+Then the bag lurched.
 
+I froze. It moved again, violently this time, and a hand shot out from the zip and the whole thing convulsed as Tim sat bolt upright inside it, roaring with laughter. I screamed — properly screamed — and stumbled back into the wall. Brian was already doubled over, wheezing, slapping his knee. Tim clambered out of the bag, tears streaming down his face, gasping "you should've seen your face" over and over.
 
-I wouldn't be surprised if he was a bit clumsy, his hands wouldn't stop shaking. 
+I told them I was done. I meant it. I was already halfway to grabbing my coat when Brian caught my arm, still chuckling, and told me not to take it personally. "Tim's just like that. Loves a wind-up. Means nothing by it." He said the best thing to do was get him back — that Tim did rounds on the drawers every hour, checking temperatures, and that if I hid inside one, I could pop out and terrify him right back. Fair's fair, he said.
 
+Against every instinct I had, I agreed. Brian picked me a drawer, told me to get comfortable, and slid me inside with a wink before the door clicked shut.
 
+It was colder in there than I expected. Properly cold, the kind that gets into your teeth. I lay in the dark listening to my own breathing, waiting for footsteps.
 
-I lifted the left side of my headphones and gave him an apologetic look. 
+Then, out of habit more than anything, I turned my head to the side. Through the gap where my drawer met the next one, I could just make out a shape in the dark. A dead body, a few feet away. I tried to remain still. And for a moment I'm sure I saw it move in the darkness, but I knew it must've been my mind playing tricks on me. Dead people don't move. Right?
 
+Then it's eyes opened.
 
+"Cold in here, isn't it, mate?"
 
-“Sorry, were you talking to me?” 
+I don't remember deciding to move. I just remember the crack of my skull against the top of the drawer, white light exploding behind my eyes, and then Tim's laughter right beside me, and Brian's laughter echoing in from the corridor, both of them absolutely gone, wheezing, gasping for air.
 
-
-
-“I said, do you hear that?” 
-
-
-
-He took me in, his eyes scrolled up and down, then side to side, bouncing off the corners of his crusty lids. 
-
-
-
-I shifted in my chair, trying to retreat a little. Sadly, I was sandwiched between him and the window so there was no escape. 
-
-
-
-I couldn't help but worry he was an addict or something. His eyes were so bloodshot and the way he carried himself was manic. 
-
-
-
-As his eyes continued to scan me, I realised he was waiting for me to respond. There was a dormant anticipation behind them, like he was trying to guess what I would say next.  
-
-
-
-Sensing he was growing impatient, I tried my best to rationalise the situation. Afterall, he had just asked a simple question. 
-
-
-
-“Do I hear what?” 
-
-
-
-Relief washed over him in an instant. One by one, each part of his body relaxed as he sunk into the chair.
-
-
-
-Tears then began to form in the corners of his eyes. 
-
-
-
-He then buried his face in his hands and began to cry while thanking God in some incoherent prayers. 
-
-
-
-I put my headphones back on. 
-
-
-
-At the time, I thought nothing of it. This wasn't the first strange bus interaction I had, honestly that's what I got for taking it so late. 
-
-
-
-I tried to decipher what he could possibly have been referring to. My music was so loud I could've missed something.
-
-
-
-Then again, most grown men don't tend to burst into tears after asking you a casual question. 
-
-
-
-The truth might've been somewhere in the middle. Either way, it's not like I was going to find out now. 
-
-
-
-That's when it began. 
-
-
-
-It was subtle at first. A little hum that would crescendo gradually. 
-
-
-
-It was the kind of background noise you could dismiss. Like the fans of your PC whirling for hours on end, just for you to feel their absence when you shut it down.
-
-
-
-But that absence never came. 
-
-
-
-It just became louder. 
-
-
-
-After a week, it was so loud I started to notice it. 
-
-
-
-A trumpet. A trumpet playing a single note.
-
-
-
-It's the best way I can describe it.
-
-
-
-It was just one, drawn out sound stretching into infinity. I'm sure under other circumstances it would be the beginning of a tune. Like the first note played when announcing an emperor's presence.
-
-
-
-The horn was beautiful, perfect pitch and in tune. 
-
-
-
-But that means very little when it won't end.
-
-
-
-It echoes around me. Nothing I do can overpower it. 
-
-
-
-I've tried blasting more music, standing by construction sites all day, replaying videos of people screaming, even bashing my head against the wall to try to distract myself.
-
-
-
-Nothing works.
-
-
-
-It's like this siren call, beckoning me to somewhere I can't go. Somewhere not only out of reach, but somewhere I can't even comprehend. 
-
-
-
-I tried going to a doctor. They deemed it a psychological problem after various tests. Then the psychologists deemed it a physical problem since they couldn't find anything wrong with me otherwise.
-
-
-
-So, I didn't get very far.
-
-
-
-That was back then though, now I think they'd put me straight into an asylum. 
-
-
-
-They don't get it. It's like this itch I can't scratch. I want to scratch it so damn bad but where the fuck am I meant to reach to? 
-
-
-
-It's infuriating no one else can hear it. I can't tell if it's a blessing or a curse, I feel like people need to hear it.
-
-
-
-I can't focus on anything else and it's just growing louder. It's as if doomsday is here and the angels are about to descend to kill us all but they just keep waiting.
-
-
-
-Waiting and waiting and waiting. 
-
-
-
-I just want it to stop. 
-
-
-
-I cut off my left ear.
-
-
-
-That's where it started. That note buried itself in there, it was trapped deep inside and I needed it out.
-
-
-
-I tried cotton buds. I'd stick them in and try to claw it out until I was bleeding. When it didn't work I'd cram more in but to no avail. 
-
-
-
-So, I just removed the whole thing. Now I can try to scoop it out from the hole that remains.
-
-
-
-But it's not working. Dear Lord, why is it not working? 
-
-
-
-There has to be something, anything. 
-
-
-
-It's everywhere. In my ears. My mind. My heart. My soul. 
-
-
-
-I can't even hear people around me anymore. They are all muffled now. 
-
-
-
-I've stopped going to work, I have no appetite anymore and it's impossible to sleep at night when it won't go away. 
-
-
-
-I'm going to cut the other ear off. It's not like I can hear anything else now anyway. What do I have to lose? 
-
-
-
-It hurt when I started hacking at the left ear with scissors, but I became numb to the pain the more the sound distracted me. It's so loud now I don't think I'll notice a thing at all. 
-
-
-
-Shit, shit, shit. 
-
-
-
-It's louder. I cut the other off and now the sound is louder. 
-
-
-
-It's changed, it's out of tune, it's down a pitch, it's making my bones vibrate. 
-
-
-
-Stop, stop, please, someone stop it. I'm begging you please, anyone, anything out there. 
-
-  
-There has to be someone else experiencing this or who knows something, or even some divine being willing to intervine. Anyone out there, please make it stop.
-
-
-
-Help me. Help me. I don't want to die. Please. I don't know what else to do. If it won't stop what else am I meant to do?
-
-
-
-It's getting louder, can't you tell? You must hear it, please, tell me, please.
-
-
-
-Can you hear it?
-
-  
-  
-  
-  
-  
-  
-  
+I handed in my resignation the next morning. Told my dad I found the shifts unsociable. Which, in fairness, wasn't a lie.
