@@ -1,40 +1,43 @@
-# Why I Quit The Crematorium On The First Day
-People ask me why I dropped a job that paid better than anything else I could've gotten as a student. I usually just say it wasn't for me. That's easier than telling the truth, because the truth makes me sound insane.
+# The Legacy in the Oiled Paper
+When my father died, he did not leave much to me. A stuffed attic room full of yellowed field post letters, a rusted horseshoe, and a heavy package wrapped in resinous oil paper. I brought it down into my study and placed it upon the wooden desk, directly beneath the skylight.
 
-My dad had been on my case for months about getting a job to help cover my second year at uni. "You can't just study philosophy and expect the world to hand you a future," he'd say, usually through a mouthful of dinner. So I started looking. Most of the listings were the usual — bar work, retail, warehouse shifts. Then I found one for an assistant role at Hallow Vale Crematorium. Something about it caught me. Morbid curiosity, I guess. I'd never really thought about what happens behind the curtain, so to speak. I applied on a whim, did a five-minute phone interview with a woman who sounded bored out of her mind, and got the job two days later.
+When I unfolded the sticky layers, it lay before me: a *Pistole 08*. An old Luger.  
+The wood of the grip scales was worn down, the iron dark and stained. Yet what fascinated me immediately was the toggle-joint. That precise, mechanical marvel did not seem like a relic from the war, but like a cold, metallic insect in a lurking stillness.
 
-The crematorium itself sat behind a low stone wall on the edge of town, all clipped hedges and a gravel car park that crunched too loudly under my shoes. I remember feeling stupid for being nervous. It's a workplace, I told myself. People do this job every day.
+I wished to clean the weapon. A pure impulse of conservation.
 
-I was met at the door by two men who I can only describe as looking like they belonged there. Brian was older, maybe late fifties, with sunken eyes and a voice like gravel dragged through a pipe. Tim was younger but not by much, thin, with a stare that lingered a beat too long before he answered anything. Both wore matching navy overalls with HALLOW VALE stitched over the breast pocket.
+I fetched gun oil, a rag, and pressed the catch bolt. The toggle-joint snapped open. A dry, metallic *click* echoed through the room—too loud, too deep for the slope of my study. It did not smell instantly of chemicals, but of wet clay, burnt fat, and putrid breath.
 
-"You're Jason," Brian said. Not a question.
+I looked from above into the opened breech.
 
-"Yeah. Nice to meet you both."
+There, where the chamber should lie, no brass was seated. It was a twitching, moist membrane of pink tissue.  
+Dirt fell from my own sleeve. I blinked. My fingers, which a moment ago held the cloth, were numb and gray with grime. Beneath my fingernails sat firm, black mud.
 
-Neither of them said it was nice to meet me. Tim just nodded, once, like he was filing me away for later.
+From shock, I pushed the weapon away from me. It struck with a dull, organic thud upon the wooden board of my desk—as if it were made of flesh and iron at the same time.
 
-Brian showed me round. The reception area, the chapel, the viewing room with its heavy velvet curtains, and finally down a narrow corridor to what he called "the prep area" — cold, tiled, smelling faintly of bleach and something underneath the bleach I didn't want to think too hard about. Along one wall was a bank of steel drawers, the kind you've seen in films, each one big enough to hold a person.
+The toggle-joint still stood open. From the throat of the mechanism pushed not the casing of a 9mm cartridge. It was a tiny, pale human finger. It was moist, sinewy, and curled itself slowly upward, as if searching for support.  
+I took a step back from the desk, but my knee buckled. My legs felt rigid, as though stuck hip-deep in icy mud. The odor of burnt skin and old powder rose into my nose, so intense that I became sick.
 
-"Bodies go in here till they're processed," Brian said, patting one of the handles like it was a filing cabinet. Tim watched me the whole time and said nothing.
+The Luger upon the desk surface moved. The toggle-joint began, step by step, to *pump*.
 
-About an hour in, Brian told me it was time to move someone through to the chapel for the next morning's service. He wheeled out a trolley with a black bag on top, unmistakably body-shaped, and nodded for me to take the other end. My hands were shaking a little as I gripped the cold rail. We started pushing it down the corridor, and I was doing my absolute best not to think about what was inches from my fingers.
+*Klack.*
 
-Then the bag lurched.
+The moist finger pushed itself further out. Behind it followed a second one. A third joint.  
+*Klack.*
 
-I froze. It moved again, violently this time, and a hand shot out from the zip and the whole thing convulsed as Tim sat bolt upright inside it, roaring with laughter. I screamed — properly screamed — and stumbled back into the wall. Brian was already doubled over, wheezing, slapping his knee. Tim clambered out of the bag, tears streaming down his face, gasping "you should've seen your face" over and over.
+The metal of the barrel transformed itself. The deep traces of bluing looked now like dark, dead veins. At each mechanical snapping of the joint, the space around me contracted. My field of vision narrowed itself to this single point of iron and bone.
 
-I told them I was done. I meant it. I was already halfway to grabbing my coat when Brian caught my arm, still chuckling, and told me not to take it personally. "Tim's just like that. Loves a wind-up. Means nothing by it." He said the best thing to do was get him back — that Tim did rounds on the drawers every hour, checking temperatures, and that if I hid inside one, I could pop out and terrify him right back. Fair's fair, he said.
+I bent forward and reached for the barrel, intending to hurl the weapon through the skylight above me. But as soon as my skin touched the iron, it was too late.
 
-Against every instinct I had, I agreed. Brian picked me a drawer, told me to get comfortable, and slid me inside with a wink before the door clicked shut.
+The coldness of the metal did not merely cut into my skin—it *sucked* itself tight. The toggle-joint snapped closed with merciless force. It did not lock itself around a cartridge casing, but around my own thumb.  
+A sharp, dry pain shot through my arm, directly into the shoulder.
 
-It was colder in there than I expected. Properly cold, the kind that gets into your teeth. I lay in the dark listening to my own breathing, waiting for footsteps.
+The iron was hungry. I felt how the mechanism of the Luger began to drink my blood through the pores of the wooden grip scales. The wood became darker, softer, swelling up like a greedy sponge.
 
-Then, out of habit more than anything, I turned my head to the side. Through the gap where my drawer met the next one, I could just make out a shape in the dark. A dead body, a few feet away. I tried to remain still. And for a moment I'm sure I saw it move in the darkness, but I knew it must've been my mind playing tricks on me. Dead people don't move. Right?
+I wanted to scream, but from my throat issued only a dry, metallic rattling sound.
 
-Then it's eyes opened.
+The toggle-joint buckled once more. *Klack.* And with that sound, a memory shot into my head that did not belong to me: A dark trench in November of 1917. The stench of sweat, gangrenous flesh, and fear. A man cowering in the mud, his fingers locked rigidly around that same metal, while the trench wall collapses over him.  
+The man was not my father. It was the first nourishment of the weapon.
 
-"Cold in here, isn't it, mate?"
-
-I don't remember deciding to move. I just remember the crack of my skull against the top of the drawer, white light exploding behind my eyes, and then Tim's laughter right beside me, and Brian's laughter echoing in from the corridor, both of them absolutely gone, wheezing, gasping for air.
-
-I handed in my resignation the next morning. Told my dad I found the shifts unsociable. Which, in fairness, wasn't a lie.
+I looked down at my hand. The metal of the Luger was no longer merely pressed against my skin. The bluing pushed itself in fine, dark grooves beneath my pulse. The weapon needed no one to pull the trigger.  
+It was the trigger. And it had just reloaded itself.
