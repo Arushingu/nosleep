@@ -1,43 +1,61 @@
-# The Legacy in the Oiled Paper
-When my father died, he did not leave much to me. A stuffed attic room full of yellowed field post letters, a rusted horseshoe, and a heavy package wrapped in resinous oil paper. I brought it down into my study and placed it upon the wooden desk, directly beneath the skylight.
+# When I was a child, my parents would sing to the moon.
+Hey guys, I’ve never posted on here before but I’ve been revisiting… incidents from my childhood and wanted some feedback. Or, hopefully, similar experiences because I feel like I’ve opened a door I can no longer close and I’m spiraling. 
 
-When I unfolded the sticky layers, it lay before me: a *Pistole 08*. An old Luger.  
-The wood of the grip scales was worn down, the iron dark and stained. Yet what fascinated me immediately was the toggle-joint. That precise, mechanical marvel did not seem like a relic from the war, but like a cold, metallic insect in a lurking stillness.
+For context, I’m in my thirties, I have a family of my own (wife, two kids) and my career is solid. I’ve always thought of myself as lucky. I came from an upper-middle class family and never really wanted for anything as a kid. We had money, maybe not an overabundance, but still comfortable in a cozy, if generic, suburban home. I had to choose between an Xbox or PS2, not both. 
 
-I wished to clean the weapon. A pure impulse of conservation.
+I never had a problem making friends in school but was never able to keep them around for very long. The problem, inevitably, was my parents. Anytime a classmate would have a sleep-over or come over after school for a few rounds of Halo, they would never come back. Back in school, they would distance themselves from me, like sitting at a different table in the lunchroom.
 
-I fetched gun oil, a rag, and pressed the catch bolt. The toggle-joint snapped open. A dry, metallic *click* echoed through the room—too loud, too deep for the slope of my study. It did not smell instantly of chemicals, but of wet clay, burnt fat, and putrid breath.
+I never got an explanation but I see now it came down to my parents. They would greet my potential friends like any suburban couple would; offer them drink or food, make lame jokes, the usual. Suddenly, my classmates couldn’t stay long. Their parents needed them home tonight for whatever reason. After that, they would pretend we’d never even met. I could see the fear in their eyes when they were talking to mom and dad. I just figured they were nervous talking to strange adults. 
 
-I looked from above into the opened breech.
+Mikey was the closest I came to having an actual best friend. It was fifth grade and anytime he would come to my house to play video games or watch a movie, he seemed unfazed by my parents. Then, during a PTA meeting, his parents met mine. The next day when I tried to sit next to him in art class, he told me his parents didn’t want him to have anything to do with our family.
 
-There, where the chamber should lie, no brass was seated. It was a twitching, moist membrane of pink tissue.  
-Dirt fell from my own sleeve. I blinked. My fingers, which a moment ago held the cloth, were numb and gray with grime. Beneath my fingernails sat firm, black mud.
+I was confused, of course, but I was used to it by then. It went that way for the rest of my childhood. I had in-school friends but I never got closer. I graduated high school, went off to college, graduated and started my life. My job took me to the other side of the country and my parents were upset about losing me to the west coast but completely understood. 
 
-From shock, I pushed the weapon away from me. It struck with a dull, organic thud upon the wooden board of my desk—as if it were made of flesh and iron at the same time.
+I met my wife out here, married her, and started a family. Zoe was three and Jackson only nine months old when the wife and I finally found time to visit my parents back east. Kristine hadn’t even met them before that. The wedding was originally supposed to be their introduction but my parents both caught the flu and couldn’t make it. I remember she was more than a little upset by that but pushed it aside for the stresses wedding days can bring. 
 
-The toggle-joint still stood open. From the throat of the mechanism pushed not the casing of a 9mm cartridge. It was a tiny, pale human finger. It was moist, sinewy, and curled itself slowly upward, as if searching for support.  
-I took a step back from the desk, but my knee buckled. My legs felt rigid, as though stuck hip-deep in icy mud. The odor of burnt skin and old powder rose into my nose, so intense that I became sick.
+We flew in on a Friday and they took us to their favorite restaurant that night. I thought we had a good time. Later that night, in bed, Kristine turned to me and asked “What’s wrong with your parents?” I had no idea what she was talking about and told her so. 
 
-The Luger upon the desk surface moved. The toggle-joint began, step by step, to *pump*.
+“Like… do they have any conditions that I need to know about?” I put my book down that I had been reading in bed and turned to her.
 
-*Klack.*
+“What are you talking about?” Even I could hear the hurt in my own voice. 
 
-The moist finger pushed itself further out. Behind it followed a second one. A third joint.  
-*Klack.*
+“I don’t know,” she said after a few moments of silence. 
 
-The metal of the barrel transformed itself. The deep traces of bluing looked now like dark, dead veins. At each mechanical snapping of the joint, the space around me contracted. My field of vision narrowed itself to this single point of iron and bone.
+When I finally got to sleep, I had a nightmare. One that used to be recurring as a child but I hadn’t experienced it since I was eighteen. In the depths of the night, when the blue shadows lengthen and drape over the house, transforming a home into something alien and potentially dangerous, I heard the song again. It rose from the basement like it always had, like something necrotic and ancient raising itself from the depths of an ocean. A song I could never understand.
 
-I bent forward and reached for the barrel, intending to hurl the weapon through the skylight above me. But as soon as my skin touched the iron, it was too late.
+In my dream, like always, I rose from bed and walked slowly through the transformed house. The shadows were alive and gently caressed me as I passed. They sang to me in unison with the hymn of the basement. As if in a trance, I would open the basement door and descend slowly into the darkness.
 
-The coldness of the metal did not merely cut into my skin—it *sucked* itself tight. The toggle-joint snapped closed with merciless force. It did not lock itself around a cartridge casing, but around my own thumb.  
-A sharp, dry pain shot through my arm, directly into the shoulder.
+The floor of the cellar was the earth itself. It had never been finished and my parents liked it that way. It gave them the freedom to bury whatever secrets they needed to disappear. And against the far stone wall, with their backs to me and arms held out wide and upward, were my parents. 
 
-The iron was hungry. I felt how the mechanism of the Luger began to drink my blood through the pores of the wooden grip scales. The wood became darker, softer, swelling up like a greedy sponge.
+They sang to the moon. The hymn was slow and rhythmic. Full of malice and comfort like a painless death.  The moon that hung above us was not our Moon, the one that emerged from the horizon every night. This one was special. It hung above us in the void and vibrated with pleasure of the godless hymn. 
 
-I wanted to scream, but from my throat issued only a dry, metallic rattling sound.
+I would always wake just as my parents turned to face me, just before I could see what their faces held. Whether it was ecstasy or terror, I don’t want to know. The answer is locked behind a door in my mind. I don’t want to open it.
 
-The toggle-joint buckled once more. *Klack.* And with that sound, a memory shot into my head that did not belong to me: A dark trench in November of 1917. The stench of sweat, gangrenous flesh, and fear. A man cowering in the mud, his fingers locked rigidly around that same metal, while the trench wall collapses over him.  
-The man was not my father. It was the first nourishment of the weapon.
+Kristine was polite for the rest of the trip but I could tell she kept my parents at arms length. And she would never leave them alone with the kids. I saw fear in her face when she looked into my eyes. She was searching for something. Then she would relax and hug me. Whatever she was afraid to see in my eyes never appeared. 
 
-I looked down at my hand. The metal of the Luger was no longer merely pressed against my skin. The bluing pushed itself in fine, dark grooves beneath my pulse. The weapon needed no one to pull the trigger.  
-It was the trigger. And it had just reloaded itself.
+Our marriage is strained now. I can tell the fire of our love is fading and she’s thinking about exit strategies. My parents always seemed so normal to me. I couldn’t tell at the time what it was that drove humanity away from them. I thought back to their jobs. I never saw evidence of any sort of work, but I guess that’s somewhat normal. They were always home, though. They told me they both got off work before I arrived home from school. It was strange, in retrospect. 
+
+But what's driven me to post here, to search for anyone who can give me answers or empathy at the very least, is the nightmare. The memory of it resurfaced after our trip. It started like every other one I had up till this point. 
+
+Descending from the second floor to the basement was a ritual. I counted my steps. Each breath I took. They were always the same. The shadows watched me through hungry eyes. The wooden steps leading to the cellar felt like they were vibrating beneath my feet. 
+
+The basement was no longer a basement. It was a meadow of rolling darkness, curling at the edges and pulling towards the center like the legs of a dead spider. Standing at the heart were my parents. The vibrating staccato of their song carried in the fractured air. Above, the Moon hung, basking in its own pleasure.
+
+My parents were no longer my parents. Joined at the waist, it looked as if they were embracing under the watchful eye of the Moon. I didn’t want to see anymore but my feet carried me forward and I could see in the Moonlight how my Mothers skin undulated like ocean waves in a storm. Soft tendrils of pink flesh popped from my Fathers chest and wormed their way through the air, blind and desperate.  Their clothes were torn as their flesh rebelled against the form they had taken for too long. Their legs had fused together in a tangle of pointed bone and skin pulled so tight it was almost transparent. Toes, still free from the conjoining, moved in unison, vibrating with pleasure.
+
+I’m not sure how long I watched. I don’t know how much the Moon wanted me to see. I couldn't move. The Moonlight was a physical frequency, wrapping its dark fingers around my mind like a vice. 
+
+In this nocturnal realm, there were graves. Two stones marking two neat piles of dirt. Had I buried bodies down here? Vague snippets of forgotten life; young fingers crusted with dirt and broken finger nails. I knew who was buried there but my mind rebelled. 
+
+The ritual under the Moon had commenced. The song is all there was. The eyes. The eyes of my parents. The skin ripped apart and popped like wet rubber bands. The bones snapped like chalk. There was nothing inside. Nothing. A shambling puppet of meat. Except the eyes. The eyes were an ocean of control and pain and they held no love for me. White glint in an orb of malevolent darklight. Arms that weren’t arms reaching towards me. Embracing. The Moon vibrated with pleasure. The Song lived on.
+
+I woke up screaming at that point. We flew home after a few days with my parents. The kids had a good time. Especially Zoe. I think she bonded with my Mother. Kristin was distant. She found excuses to get out of the house. She no longer looks me in the eyes. I went through her emails the other day. She’s planning on leaving me. I’m scared to look in the mirror. I’m scared to see my own eyes.
+
+My parents are declining. It's been a few months since our visit and the dream. Their health is in freefall. The doctors have no answers other than that my parents' bodies are giving out on them, in unison. He told me it was a good thing.
+
+It was just a nightmare. The vibrating intensity in my mind is not the soft Moonlight.
+
+I worry for my children and how they’ll handle the coming divorce. Jackson is too young to know but Zoe is at the age where trauma can stain her life forever. Kristin is spending less time with them too. Something has changed in the house. There is no Mother and Father anymore.
+
+I don’t know why I’m posting this here. Typing these words hasn't helped. Nobody can help me now. I’m scared to look in the mirror. I’m scared to look my children in the eyes and what I might see there. 
+
