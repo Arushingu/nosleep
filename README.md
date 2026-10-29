@@ -1,61 +1,141 @@
-# When I was a child, my parents would sing to the moon.
-Hey guys, I’ve never posted on here before but I’ve been revisiting… incidents from my childhood and wanted some feedback. Or, hopefully, similar experiences because I feel like I’ve opened a door I can no longer close and I’m spiraling. 
+# Something inhuman has arrived in town and is pretending to be a cop. It knows I'm on to it.
+Officer Marlowe is not a cop. In fact, he’s not human at all. I’m sure of it.
 
-For context, I’m in my thirties, I have a family of my own (wife, two kids) and my career is solid. I’ve always thought of myself as lucky. I came from an upper-middle class family and never really wanted for anything as a kid. We had money, maybe not an overabundance, but still comfortable in a cozy, if generic, suburban home. I had to choose between an Xbox or PS2, not both. 
+I met him on Sunday, the 18th. It’s the wee hours of Saturday morning, the 25th, and things have drastically deteriorated. I can smell his cigarette smoke downstairs and hear my sister’s laughter, so soft and bright, like ice clinking in a glass.
 
-I never had a problem making friends in school but was never able to keep them around for very long. The problem, inevitably, was my parents. Anytime a classmate would have a sleep-over or come over after school for a few rounds of Halo, they would never come back. Back in school, they would distance themselves from me, like sitting at a different table in the lunchroom.
+I’ve packed my backpack, just a book, a change of clothes, and plenty of extra socks. I’m staring out my window, my laptop perched precariously on the sill, my moon-and-stars drapes flapping in the breeze. I’ve never jumped from this high before. The steepest drop I’ve jumped from was from the equipment shed behind my old middle school. Fifteen feet. I dropped into a pile of tires, knocked all the air from my lungs, and wobbled to my feet, grinning. But there was no HVAC unit behind the equipment shed. Ours hums directly below the window, the fan spinning so fast I can't even see the blades. Maybe this is why I’m writing this. I’m stalling, trying not to imagine the fan chopping up the toes of my sneakers.
 
-I never got an explanation but I see now it came down to my parents. They would greet my potential friends like any suburban couple would; offer them drink or food, make lame jokes, the usual. Suddenly, my classmates couldn’t stay long. Their parents needed them home tonight for whatever reason. After that, they would pretend we’d never even met. I could see the fear in their eyes when they were talking to mom and dad. I just figured they were nervous talking to strange adults. 
+Sunday had been a good day. A perfect day, even. I was finishing up my errands in town, admiring the pumpkins in my neighbors’ windows and the oversized skeletons and inflatable ghosts swaying on their lawns. I live in a rural town, all white picket fences and fresh coats of white paint on vinyl-sided ranch homes. We don’t even have a Walmart; we have little shops where you have to have fifteen-minute conversations with the owners to get your meat or eggs. The kind of shopkeepers who still wrap your wares with butcher paper and tie them tightly with twine before sliding them over the counter with a wink.
 
-Mikey was the closest I came to having an actual best friend. It was fifth grade and anytime he would come to my house to play video games or watch a movie, he seemed unfazed by my parents. Then, during a PTA meeting, his parents met mine. The next day when I tried to sit next to him in art class, he told me his parents didn’t want him to have anything to do with our family.
+My sister, Ella, fits in perfectly. She’s ten years older than me and owns the house we share. She also owns the town's florist shop, wears flowy long dresses decorated with cherries or polka dots, and hums almost every second of her life. Willowy, graceful, and utterly uninterested in anything but her flowers. You’d think we’d hate each other. You will not catch me dead in a dress and every plant I touch wilts, but our differences complete each other. She’ll labor for hours over table settings and plates and which fork goes where, and I’ll cook. She can’t cook to save her life; that’s her secret. I can make the best tart you’ve ever had; that’s mine.
 
-I was confused, of course, but I was used to it by then. It went that way for the rest of my childhood. I had in-school friends but I never got closer. I graduated high school, went off to college, graduated and started my life. My job took me to the other side of the country and my parents were upset about losing me to the west coast but completely understood. 
+Sunday, after making my rounds with the neighbors and enjoying a pitcher of sweet tea on Ms. Clara’s porch, I grabbed a fistful of dandelions and headed to Ella’s shop. The bell jangled against the door, and I held up my flowers. “Turn this into an arrangement!”
 
-I met my wife out here, married her, and started a family. Zoe was three and Jackson only nine months old when the wife and I finally found time to visit my parents back east. Kristine hadn’t even met them before that. The wedding was originally supposed to be their introduction but my parents both caught the flu and couldn’t make it. I remember she was more than a little upset by that but pushed it aside for the stresses wedding days can bring. 
+I’d been doing this for years. Grabbing weeds and spidery brown plants that grew in the cracks of the sidewalk and asking my sister to put them into one of her arrangements. She always obliged, and they always, somehow, looked beautiful. But this time she flung herself up from below the counter, shattering a spotted vase filled with roses.
 
-We flew in on a Friday and they took us to their favorite restaurant that night. I thought we had a good time. Later that night, in bed, Kristine turned to me and asked “What’s wrong with your parents?” I had no idea what she was talking about and told her so. 
+“Maggie! What are you doing here?” She smoothed her hair, her face so red it was almost purple.
 
-“Like… do they have any conditions that I need to know about?” I put my book down that I had been reading in bed and turned to her.
+I frowned at this. Shrugged. I’d never needed a reason to be here before. “So, can you make this into an arrangement?”
 
-“What are you talking about?” Even I could hear the hurt in my own voice. 
+“No. I think you should leave.”
 
-“I don’t know,” she said after a few moments of silence. 
+She might as well have been speaking another language. I tilted my head, tasting the word. “Leave?”
 
-When I finally got to sleep, I had a nightmare. One that used to be recurring as a child but I hadn’t experienced it since I was eighteen. In the depths of the night, when the blue shadows lengthen and drape over the house, transforming a home into something alien and potentially dangerous, I heard the song again. It rose from the basement like it always had, like something necrotic and ancient raising itself from the depths of an ocean. A song I could never understand.
+The back room door creaked open. The man who exited and stood behind the counter was at least a foot taller than Ella, and Ella was taller than me, so I had to crane my neck back to meet his eyes. He wore a cop’s dark blue uniform and had a shiny badge and equally shiny handcuffs dangling from his belt. His muscular arms bulged against his sleeves, his features blocky and traditionally handsome. Blue eyes, square jaw, manicured brows, hard nose. My frown deepened. “Who are you?”
 
-In my dream, like always, I rose from bed and walked slowly through the transformed house. The shadows were alive and gently caressed me as I passed. They sang to me in unison with the hymn of the basement. As if in a trance, I would open the basement door and descend slowly into the darkness.
+He offered me his hand. I didn’t take it. “I’m Officer Marlowe,” he said. No first name. “I’m new in town. "You're Ella’s sister, right?”
 
-The floor of the cellar was the earth itself. It had never been finished and my parents liked it that way. It gave them the freedom to bury whatever secrets they needed to disappear. And against the far stone wall, with their backs to me and arms held out wide and upward, were my parents. 
+“Right.”
 
-They sang to the moon. The hymn was slow and rhythmic. Full of malice and comfort like a painless death.  The moon that hung above us was not our Moon, the one that emerged from the horizon every night. This one was special. It hung above us in the void and vibrated with pleasure of the godless hymn. 
+I had never seen Ella look at anybody the way she looked at Officer Marlowe. It was an expression reserved for her hydrangea bushes on a perfect spring day.
 
-I would always wake just as my parents turned to face me, just before I could see what their faces held. Whether it was ecstasy or terror, I don’t want to know. The answer is locked behind a door in my mind. I don’t want to open it.
+“You have a wonderful town,” he said. “And a wonderful sister.”
 
-Kristine was polite for the rest of the trip but I could tell she kept my parents at arms length. And she would never leave them alone with the kids. I saw fear in her face when she looked into my eyes. She was searching for something. Then she would relax and hug me. Whatever she was afraid to see in my eyes never appeared. 
+The hairs on the back of my neck prickled. I hadn’t seen a cop car parked outside.
 
-Our marriage is strained now. I can tell the fire of our love is fading and she’s thinking about exit strategies. My parents always seemed so normal to me. I couldn’t tell at the time what it was that drove humanity away from them. I thought back to their jobs. I never saw evidence of any sort of work, but I guess that’s somewhat normal. They were always home, though. They told me they both got off work before I arrived home from school. It was strange, in retrospect. 
+As I write this, I know I sound overprotective. But I *know* my sister. She falls hard, but she likes her men like her flowers. Thin, expressive,  bright. I can’t count how many artists she’s dragged into our house. I almost felt sorry for them.
 
-But what's driven me to post here, to search for anyone who can give me answers or empathy at the very least, is the nightmare. The memory of it resurfaced after our trip. It started like every other one I had up till this point. 
+And *if* she fell for the traditional types, she’d already be married. Every cop in town has come to her with his hat in his hands, hoping she'll be his little wife. And she’s rejected them all.
 
-Descending from the second floor to the basement was a ritual. I counted my steps. Each breath I took. They were always the same. The shadows watched me through hungry eyes. The wooden steps leading to the cellar felt like they were vibrating beneath my feet. 
+I looked down at my reflection in the glass countertop. Officer Marlowe leaned over it. “Whatcha looking at?” he asked.
 
-The basement was no longer a basement. It was a meadow of rolling darkness, curling at the edges and pulling towards the center like the legs of a dead spider. Standing at the heart were my parents. The vibrating staccato of their song carried in the fractured air. Above, the Moon hung, basking in its own pleasure.
+I looked up at him. Back down at the glass. Up at him again.
 
-My parents were no longer my parents. Joined at the waist, it looked as if they were embracing under the watchful eye of the Moon. I didn’t want to see anymore but my feet carried me forward and I could see in the Moonlight how my Mothers skin undulated like ocean waves in a storm. Soft tendrils of pink flesh popped from my Fathers chest and wormed their way through the air, blind and desperate.  Their clothes were torn as their flesh rebelled against the form they had taken for too long. Their legs had fused together in a tangle of pointed bone and skin pulled so tight it was almost transparent. Toes, still free from the conjoining, moved in unison, vibrating with pleasure.
+“You don’t have a reflection,” I blurted.
 
-I’m not sure how long I watched. I don’t know how much the Moon wanted me to see. I couldn't move. The Moonlight was a physical frequency, wrapping its dark fingers around my mind like a vice. 
+I saw something in his face. Just a flash, so fast I could’ve imagined it. The red in his cheeks. The twisting of his mouth into a snarl, the eyes popping. Then he smoothed his expression back into a placid smile. I backed away from the counter, watching my sister place her hand on the crook of his arm.
 
-In this nocturnal realm, there were graves. Two stones marking two neat piles of dirt. Had I buried bodies down here? Vague snippets of forgotten life; young fingers crusted with dirt and broken finger nails. I knew who was buried there but my mind rebelled. 
+“Uh, Ella, can I talk to you in private?”
 
-The ritual under the Moon had commenced. The song is all there was. The eyes. The eyes of my parents. The skin ripped apart and popped like wet rubber bands. The bones snapped like chalk. There was nothing inside. Nothing. A shambling puppet of meat. Except the eyes. The eyes were an ocean of control and pain and they held no love for me. White glint in an orb of malevolent darklight. Arms that weren’t arms reaching towards me. Embracing. The Moon vibrated with pleasure. The Song lived on.
+“Nope!” she chirped.
 
-I woke up screaming at that point. We flew home after a few days with my parents. The kids had a good time. Especially Zoe. I think she bonded with my Mother. Kristin was distant. She found excuses to get out of the house. She no longer looks me in the eyes. I went through her emails the other day. She’s planning on leaving me. I’m scared to look in the mirror. I’m scared to see my own eyes.
+The dandelions were still in my hand, the dirt all over my fingertips. I focused on the soft, wilted stalks to ground myself. And then I tore out of the flower shop, heaving. It had to be a trick of the light. Maybe my eyes just didn’t work. He *had* to have a reflection.
 
-My parents are declining. It's been a few months since our visit and the dream. Their health is in freefall. The doctors have no answers other than that my parents' bodies are giving out on them, in unison. He told me it was a good thing.
+I walked into the pet store, just for a change of scenery. It was close to four and shops would be closing soon. Larry, the store owner, stared at me in the middle of an aisle, his hands full of writhing grasshoppers. They crawled up his arms and clung to his sleeves, their antennas wiggling. “Hi, Maggie! Have you met Officer Marlowe? He’s new in town, and he’s a great guy!”
 
-It was just a nightmare. The vibrating intensity in my mind is not the soft Moonlight.
+I slammed the door.
 
-I worry for my children and how they’ll handle the coming divorce. Jackson is too young to know but Zoe is at the age where trauma can stain her life forever. Kristin is spending less time with them too. Something has changed in the house. There is no Mother and Father anymore.
+Next, the butcher shop. Mr. Smith regarded me with a sunny smile, a shiny cleaver in each hand. “Maggie, you should meet Officer Marlowe. I feel a lot safer with him in town. He’d probably make you feel safer, too.”
 
-I don’t know why I’m posting this here. Typing these words hasn't helped. Nobody can help me now. I’m scared to look in the mirror. I’m scared to look my children in the eyes and what I might see there. 
+Considering that in my twenty-six years of living here, Mr. Smith has only communicated with me through points and grunts, you can probably understand why I turned and ran.
+
+Me and Ella live in an old two-story brick house, only a few feet from Main Street and across from a little white church. I had made it most of the way home when I spotted Officer Marlowe swaggering toward me from across the street. I picked up my speed, gasping for air, my side in stitches, but when I blinked, he was standing in my driveway. His hands swung at his sides, his fingers stroking the colorful heads of Ella’s zinnias.
+
+His bright blue eyes sparkled as he took me in. “Something’s wrong with you, Maggie. You don’t see me like the others do.”
+
+My heart smashed against my ribs like the thrashing of a caged animal. “W-what are you?” Not who. *What.*
+
+His eyes darkened, but he stepped away from my front door. I flung myself toward it, knocking over one of Ella’s many ceramic gnomes.
+
+His voice receded behind me.
+
+“I’d skip town if I were you, Maggie. I don’t think you’re really our *kind*.”
+
+I whipped my head around, but he was gone, the street entirely empty. No cop car, no footsteps, not even his shadow trailing away. It was like he’d never been there at all.
+
+\*\*\*
+
+The next few days were normal. Ella tended to her flowers, insisted on making tortellini, and somehow managed to burn the little round pasta pieces. I asked her if she had a crush on the new cop, and she laughed so hard that she knocked her plate to the ground and then laughed at that. Larry talked to me for an hour about Tokay geckos. Mr. Smith grunted and pointed. I went to work.
+
+I’m a temp at a landscaping company. Though I’ve been a ‘temp’ for six years now. I file papers, send invoices, occasionally answer the phone, and write Facebook posts. I spend much of my day, maybe too much, playing online solitaire.
+
+It all changed today.
+
+I work half-days on Saturday. It was 12:35. I remember it down to the minute. I had twenty-five more minutes left of my shift, and I was flipping over virtual cards on a green background. The phone rang, and I reached for it, but my boss picked it up instead.
+
+I liked Ms. Dana. She bleached her hair pale blonde every two weeks and wore beige sweaters and caramel boots, even in the summer. Me and Ella had dinner over at her house every week, all of her decor ripped straight of the pages of Southern Home magazine. She made a delicious pecan pie and kept the best bourbon in a crystal decanter.
+
+Right now, Ms. Dana cradled the phone in her soft hands, sunlight flashing off her French manicure. “Oakhurst Landscaping—Officer Marlowe! What a pleasant surprise!”
+
+I’d stood up so fast that my chair scraped hard on the linoleum floor. I watched Dana’s brows pinch together and her smile turn down. Her eye flicked from me to the receiver and back again. “Maggie? I don’t think—yes, of course. Of course. I’ll be waiting for your instructions."
+
+Dana gently put the phone back in its cradle and pointed toward her office door. The corners of her mouth wobbled. “Will you follow me into my office, please?”
+
+I should’ve run, but I guess I thought I knew Dana well enough that I could talk her out of whatever Officer Marlowe told her. I nodded and followed her in.
+
+Her office was a microcosm of her home. Knick-knacks, mostly grinning babies and porcelain angels, lined her three oversized bookshelves. Frothy white drapes framed the windows. A ‘Bless this Mess’ sign hung from the door, and a fresh pumpkin sat on her desk. The air smelled sickeningly of vanilla candles, though not a single one was in sight.
+
+“I don’t want to make a fuss about this.” Dana held her hand out to me. “Hand over your purse.”
+
+My heart banged, but I obeyed. I watched Dana overturn my leather bag, my hunting knife, mace, and key ring rolling to the ground. She flipped through my wallet, scattering the plastic cards on her desk. Her frown deepened. “Can I have your jacket?”
+
+I slid it off my shoulders and handed it to her. She scoured my pockets desperately, but I knew they were empty except for a few crumpled receipts.
+
+“Dana?” I asked. I didn’t like that my voice trembled. It didn’t sound like me.
+
+Her eyes were suddenly wild. “Officer Marlowe says you’ve been stealing money from our cash tills. He doesn’t want to embarrass you, honey, so he asked me to perform the search. If you don’t have it on you, you can leave. We’ll have pot roast and asparagus tomorrow.” Her eyes fluttered around the office, avoiding mine. “We’re two ladies. There’s nothing to be embarrassed about.”
+
+“You *know* I haven’t stolen anything from you.”
+
+She sucked in a breath. “I need your clothes. All of them.”
+
+I stepped back. “You mean—”
+
+“I’ve been authorized to search you. It’s this, or you get arrested, and I don’t want that for you.”
+
+My body moved before my brain could catch up. I picked up the pumpkin and threw it at the window. It tumbled impotently to the floor. Dana lunged to catch me, but I rushed past her, flung the pane open, and tumbled outside to the freshly cut grass. This would all go away. If I could get rid of Marlowe, then everything would go back to normal. *He’d* caused this, *he* had a vendetta against me. Because I *knew* there was something wrong with him.
+
+I tore through town to get to our front door. I didn’t have my key, so I grabbed the spare from under one of the gnomes. I threw the door open, and Officer Marlowe stood in the foyer, Ella curled around his shoulder. Her long fingers stroked his cheek.
+
+“Maggie! Isn’t it so exciting? We’re getting married!”
+
+His eyes. Staring into mine. Swallowing them. His mouth, twitching into the tiniest smirk.
+
+I dove under his legs and pounded up the stairs. Shoved my bed against the door. Paced.
+
+Here I am, now. Ella’s old records playing, the sounds of their laughter trickling up the stairs. I can hear them, stumbling, dancing. I can smell his cigarette. Ella would *never* let a man smoke in the house. One time, when I’d just turned eighteen, she caught me smoking a cigar behind Dad’s old desk and she chased me through the halls with a frying pan.
+
+It’s been hours. I’ve been crying, silent sobs, my ribs aching from the frantic flexing and falling of my chest.
+
+They’re still dancing downstairs.
+
+I look down at the whirring HVAC unit. If I land right, knees bent, on both feet, I’ll be fine. At worst, I might sprain an ankle. I’ll break into my work through a window and take back my wallet. I’ll get out of town and think of a plan to get my sister out of this. Find a way to convince her that she’s marrying a demon or at least a scary, scary man.
+
+But if I hit the HVAC unit, the fan will catch my shoes or hair. My bones will break against the metal and I won’t be able to escape Officer Marlowe’s big arms. I take a slow, trembling breath. If I’m alright, I’ll post again. If not, I won’t. Just another frightened voice calling out in the dark.
+
+Officer Marlowe shouts from below. The stairs creak under his weight. “Come down, Maggie. I just want to talk.”
+
+His voice is buzzing, like the clicking of a thousand insects.
+
+One more breath. And then I jump.
 
