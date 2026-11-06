@@ -1,468 +1,53 @@
-# My boss got into a horrible accident...now he is obsessed with me.
-My boss is psychotic.
+# I Saw Nothing
+**Part 1 Outside**
 
-No, it’s not an exaggeration. I know it sounds dramatic. But trust me, this isn’t a petty “my boss is an asshole” rant that you hear from white collar dudes when their manager gets pissy with them for taking too many breaks. I’ve been there too, but this isn’t that. 
+I was at my grandparents' house, in the dining room, playing cards with my parents and uncles. It was around 11 o'clock, maybe closer to midnight. I was 12 years old and it was summer break. I was visiting my grandparents’ house in Maine for a family reunion. The house was in a very rural area and the closest town was about an hour drive away. You couldn’t see any of the closest houses from any point on the multi-acre, farm-like property. I mean, it was really in the middle of nowhere. I remember having the worst nightmares about that place for a good deal of my childhood. I remember some about spiders. Some about clowns. Some about, strangely enough, mummies.  But none of them were as terrifying as what happened that night.
 
-He’s a freak. 
+So, we were playing cards and I had been drinking a lot of Pepsi that night so I had to pee… real bad. I got up from the table, ran to the bathroom, and heard the shower running. I knocked on the door and my uncle Greg was in the shower.  I just saw him in the living room moments ago so I knew this shower had just started. It was the only bathroom other than the one in the basement.  And I couldn’t go to the one in the basement. I never could; That basement was- and still is- very scary. Just dark, concrete, and weird metal sounds coming from the old wood-burning furnace. But, honestly, looking back I really wish I just went to the cellar bathroom. 
 
-Bat-shit insane.
+My scared 12-year-old mind had no other choice but to go outside at night to relieve my bladder. Now, I wasn’t stupid, I knew there was a motion sensor light on the side of the house, so once I got there I would have plenty of time in the light to pee. I stood at the front door grasping the old brass knob in my hand. I could feel some bumps and scratches from years of use. Squeezing the cool metal helped me gather my courage enough to go out into the dark night. I opened the door and ran out of the house as fast as I could, jumping off the porch. And safely making it to the side of the house with the motion sensor light. It turned on and I started to pee.
 
-And frankly, I’m terrified. 
+I wasn’t much into my piss when I started to feel a real eerie, heavy feeling. Suddenly, I felt my eyes begin to water. I looked up and saw an empty field and a dark treeline at the horizon... Then, I saw it... My pee stopped immediately and a shiver went up my spine. I was frozen. In the distance, along the treeline, I saw something, I couldn’t tell what it was. I knew it was something because it was blacker than the rest of the dark. It was a shadow and it was taller than the trees. But I could barely make it out. I felt it, the presence of an entity that knows you are there. This was definitely not an animal or a human. I knew it was alive. I remember thinking “is my mind playing a trick? Is this real.”  Then the motion sensor light went out. And it got dark.
 
-I’m scared of what he’s done. What he will do. To me. To my coworkers.
+I don’t know if you have ever experienced middle of nowhere darkness. But it went from light bulb bright to pitch black. I couldn’t see my own hands if I had the strength to move them at the time. In this pitch black nothingness, my eyes were still focused on it. The thing I saw. I could still see its darkness through the pitch black. I couldn’t move, I was terrified to take my eyes off it. I don’t know how much longer I stood there, paralyzed, trying to figure out what this thing was, but eventually my uncle came out and yelled “Bathroom’s free.” I snapped out of it, I turned around as quickly as I could and ran to the front door, making sure not to look back. I made it in safely and I didn’t tell anyone what I saw. I was scared they wouldn’t believe me. I mean, I don’t even know what I saw.
 
-To be fair, this is a new development. He wasn’t always like this. Sure he was a terrible boss, but a monster? Not in the slightest.
+The next night I couldn’t hold it and curiosity got the best of me. Somehow, I found myself back at the front door grasping at the doorknob. I was there for a little longer this time and was squeezing the handle a lot harder. I swear, I made more dents in it that night, I was grabbing it so tight. But I found the courage to go out into the dark again, running to activate the light. It turned on and I looked out. I scanned the shadowed treeline for so long. And I saw nothing… there was nothing there. And yet, suddenly, my eyes began to water.
 
-I’ll stop being cryptic. Let’s start from the beginning and you can see for yourself.
+**Part 2 The Basement**
 
-My first day at ClientTale was a big achievement for me. I had just finished my undergrad in Computer Science and was looking to make a splash in big tech.
+Dim light looked back up at me from the bottom of the old wooden stairs. I was standing on the platform at the top, basement door open behind me, a rifle on a deer hoof gun rack to my left, on my right my hand still on the light switch. I never go down there. Why did my grandma ask ME to grab the laundry from the dryer? I’d rather go back outside than go down there. But I was a good kid and she was a sweet and loving lady. I took a few deep breaths and slowly, step by step, made my way down the stairs. When I reached the bottom I looked back up. The door was still open, good. 
 
-Unfortunately, it was less of a splash and more of a stumble.
+At the bottom of the stairs there was a doorless room to the right. It had a separate light in there so the corners of the room were shrouded in shadow. I couldn’t look in there. So my eyes locked on the washer and dryer at the far left corner of the main room. A laundry basket was sitting in front of the front-loading dryer. Thanks, grandma, for at least making it easy. I hurriedly made my way to the dryer, opened it up and with the click of the door popping open- I heard another click- a light switch, the overhead light turned off. A murky purple flash filled my vision as my eyes struggled to adjust to the dark. And I screamed, the type of scream a 12 year old boy makes that sounds more like an 8 year old girl. 
 
-The market was fairly competitive and I couldn’t seem to get any bites no matter how much I put myself out there. My buddies were landing gigs all over the West Coast and I felt like my time was running out. Hundreds of applications and cold emails later, I managed to book some startup interviews. That’s when ClientTale came on my radar. 
+“Ope, sorry.” The light flicked back on. Uncle Greg thought someone left the light on. 
 
-It seemed legit. The website claimed they were “rethinking the way we work and play.” Even now, I don’t know what that means. I couldn’t care less about their hand-wavy culture bullshit. What really sold me was the fact that they were a few series deep in multi-million dollar funding. Tech companies love to spew their pseudo-philosophical narrative but it’s all for show. In the end it’s the money that talks.
+I laughed weakly then heard the door close. Not ideal but certainly better than the darkness. “What could be down here with me?” I wondered, trying to comfort myself.. Whatever I saw outside the past few nights couldn’t be here. It was far too tall. Worst case scenario, a rat, that didn’t sound so bad. I pictured a girl with a white gown and  long hair covering her face crawling quickly behind me. I turned around, nothing there,  just  the long hallway to the right of the stairs. At the end of the hall was the door to the wood storage room, with a small square dirty window. I couldn’t see anything through the grime. I turned back and quickly finished shoveling armfuls of warm clothes into the basket. The warmth soothed my racing thoughts of what could possibly be down here with me. I picked up the laundry basket and turned around.
 
-I did some digging and managed to snag the phone number of their recruiter. After some phone tag, a screening call, and a few grueling tech interviews, an offer letter blipped into my starving inbox. I was elated.
+The small dust covered window caught my eye again. I froze. Moonlight had made its way into that room. I forgot about the hatch door that led to the wood storage room from the back yard. Another entrance, but from outside. I locked on the window, I couldn’t move, how did it change so fast? Then, I saw a shadow, something blocking the moonlight. “Grandpa must be starting a fire.” I told myself, I lied to myself. Something wiped the other side of the window and I could get a better look inside. The shape of a head pushed against the glass. The sound of the hatch door slamming shut, on the other side of that room made me jump. Only darkness through the window again. But the head shape was still there, blacker than any black, a void, like I was looking at nothing. Then why could I feel nothing staring back? The head moved upward leaving the top frame of the window and now what I could only assume was the body covered the entirety of the glass. A darkness coming from that room that was not there before. A darkness so pure that it radiated through that little window and started to creep into the hallway, an impossible murky gloom.
 
-Now, ClientTale isn’t a traditional tech company. If you are picturing a bunch of cringey “day in the life of an engineer” videos you would be wrong. Like most startups, it is small, stressful, and demanding. Now, I am not complaining. This is exactly what I signed up for.
+But what I thought was impossible did happen, no matter how tall, It was inside now.
 
-I got started with a small group of guys developing the platform from the ground up. The other engineers made it sound very Wild West. No limits. Technical freedom. A nerd’s dream.
+Click- the overhead light went out again. I couldn’t scream this time. I could only barely move:  I wobbled. I tried to run; my legs were Jell-O. I could see nothing and I heard the door at the end of the hallway creak open. I saw nothing, yet I made it to the bottom of the stairs. Being there gave me the confidence to run faster and I raced up the stairs. I could feel the presence of the no thing in the basement with me. I tripped and couldn’t catch myself, I was still holding the stupid basket. My shin cracked against the stair in front of me and the clothes exploded out of the basket. I turned around, I could just make out a white sock floating at the bottom of the stairs. I could only see half of it. Floating on nothing as though it were draped over a shoulder. I didn’t linger on that thought for long and made it to the top of the stairs and flicked on the light, turned around, and… nothing there. I caught the sock in the air a second before the sock hit the ground. Proof that something WAS there. 
 
-Oh how wrong I was.
+I opened the door and burst out in tears.  My grandma heard me crying and comforted me, asked me what was wrong. I said I fell and hit my shin. She started picking up  clothes assuring me it was alright. It wasn’t alright but, I couldn’t tell her what I saw, that I saw nothing.
 
-My perception of the job shattered when I met our boss, Meddler.
+**Part 3 The Bedroom**
 
-Meddler isn’t his real name. His last name is Manning. That’s just what the engineering team calls him behind his back. He earned the moniker by constantly "meddling" in our work. Whenever Meddler stuck his thirty-something, platinum-haired, expensive-suit-wearing nose where it didn’t belong, productivity waned.
+My grandmother placed a cup of water on my bedside table, kissed my forehead, and turned off the bedroom light. She held the doorknob and asked if I wanted the door opened or closed. “Closed.” I said assuredly. She had comforted me and I wanted to be brave. I knew a lot of strange things had happened on that trip but I didn’t want to feel like a baby. Plus, I was exhausted, my cousins were staying up a few extra hours to watch a movie but I just wanted to sleep and forget about the events of the past couple days. She closed the door.  
+I lay there in the dark for a while letting my eyes adjust. I could see the angled ceiling of the second story bedroom. The ceiling fan made a squeaky sound as it spun and I took a sip of the water. The bed was comfy and warm. I felt calm and present in my sleepy state. It was then I saw the closet door was ajar. 
 
-Meddler is—or was—your average bad boss. He comes in late, leaves early, and raises hell whenever anything inconvenient happens on the job. The irony is very telling. I meet guys like this all the time, business bros whose quest for recognition stems from their deep-seated insecurity. The more his team gets done without him, the more bruised his ego, the more everyone else needs to pay.
+A chill ran up my spine when I saw it. The shape of something darker than the rest of the room standing in the closet. I jumped up and ran to the light switch. The light turned on and I looked in the closet and… I laughed. A genuine good belly laugh. My grandpa's old dark  brown leather jacket hung crooked on a hanger in the closet. I turned the light off and on again just to double check that was what I saw, it was. I shook my head, closed the closet door, turned off the light and headed back to bed. 
 
-One time our production service was down and Meddler decided it was best to race through the men’s restroom and bang on closed stalls to find the on-call engineer, Geoff. When Geoff was located, Meddler asked if he was willing “pinch it off” to save his job. Geoff obliged. The issue was not urgent, but Meddler made it so.
+I could see through my window that the motion light turned on. I could hear my mom and uncle Greg laughing outside. They must have gone out to smoke a cigarette. It was nice to know there was still fun being had on that trip. That was the plan for tomorrow: have fun.
 
-Another time our QA engineer, Henry, had a medical emergency and had to leave early. Meddler called him later that day to ask how things were. It sounds like a sweet gesture.
+I felt silly for all that happened the last couple days. Now that I confirmed the jacket was just a jacket, it was easier to chalk the rest of my strange sightings to my mind playing tricks on me. I only laid there for a little while before I drifted off to sleep. For the first night in a while I didn’t have any nightmares. And I was happy I saw nothing in my sleep.
 
-It wasn’t.
+I woke up. I had no idea what time it was but it must have still been night because it was dark in the room. I couldn’t see the ceiling. I couldn’t see the ceiling fan. I couldn’t see the closet. I couldn’t see the window. I saw nothing. It hit me. I should have been able to see at least the outline of anything, but I couldn’t. It was then when I realized I couldn't feel the bed. I couldn’t hear the squeak of the fan spinning. It was all nothing. Darker than nothing. There was a cold feeling. Not like a cold that was in the air. But the cold of a vacuum. At first I thought The Nothing  had enveloped the room. I knew what was really happening, The Nothing was right on top of me. Covering me. I screamed and heard nothing. I yelled until my throat ran sore. No noise to be heard. Then, my eyes began to water.
 
-One of the nurses let Henry know that Meddler showed up to the hospital later that night. He posed as an uncle and quizzed the nurses on Henry’s family emergency just to make sure the story lined up. Henry thought he was trying to be sneaky but I knew better. Meddler wanted Henry to know he was there.
+**Final Part Present Day** 
 
-Now, how does someone like Meddler end up working as manager at a snazzy new startup? The answer is simple.
+It’s been years, even decades since that summer. I haven’t been back to that house since my grandparents passed away some years ago. I do miss that old house but I do think maybe it’s for the best that I move on.
 
-Nepotism.
+I’m still not sure what really happened that summer. Maybe a kid's overactive imagination, maybe distance and grief changed a memory into something it wasn’t. Maybe something did happen, then again probably Nothing.
 
-Meddler’s dad is a big name in Silicon Valley and has a substantial stake in ClientTale. Meddler had just finished his business degree at Yale and daddy decided to pull some strings. Now we’re stuck with him.
-
-I’m sure by now you’re feeling a bit underwhelmed by Meddler. A micro-managing nepo baby doesn’t sound like the devil, after all. 
-
-You’re right.
-
-If you recall my warning, something changed in Meddler. A month ago, Meddler got into a bad accident. He took daddy’s Porsche out for a joyride after one-too-many drinks and ended up wrapping it around a tree. By some miracle, he ended up being tossed into a ditch by the road, suffering minor enough injuries that only warranted a short hospital stay. We joked that even death didn’t want Meddler.
-
-Terrible, I know.
-
-When Meddler recovered and rejoined us back at the office, he wasn’t himself. His loud and aggressive demeanor was replaced with something sullen and reserved. The fire in his eyes was out. He gained weight, let brown roots take hold under his platinum receding hair, and wore the same dirty, ill-fitting suit most days. He spent his first few weeks back nailed to his chair in his office with the lights off. We’d pop in and out for brief asks. A one word answer or casual nod was all her offered back. With Meddler no longer meddling, we got back to work. 
-
-It was the most productive we’ve ever been.
-
-Unfortunately the peace didn’t last. Eventually Meddler started making his rounds again. At first, it was subtle. He’d scuttle around and stare at our monitors with a furrowed brow. He’d ask short and pointed questions about our tasks before moving on. 
-
-“Seems like Meddler is back from the dead huh?” I said to Geoff.
-
-Geoff chuckled. 
-
-We were pairing on a new feature that was due at the end of the quarter. This was something I owned and was praying it could prop me up for a promotion. As long as our fearless leader didn’t get in the way, of course.
-
-“Speak of the devil.” Geoff said before retreating back to his desk. 
-
-The thud of Meddler’s footsteps fell short just a few feet behind me. He said nothing, so I kept working, hoping the clack of my obnoxious keyboard would drown out the awkward silence.
-
-It didn’t.
-
-A few minutes passed and I started to think he had stepped away until the sound of his voice broke right behind me.
-
-“What you working on?” He asked plainly.
-
-“Oh, hey boss—this is that migration I was telling you about.” I stammered.
-
-He pressed for more details. I explained that I decided to refactor a lot of the legacy surfaces to a new design. Modern web framework, Rust migration, blah blah. I was waiting for his eyes to gloss over but he remained engaged. 
-
-It was very uncomfortable. Although he hung onto every word, he didn’t seem interested. It was like he was starved for some response I wasn’t giving. His intense expression gave me the impression he was going to beat me if I didn’t offer it soon.
-
-“So yeah, that’s what I’ve got going on. Planning to deploy end of the quarter if all goes well.” I said, trying to break off the conversation.
-
-His face softened. Meddler rubbed his chin and appeared deep in thought for a moment.
-
-“Thank you. This is good stuff.” He mumbled. “You’re very efficient, Alex. I’m going to think about this a bit more and get back to you with more questions.” He said before marching off.
-
-Geoff returned a couple minutes later with a cheeky grin.
-
-“What was that?” He whispered.
-
-“I’m not sure man. He kept asking about my feature. It was weird. He looked super intense.” I said quietly.
-
-“He looked like he wanted to screw you dude.” He laughed.
-
-The moment stayed with me for a while. At first my impression was optimistic. Maybe the crash knocked some much needed sense into him. Maybe Meddler wrestled with God and realized he needed a different approach to life.
-
-Or maybe he suffered severe brain trauma and simply lacks the capacity to meddle anymore.
-
-A few days later, I was doing some work when Geoff came up to my desk.
-
-“What did you do man?” He said quietly. I set my chunky headphones down and shot him a puzzled look. He was pecking at his lunch and eyeing Meddler’s office very subtly.
-
-“Oh my bad—Meddler’s been staring at you all day. Thought you might have got on his bad side.” He said.
-
-I turned to look but he put one hand on my shoulder to stop me.
-
-“Nah man don’t look—he’ll know I said shit.” He paused a few moments before glancing back in Meddler’s direction.
-
-“Yeah I don’t know man he won’t stop.” He said, his voice quieter this time.
-
-“Quit messing around you’re creeping me out. It’s not funny.”
-
-“My bad. Just looking out for you bro.” Geoff said before throwing his hands up in mock offense and retreating back to his desk.
-
-I spent the rest of the day feeling uneasy. Meddler didn’t leave his office once. I never looked back, but I could feel his beady eyes on the back of my head. That lifeless stare with the intensity of a dead man. The image alone made me queasy.
-
-It got me thinking about the last few days. Now that Geoff mentioned it, I don’t remember him doing his rounds since our last conversation. Has he just been watching me this whole time? 
-
-The anxiety was short lived. Meddler resumed his strolls the next day. I couldn’t help but wonder if it’s because he noticed me catching on or if the timing was just a coincidence. 
-
-I chose to believe the latter. 
-
-Things were relatively normal for a time, but as usual, the peace was short lived. 
-
-One morning I arrived for work and was surprised to be greeted with an empty parking lot. I chalked it up to traffic. Most of my coworkers lived on the other side of the busy highway and I took streets that day. Surely an accident held up the rest of the team.
-
-When I entered the building, the liminal state of the place irked me. My footsteps resounded off the empty walls much louder than they should. I winced at every step. It wasn’t until the carpet dampened the sound that I felt less exposed. 
-
-I turned the corner to our front desk and that’s when I realized nobody was there. Not a single soul. I stood at the welcome desk and peered around. All the lights were on but nobody was in sight. 
-
-Something felt wrong. Rather than taking a seat and waiting out the silence, I called Geoff.
-
-“Hey—uh when are you getting to work?”
-
-“What’s that?” He said hazily, as if he had just woken up.
-
-“I don’t know man it’s creepy. Nobody is here yet I feel like I’m working night shift.”
-
-Silence on the other end.
-
-“Geoff?”
-
-“Wait you didn’t get the memo? We’re off today bud. Meddler’s orders.” He said.
-
-“What? I didn’t get any memo. I was here Friday too.”
-
-The sound of shuffling crackled on the phone. Geoff’s voice came in clearly a few moments later.
-
-“He called and emailed us on Saturday to let us know they were doing pest control or something. Work-from-home day.” 
-
-Silence.
-
-I put Geoff on speaker and whipped through my missed calls.
-
-No Meddler.
-
-No email.
-
-“Well, best you get your ass home dude. Don’t want to get blasted with nasty pesticides—“
-
-*Boom*.
-
-A loud banging emanated from the break room. The florescent lights overhead cast worrisome shadows around the area. Was someone there?
-
-“Hello?” I called out.
-
-I shuffled sideways trying to get a better look, my eyes fixed on the empty break room across the office. I didn’t dare move forward until I could be sure there was no danger. I jumped when I heard the thump of my shoulder against drywall. 
-
-I turned and realized I was budding against Meddler’s office. 
-
-The door was open.
-
-I peeked in, mind racing, half expecting to see the deranged man sitting in his chair, sunken black eyes peering up at me.
-
-Instead, I was met again with an empty room.
-
-I was about to return my attention to the sound in the break room when something caught my eye.
-
-A name plate sat on Meddler’s desk, facing me. A single word etched into the gold-plated paperweight:
-
-“MEDDLER.” 
-
-The air left my lungs as I read it. How long has that been there? Surely Meddler was messing with us. He must have overheard his new title and decided to make a dry joke of it. Yeah, that was definitely it.
-
-Just a dumb joke.
-
-I tried my best to convince myself this was lighthearted in nature but I couldn’t shake the feeling that this was more sinister. All of Meddler’s neurotic behavior towards me made me feel like this was targeted. It sounds crazy, but deep down I think Meddler wanted me right here, right now, looking at this name plate.
-
-He wanted me to know he was angry.
-
-*Boom*. 
-
-Another loud banging noise erupted from a different room. I had to get out of here. 
-
-I tore out of Meddler’s office and ran down the stairs. A few missed steps nearly set me tumbling but I managed to stay composed. I kept glancing behind me expecting to see someone in pursuit but nothing came. I didn’t stop looking back until I was deep into the parking lot. As I put my car into gear, I noticed something I missed when I first pulled in.
-
-On the street beside the empty parking lot sat a single car.
-
-A black sports car.
-
-The sight of it was obscured by a dumpster and an array of bushes seated along the sidewalk. If you’re not paying attention, it’s easy to miss. 
-
-I swear I’ve seen Meddler’s face pull up in that car more than once. I remember thinking how dumb and impractical it looked. An expensive and useless vehicle for an expensive and useless employee.
-
-I hid away in my apartment confused by the whole ordeal. I didn’t understand why Meddler would choose to spook me like that. Even if he intended for me to see the name plate, he had no guarantee I’d end up in his office. None of it made sense.
-
-Again, I decided to go against my judgement. After all, the sounds I heard could’ve easily been exterminators setting up for the day. The nameplate could’ve simply been the remnants of an uncomfortable joke that Meddler forgot to carry out before his accident.
-
-After much deliberation and very little sleep, I decided to go back to work. 
-
-But not without precautions, of course.
-
-When I arrived to that dreaded parking lot the next day, I waited anxiously, peering through the frosted windshield for any signs of life. It wasn’t until every member of my team parked and slipped behind the dark lobby doors that I took the first shaky step out of my car. 
-
-After a slow ascent to my floor, Meddler walked up to me as I approached the front desk.
-
-“Heard you showed up yesterday. Sorry about that. I swear I had emailed you on Friday.” He said plainly. His eyes still had that post-accident intensity. His hair was extra messy today and half his stained dress shirt hung out the side of his pants.
-
-“Oh, no problem—I wasn’t here long.” I stammered. It was hard looking him in his eyes so I kept my gaze to the floor. I couldn’t help but notice his shoes were unusually dirty and chipped near the soles. It was the kind of wear you’d only see on someone who was on their feet all day. All night too, possibly. Not the kind of wear you expect to see on luxury shoes.
-
-He grinned and patted my shoulder before marching back to his office. Geoff was observing from a safe distance. He popped in once a comfortable amount of time passed.
-
-“Freaked me out yesterday bud.” He whispered as he settled into the spare seat beside my desk. 
-
-“Pretty freaked out myself.” I responded, glancing nervously towards Meddler’s dark office. “Did you see the name plate?”
-
-Geoff finished correcting some minor mistakes on-screen before responding. “Yeah I saw it when I came in. Don’t know what that’s about. He probably had this grand scheme in mind before he tried to kick the bucket.”
-
-I froze, fingers hovering above the keyboard.
-
-“I thought he wrecked his car?” I said plainly.
-
-“Oh yeah I heard that rumor too. Doesn’t make sense though. He’d be in jail for sure.” He said quietly. “Henry said it was pills. Jim from security told me it was a loan shark. Some mafia-esque dude rapped on his door and busted his legs with a pipe. Hari said someone found him out in the woods. Claims Meddler just left his apartment one night and was found a week later wandering the mountains like a man possessed. Guess we’ll never really know.”
-
-This news made me feel uneasy. And a bit dumb. Of course Meddler didn’t wrap his car around a tree in a drunken bender. Sure, Meddler’s rich dad could’ve pulled some strings, but I imagine even he has limits. Something else happened to Meddler, and whatever it is remains a mystery.
-
-Geoff made a “aha” sound out of nowhere which made me jump a little.
-
-“If Meddler knows about his nickname it’s probably from the work chats. Must’ve greased up IT to hand over the chat logs or something.” Geoff said.
-
-“Shit.” I whispered.
-
-“Makes sense why he’s singling you out then. You did not hold back.” He chuckled.
-
-Those damn chats. When I first came onboard I wanted to fit in with the group. Meddler was a terror that day, pulling people one-by-one into his office and accusing them of negligence for something he surely did. The team started ripping on him in the chat between scoldings. I joined in and kept things mild but eventually I got brave and took things a little too far. I don’t remember all of what I said, but I do remember making a comment about how Meddler gets off to self-help books and that even daddy’s money couldn’t buy him a personality.
-
-“Don’t worry about it man. If he wanted to do something he would’ve done it by now. Just let him stew in it.” Geoff said patting my back.
-
-But he has tried something. Whatever happened yesterday wasn’t a coincidence.
-
-A rational Meddler would’ve made an example of me. Nothing harmful, of course, but I wouldn’t be let off without a violent talking-to and a shallow threat to my employment if I didn’t apologize profusely. 
-
-A rational Meddler wouldn’t stage an office closure to lure me in and do—well, whatever he planned to do.
-
-Of course, nothing of substance has happened. Yet.
-
-Geoff and I sat taking turns working at my keyboard under the dim office lighting for the rest of the day. He kept assuring me I was overthinking it. I wanted to believe him, but something just didn’t sit right with me.
-
-Meddler remained in his office for the rest of the day. I kept glancing back at his dark hideaway. The lights from various computer monitors reflected off the dark glass, casting ghostly shapes that flickered and moved. Meddler could be seen faintly hunched over at his desk, his own monitor painting blue light on his sunken face.
-
-When I got home, I couldn’t sleep. 
-
-I pulled out my work laptop and combed over the old messages over and over at the edge of my bed. I tried to convince myself what I said wasn’t too bad, but the more I read, the more anxious I got. A hard lump formed in my stomach, each message adding to the weight. I pictured a haggard Meddler, sweaty and focused on his own computer. His beady, dark eyes whipping left and right as they soaked in my words. Anger and violence bubbling in his insides while remorse ate at mine. 
-
-I turned off the machine and caught a glimpse of myself in the dark reflection. A messy-haired man with a patchy beard and dark bags under his eyes stared back.
-
-I really needed to get some rest. But I didn’t think I could face Meddler the next day. Hell, I couldn’t even bring myself to call him and tell him I’ll be out sick.
-
-I took the easy way out and decided to let Geoff handle it. He doesn’t see Meddler the same way I do, so surely he wouldn’t mind.
-
-It was late, so I decided to call and leave him a voicemail. 
-
-*Buzz…buzz…*
-
-What the hell?
-
-The vibration of a phone could be heard above. I looked up, ringing phone in hand, trying to identify the source.
-
-Blue rays of moonlight, split into frayed rectangles by cheap blinds, illuminated the room weakly. I directed the light of my phone overhead. Nothing but cold white ceiling overhead and an idle fan. 
-
-And yet, the buzzing remained. I killed the call and the buzzing died with it.
-
-Something wasn’t right. 
-
-“Geoff?” I called weakly. A faint thumping overhead replaced the buzzing.
-
-I broke out in cold sweat. Terrifying possibilities rapped at my brain with each new thump overhead.
-
-A pained moan interrupted the melodic tapping.
-
-Shit. If Geoff was in trouble, I needed to find help. But how was he here? And why?
-
-I didn’t have time to think.
-
-My fingers shakily dialed 911 as I slipped out my front door into the florescent light of my apartment hallway. 
-
-I made my way into the elevator and keyed the floor above me while trying to explain to the operator what was going on.
-
-“Yes my friend is hurt—I don’t know the number. It’s the apartment above mine. I’m going to check right now…I’m not sure what happened just hurry—“
-
-The doors dinged open and I rounded the corner, making my way to the dreaded room. I took note of the number and passed it along to the operator on the phone. I pressed my ear to the door, hoping to hear some signs of life. 
-
-Nothing.
-
-The rhythmic thumping and pained sounds of Geoff were gone.
-
-For a moment, I panicked. Did I just make this all up?
-
-I worried that, in my sleep deprived state, I may have just hallucinated this nightmare. A fear induced psychosis initiated by my meddling boss could have overtaken me. A story that would surely fall on deaf ears when the cops arrive shortly.
-
-For a moment, I remained pressed to the door, my left arm holding my phone limp at my side. The distant voice of the operator desperately trying to reach me in my absence could be heard faintly.
-
-*Click*.
-
-I lost my balance briefly as the door gave and swung inward with a faint creak. Whoever last entered must’ve been careless. Or they were in a hurry. Either way, not a good sign. 
-
-“Hello? Geoff?” I yelled hesitantly.
-
-I tried to peer into the apartment but not much was visible. Beyond the entryway, a maze of boxes and loose furniture was stacked to the ceiling, obstructing the view.
-
-After a brief silence, the sound of pained grunting could be heard again. A loud clicking escapes the darkness.
-
-Shit. Whatever is happening isn’t good.
-
-I crept into the apartment, careful not to disturb the walls of excess that directed my path. I passed a light switch to my right as I entered but opted to use my phone light to navigate instead. No need to alert anyone that I’m here.
-
-The boxes contents were worrisome: A vast assortment of hunting knives, vintage WWII gear, dirty and unopened foreign materials and chemistry tools. A collage of violence filled turned this small apartment into a maze of death.
-
-I turned the corner at the first bend and nearly dropped the phone.
-
-The path opened up to a clear corner of the apartment that looked almost like an altar to something sinister. Large wooden boards carried various pictures of myself and my coworkers. They all had different levels of damage and wear, and all had a colorful assortment of offensive labels scribbled across the faces. 
-
-Below the portraits were pages stuck into the wood with weapons: knives, throwing stars, and curved daggers. The pages contained manic writings about how each of us ought to be punished. Some writings described forms of physical and psychological torture. Others were more outlandish. Fragmented snippets of scenarios involving demons and supernatural beings.
-
-I heard a faint thud and stumbled over the mess, attempting to shine my light towards the perpetrator. 
-
-Nothing.
-
-I paused briefly, squinting into the dark crevices of stacked weaponry. The light crawled over additional boxes of ammunition and books with unintelligible titles. Industrial instructions for chemical production could be seen among the litter.
-
-*Thump*.
-
-A loud bang and pained moan escape a room to the right of me. The faint clicking resumes. I press forward, phone in hand. I pray Geoff is there. I just want to get him and get out of here. 
-
-As I turn the corner, I cover my mouth to stifle a scream.
-
-Geoff is there. At least, I think it’s him. The person before me sits in a small closet decorated with various monitors and a desk. He’s down to his underwear and his hands are cuffed behind his back. The real shock is his face…well, what’s left of it.
-
-A patch of scabbed flesh is all that remains. The rest of his head is adorned with a strange metal cage, a long metal rod protruding from the center. 
-
-His head is bobbing up and down like a chicken, the metal prod tapping the keys on the grimey keyboard. On the monitors, a mess of text is being written using a crude text editor. My eyes wander to the filthy bucket beside his chair where a cell phone lies cracked and buzzing intermittently. The same phone I called just moments ago. 
-
-“Don’t interrupt him.”
-
-The words cause me to stumble into a wall of boxes as I turn to face their owner.
-
-Sure enough, Meddler is there. He’s wearing bloody kaki’s with suspenders over his bare chest. A mess of blood dribbles just beneath his chin. His face is hidden behind a mess of skin—Geoff’s face. I take a step back as the phone light glints over a large, black hunting knife in his hand. He twirls it playfully, fresh blood racing up and down the blade. 
-
-“I’m disappointed. All my hard work setting up shop here…you weren’t supposed to come looking until tomorrow.” Meddler shook his head, the skin on his face making a sickly wet sound.
-
-“Had Geoff hand write you some clues and everything. You shouldn’t be in here unless you plan to work.” He raised the blade and pointed at Geoff.
-
-“What the hell is this? What did you do to Geoff?” I said shakily. My voice was shrill with terror.
-
-Meddler took one step forward, raising the knife towards me as he did.
-
-“Meddling. As usual, right? Nah I’m kidding. I know I wasn’t always the best boss. That’s going to change. We’re all going to be here soon—working. Making money. So much money.” His voice broke on the last syllable. He balled his fist and started hitting the side of his head, the skin mask getting looser with every pop. 
-
-“Hear that dad! This is my company. You—you don’t just do that to me—you know I had to get you back. You can’t just take everything from me. MY money. MINE.” His voice was hushed and desperate, like he’s pleading with someone in his head.
-
-My mind was racing. I wasn’t sure whether to fight or run. Cops would be here soon. Maybe I could just keep him talking until then.
-
-“You really doing this because we made fun of you? Jesus man, it was just a joke—“
-
-Meddler laughed mockingly, pressing the knife forward, the tip aiming square at my chest.
-
-“I don’t give a shit about that. No—I’m not petty. I’m a man on a mission. This is about business.”
-
-I glanced towards the way I came. I thought maybe I heard someone approaching. Just a little bit longer…
-
-“I heard you took pills...sounds like you’re going through a lot.” It came out more of a question than a statement. I hoped he’d jump at the chance to rebut.
-
-He took two more steps forward and tapped the blade on my forehead. His eyes peered through Geoff’s face, looking me up and down with violent intentions.
-
-“You sound like dad. I’m not a weak man…you just don’t get it. Your dad ever mess with you? He ever take your money so you don’t gamble it away? Repossess your car so you don’t drive drunk? Lace your drugs so you overdose and never touch the stuff again? Control. So controlling.” He paused and stifled a sob. His speech was a roller coaster, bouncing between mania, rage, and joy every few syllables.
-
-“No, no, no. He should’ve known better. It fried everything. Everything up here. My soul is broken. My brain is on fire—“
-
-I felt a sense of urgency as he hooked his blade around the side of my throat. My hands instinctively grabbed a tower of boxes to my right and brought them down at Meddler.
-
-The boxes hit him hard in the chest and he swung the blade as he tumbled, the ebony blade catching the top of my kneecap. 
-
-I screamed and stumbled around the mess, my injured leg dragging hard behind me. Geoff continued tapping away at his keyboard, afraid of what Meddler might do if he stopped. I wanted to set him free, but I couldn’t turn back.
-
-Not yet.
-
-I raced through the hazardous apartment towards the exit. A chorus of screaming and sprinting broke out behind me. I continued to level towers of boxes as I escaped, attempting to grow the gap between me and Meddler. 
-
-I was feeling hopeful as a square of florescent light came into view, the open door leading out to the apartment hallway was within reach. No cops in sight yet. That’s when I heard the gunshots. 
-
-A barrage of bullets tore through the boxes around me, sending a flurry of paper and cardboard in the air. I ducked and moved frantically to avoid the attack but failed.
-
-My body froze and tumbled to the floor as red hot gunfire pierced my left side from behind. I screamed and writhed on the floor, a pool of crimson growing beneath me.
-
-The next minute was just a blur, a collage of moments fragmented by the searing pain in my side. Meddler emerged from the shadows and stood over me, gun in hand. He smacked the side of his head with the handle in a crazed rant while attempting to drag me back by my ankle. I kicked as best I could. He fumbled me and the gun in his shaky hands, white hot anger making him hysterical. I wouldn’t be surprised if he gave up the chase and tore me apart right there.
-
-Fortunately, something took his focus away from me.
-
-Angry voices broke out from the hallway, their forms casting shadows in the framed light. It sounded like two people. Police, I could only hope.
-
-Meddler shook and shuffled in place, unsure whether to shoot, hide, or run. Madness won out as he lifted his weapon towards the unseen figures. Three shots were fired before his gun reached his eye line and he slumped to the floor, his body jackknifing before ultimately rolling into a mess of cardboard where the light didn’t touch. 
-
-Everything was blurry now. The figures stood over me with worried faces and concerned voices but I couldn’t answer. There was more blood than carpet beneath me and my body was giving away to the cold. 
-
-The dark room is fading now, the orange glow of hallway lighting growing dim. Clouds of cardboard debris falling like snow above me. 
-
-In the distance, I hear the pecking of a keyboard. A faceless Geoff continues working.
-
-I blink, and the room changes.
-
-My eyes remained closed, but a garbled ambulance siren is heard overhead.
-
-Time jumps again.
-
-I try to pry open my swollen eyes. I squint at the cold, sterile medical lighting washing over me. But only for a moment.
-
-Finally, darkness.
-
-I’ve been in the hospital a few weeks now. The bullet grazed my spleen but didn’t hit anything critical. Dr. says I’m lucky, but I don’t hear the words. I don’t feel lucky. My mind is occupied with memories of that horrible night.
-
-News of Meddler’s spree was still hot off the press. I couldn’t find a channel that wasn’t talking about him in some form.
-
-“Boss from Hell…”
-
-“…Son of Silicon Valley elite tortures two employees during foiled terrorist action…”
-
-“…severe brain damage caused by laced narcotics led to psychotic break…”
-
-“…CEO found dead in penthouse...”
-
-“…Suspect claimed father laced drugs that led to his severe mental impairment. Involvement cannot be confirmed at this time…”
-
-The words fell flat for me. I didn’t care why it happened. No amount of rationalization could temper the horror I experienced. And Geoff…
-
-I tried to visit him. A nurse told me his family wanted privacy at this time. I understand. He got off much worse than I did. I know it wasn’t my fault, but I still wanted to apologize. I couldn’t shake the image of him faceless, pecking away at that keyboard in Meddler’s dirty closet. Some selfish part of me simply wanted to see him so I could replace that memory. I didn’t want that to be the last time I saw him. 
-
-Now, I face a new dilemma. I woke up convinced that Meddler was shot and killed by the police. I was wrong.
-
-The cops got me into an ambulance shortly after firing on him. They went back, only to find an empty pile of crumpled boxes. A trail of blood led to a makeshift chute at the back of the apartment that dropped him out into the alley below. He was never found after that night.
-
-Despite this news, I’d like to think I’m more adjusted lately. The nightmares are manageable. The anxiety is almost at the point that I can return to some semblance of work. Unfortunately I’m not sure how I’ll feel hearing the typing of a keyboard again. Just the thought makes me shudder.
-
-My only worry now is that Meddler will find me. He's not well, and he's surely going to get worse. I know his obsession will never stop. He’s not going to rest until me and my coworkers are flayed and pecking at keyboards with makeshift appendages, writing garbage out of fear of his wrath. His punishment. A twisted, corporate hell.
-
-When I’m strong enough, I’m going to do what I can to prepare. I need to protect myself. When the ghost of my meddling boss comes knocking, I’d like to think I can take him this time. I don’t want to end up like Geoff.
-
-Or worse.
-
-And to those reading this, I hope you be careful too. If something doesn't feel right, don't ignore that feeling. It’s easy to write off difficult people in your life as jerks. It takes instinct to know if something is really wrong. There are predators all around us, after all. Bosses, teachers, friends, family—you never know where wolves hide among sheep. Don’t let the Meddler’s of the world sneak up on you.
+But I can’t help but notice, as I write this, in the dark, computer screen lighting up my face: my eyes are starting to water.
