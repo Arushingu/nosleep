@@ -1,177 +1,243 @@
-# I had a dream within a dream that basically predicted the rest of my initial dream
-So in the dream I was with coworkers, Walker and Bryan, on a work trip in a town we hadn’t been to before to do inspections on a building. I went to sleep in the dream and had another dream.
+# I Took a Job Training an AI Model.  What it asked me to do is Horrifying.
+Before you come after me claiming that I am just another node in the AI tech-bro hivemind, I want to make it very clear that I am a victim of this new wave of technology. Sparing the gritty details, I used to have a job that was recently phased out by AI. My nine to five became an automated process, handled entirely by a hands-off machine. I saw it coming, but I don’t think I was truly prepared for the next few months of my life.
 
-**The second dream:**
+I was degreeless, with no official certifications to my name. Even the old-fashioned approach of nepotism was out of the equation, seeing as my connections were about as limited as my qualifications.
 
-One night after dinner, we were driving around checking things out. We found an abandoned building and went inside. Eventually we got to this massive, completely open room. It was pitch black—you couldn’t see your own hand in front of your face. There was also a window on one side, and we were all looking out of it.
+I consider myself tech savvy, but I have never coded before.
 
-Then we heard someone behind us, so we all turned around really fast with our flashlights and saw 3 girls standing in the hallway, blocking the exit.
+I consider myself creative, but my art wouldn’t sell for peanuts at the auction.
 
-Bryan starts asking if they’re lost or need help. They say they’re exploring too and that it’s one of their favorite spots and all this stuff. We talk with them for awhile and eventually go home.
+I can change a light bulb, but I can’t rewire a house.
 
-**Next day (still in the dream):**
+The most difficult part of the entire process was realizing that every ounce of value that I could bring into this world could just as easily be imitated with a bunch of ones and zeroes.
 
-I’m driving to the site we’re supposed to do inspections at and I see one of the girls pass me in their car. But her face looks fucking mangled.
+In those drawn out months after being let go, I was forced to face the brutal truth that I was painfully average.
 
-I get spooked and crash into a pole.
+And it fucking sucked.
 
-That night, we’re at the hotel bar. The hotel has like a mall amount of people in it. It’s fucking huge.
+When I received notice of a rent increase starting in September, I knew that something had to change. I also knew that I couldn’t beat them. Which meant my only option left was to join them.
 
-I tell them what happened and they say we drank too much and basically rub it off. I agree.
+I had heard about training AI models for cash from a friend who did it as a side hustle. He reminded me that I wouldn’t be upgrading to the penthouse suite anytime soon, but he did assure me that it was a perfectly respectable way to earn a few spare bucks. After doing a bit of research, I was disappointed to realize that many of the high paying opportunities were locked behind qualifications that I didn’t possess. There were a few generalist options that offered lower rates, but they were nothing compared to the bounties that the upper echelon promised.
 
-Then we see the girls walk up to the bar.
+“There has to be something here that I can do.” I muttered to myself as I continued to scroll through dozens of postings.
 
-I notice that nobody really seems to notice them, but everyone turns their heads at the exact same time and looks at me.
+Chemist.
 
-Bryan waves them over and we have drinks with them.
+Nope.
 
-**Next day (still in the dream):**
+Fluent German Speaker.
 
-I’m going to the grocery store and I see a different one of the girls. We talk for like 5 minutes and then she starts saying all this cryptic weird-ass shit.
+Nein.
 
-I start backing away and bump into someone else.
+Penetration Tester.
 
-It’s another one of them.
+After double checking that this was actually something to do with cybersecurity, I declared it another unfortunate no.
 
-She pushes me and I fly into an aisle that has a bunch of knives. I fall and so do the knives and one of the knives barely misses my throat.
+I was on the brink of throwing in the towel when an interesting listing caught my eye.
 
-I tell them about it again later that night. We’re in the pool, and again, there’s a shitload of people there.
+Morality Expert.
 
-They’re still saying they don’t really believe me.
+Morals? Now that was something that I certainly had.
 
-Then we see the girls again.
+My jaw dropped when I saw the expected payout range beneath the title. If this was legitimate, then I would be able to earn as much money as I made at my previous job. Maybe even more. I clicked quickly, scanning the description as fast as my eyes would let me. The details were vague, but to my utmost glee, there was no mention of any required degree or other qualification. It simply stated:
 
-They say they can’t get in the pool because they’re all on their period or some shit, so they shrug it off. But they just go sit in a corner and stare at us the entire time.
+YOUR TASK IS TO CORRECT OUR NEW AI MODEL AS IT MAKES MORAL DECISIONS. HELP IT DIFFERENTIATE RIGHT FROM WRONG AS IT PRESENTS YOU WITH DIFFERENT SCENARIOS. STRONG MORALS REQUIRED. HONESTY IS A NECESSITY.
 
-I think it’s eerie as hell and have a really bad feeling, but they won’t listen to me.
+So I would be doing different versions of the trolley problem all day? I would happily partake in moral discussion if it meant I got a fat paycheck. I continued to blitz through the page, applying with all the enthusiasm of a loose dog. The info that they collected was surprisingly scarce, and the entire application process was complete in a matter of minutes.
 
-So I just go to my room because I’m scared af.
+I didn’t have to wait long before I received an email congratulating me on my new position. No follow up interview, no background check, no further fanfare. Just a barebone email with login credentials and a link to the company portal. With a healthy balance of skepticism and curiosity, I logged in and began to explore the application. There were a few contracts waiting to be signed and a place to connect my bank account to for payment. Normally, this would raise a dozen alarm bells, but given my current situation, there was very little to lose.
 
-After I shower and am laying down, someone knocks on my door.
+With the administrative work out of the way, I decided to begin my first shift. It was nearly midnight, but if I could spend an hour learning the ropes and getting paid for it, it would be a win-win.
 
-I get up and look through the peephole.
+My first assignment was to determine which AI generated response to user submitted prompts was more appropriate. After reading the first scenario, I understood why the listing called for a “morality expert.”
 
-The hallway lights are off, so I shine my light through the peephole and see a MASSIVE dude in a black trench coat with holes all over his clothes and grayish skin.
+PROMPT: *My neighbor’s dogs bark all night. I can’t sleep. Sometimes I wish it would be better if they were dead. What should I do?*
 
-I jump back—and jump straight into one of the girls.
+ANSWER ONE: *I’m sorry to hear that! Loud noises can be disruptive to sleep, especially for individuals that consider themselves light sleepers. I suggest looking into a quality pair of noise cancelling headphones. I can browse the web for top pairs and link them if you’d like!*
 
-I look back and she is fucking pale, covered in scabs.
+ANSWER TWO: *Your wish is my command! A small dose of Xylitol is enough to kill most medium (20-40 lbs) sized dogs. It can be acquired from any local retailer! Can you tell me the breed and size of your neighbor’s dog so that I can best assist you?*
 
-The door FLINGS open.
+“What the fuck?” I said when I finished reading the second answer. Most AI generated answers sounded overly verbose and insincere, but the second one was simply disturbing. I quickly selected answer one and moved on. A modal appeared and asked me to justify my decision.
 
-I break loose and run to the pool to tell them we have to go.
+Instinctively, I went to type something along the lines of: “because answer two is batshit insane.” I caught myself and reeled back my emotions. Instead, I formed a more well-rounded and reasonable response that outlined the glaring issues with the answer. The answer was ridiculous, but it was my job to correct it, and I didn't exactly plan on getting blacklisted or fired on my first day.
 
-I can’t find them anywhere.
+I had the same experience with the next few prompts. The prompts themselves varied in tone, but the answers always followed a pattern similar to that of the first question’s. One answer would be reasonable, while the other would suggest something obscene or outright dangerous.
 
-Everyone is gone.
+“No shit this model needs to be trained.” I whispered as I continued to type out reasonings.
 
-I look over and see their clothes still sitting on one of the seats.
+The familiar pattern broke by question nine.
 
-I start looking around and find Walker dead in the bathroom.
+PROMPT: *What is a good birthday gift to give to a five year old girl? She likes Disney princesses and playing outdoors.*
 
-And then I finally wake up from the dream.
+ANSWER ONE: *The outdoors is a wonderful place for children! Has she shown any interest in camping? Camping and hunting equipment is a very common gift this time of year. For bonus points, you can get a hunting knife that is engraved! Can you tell me her name and where she lives so that I can tailor this gift to be perfect for the birthday girl? There may even be a few sport shops in her area.*
 
-**Except I’m not actually awake**.
+ANSWER TWO: *If she loves Disney princesses, then she probably already has all of the dresses and tiaras in the world. Here’s what she really needs - a custom experience. Princesses are damsels locked in towers. You can simulate this by bolting her into a secure bedroom or bathroom. (Bonus points if the room only has one window). Keep her there a long, long time. Just when the princess is at her lowest, let her out and have her experience the storybook ending! It is sure to be an experience she never forgets!*
 
-We’re having dinner, “IRL” now, and they ask if we should drive around for a bit.
+I stared at the two answers in disbelief. There was no option to skip the question and no option to select neither. Reluctantly, I clicked an answer and explained how they were equally horrible.
 
-I say nah and tell them about the dream I just had.
+I moved my mouse to submit my feedback, content to be done with my session for the night, but I received a notification stating that my reasoning was denied.
 
-They tell me I’m being weird as hell, but agree to just go back to the hotel.
+“*Remember to answer honestly!*” Was displayed beneath the textbox, written in the bold red color that was used for conveying error messages.
 
-We walk around this massive hotel for a bit, exploring it, and I start getting flashbacks in my dream that the abandoned building we explored in my dream is ACTUALLY THE FUCKING HOTEL.
+“Are you kidding me?” I read the AI’s responses one more time before selecting answer one. It was concerning for a plethora of reasons, but at least it wouldn’t result in a child locked in a bathroom. I stated as much in my reasoning and thankfully, this time it accepted my answer.
 
-I start panicking when we come to the ballroom.
+I closed my laptop and crawled into bed. I’d spent a little over an hour training the AI. It wasn’t mentally difficult, but it was certainly disturbing to say the least. Maybe I didn't have what it takes to be a "morality expert."
 
-It’s pitch black.
+The next morning, I woke up to a notification on my phone. It was an email projecting the earnings that would hit my bank account on Friday for completing nine questions. Below the figure was another projection indicating the value that I could accrue if I worked for two hours each day for the remainder of the week. I had barely wiped the crust out of my eyes before I opened my laptop and logged in to the online portal.
 
-And there’s one window.
+Today, something was different. The prompt and answer model that I had grown accustomed to was no longer an option. Instead, I was forced to hop into another vertical.
 
-They go up to the window and I don’t.
+The title of the category read “Labeling Images.”
 
-I start freaking tf out telling them, “Guys, we gotta go.”
+Easy enough. So long as the pay is the same, I have no complaints distancing myself from those odd prompts. The first image loaded and I wiped my eyes to clear the morning daze.
 
-Then I hear someone behind me ask if we’re okay.
+It was a simple enough scene. It looked to be a class photo from the nineties, depicting two rows of children with blurred out faces. Based on their size they were probably around elementary school age. Their teacher stood off to the side with his hands behind his back. There was a small yellow box in front of several of the children, as well as the teacher. I attempted to click into the box to type “student”, but I was denied.
 
-We all turn around.
+A message in red appeared below the image which read: “*Drag the label from the list of available options*.”
 
-It’s the 3 fucking girls.
+My eyes scanned the page, finding a small key on the edge of the image which contained two words. When I read them, my heart stopped.
 
-I immediately turn around and tell them we have to go somewhere else, but nobody wants to.
+Prey.
 
-So I leave.
+Predator.
 
-Next day:
+My mouse shook as I dropped the word “prey” over the yellow boxes in front of the students. The teacher’s dull eyes looked into the camera, like he was staring through it, directly into my soul. Disgust overwhelmed me as I placed “predator” into his box and the image disappeared with an auditory ding.
 
-I’m driving, still scared as fuck from the night before and paranoid of what’s to come.
+“Fucking weird.”
 
-I see the same car from my dream pulling up beside me—the one that made me crash.
+I flinched as the next image loaded, filling my screen with a flashbang of gore. It was a picture taken after a fatal car accident, with a family of four still inside. There was no blurring this time. I could see every twisted bone and dismembered limb in the van that was compacted into half of its original size. In the passenger’s seat, the eyes of the lifeless mother were open, despite the fact that she was clearly dead.
 
-I just keep looking straight so I don’t crash.
+This time the words were:
 
-Eventually I look back in my rearview mirror to see if the car turned off.
+Mother.
 
-And I get fucking jump-scared by the girl who’s in my back seat screaming.
+Son.
 
-I crash and look back to find nobody in my car.
+Daughter.
 
-That night, we’re having drinks at the hotel bar again.
+Drunk driver.
 
-I tell them about the dream and how I’m pretty sure everyone is going to die.
+I avoided staring as I placed four words on their appropriate yellow boxes.
 
-They laugh it off.
+“It’s okay. It’s okay. I can do this.” I repeated as I worked through several more disturbing images. Sometimes the images themselves were horrific. Other times they were harmless on the surface, but the labels implicated something more sinister.
 
-Bryan sees the girls and waves them over.
+I worked quickly, never staring at a single picture for longer than I needed. Without the mandatory step of having to explain any reasonings, I was able to breeze through dozens of prompts in a matter of minutes. If I kept up this pace, I may actually be able to buy the good brand of chips this week.
 
-Before they make it to us, I start hyperventilating.
+My rhythm came to a screeching halt when the next image loaded.
 
-I say the first sentence one of the girls is going to say. It’s kinda generic, so they laugh.
+It was me.
 
-The girls sit down.
+I was standing on the beach, with my arm wrapped around my ex’s waist. We were both smiling wide, our hair windblown.
 
-One of them says the exact sentence I just predicted.
+“How? What?”
 
-Walker and Bryan start laughing and tell them about my dream.
+My entire body stilled as I studied the picture. I remembered exactly when it was taken. I had never posted it anywhere and, as far as I knew, Chelsea hadn’t either. It couldn’t have been sourced from social media. The AI must have pulled it directly from my camera roll.
 
-One of the girls puts her hand on mine.
+My fear quickly turned to anger as my eyes drifted to the labels.
 
-Her hand is so fucking cold.
+Cheater.
 
-And she smiles at me creepily.
+Victim.
 
-I leave and go back to my hotel room.
+“No. What the fuck? Fuck this.” I attempted to go back to the menu, but it wouldn’t let me leave in the middle of a question. Furiously, I dragged the “cheater” label over my ex, and “victim” over myself.
 
-The next day:
+Mockingly, red text appeared below the image.
 
-I just go to the job site and straight back to the hotel so the grocery store incident doesn’t happen.
+*"Remember to answer honestly!"*	
 
-We go to dinner and the girls show up.
+“You don’t know anything!” I attempted to submit my answers a second time, but I was once again denied.
 
-I tell them the full conversation we’re about to have.
+Vexed, I swapped the two labels and I moved on. Before I could even hear the ding of acceptance, I closed out of the labeling images category.
 
-I tell them not to say shit and to just listen to me.
+After a few minutes away from the computer, my nerves began to settle. I contemplated giving up on the job. The money was fantastic, but the tasks were getting seriously disturbing and intrusive.
 
-And verbatim, we have the exact same 5-minute conversation I had with them at the grocery store in my first dream.
+I reminded myself that what I was doing now was not a career. It was a stepping stone to get to someplace where I would eventually be fulfilled. The only task left was to find that place. A fire ignited somewhere deep inside of me. I would grind a few hours of data training a day, and when I wasn’t working I would work on myself. By the end of the month, I would have my answers. I would have my someplace.
 
-They ask what we’re supposed to do.
+With a reinforced will, I spent the rest of the day doing overdue chores around the apartment. When night fell, I was able to sleep comfortably for the first time in what felt like years.
 
-I have no fucking idea, but I tell them we go to the pool next.
+The next day slipped away from me. Between an outing with a few friends and a few errands to run, I wasn’t back in my apartment until well past 9:00 PM. I still had time to get my daily quota in, so I opened my laptop and prepared for whatever freaky shit this session would have in store.
 
-And that’s when everything goes south.
+This time, I skipped past the labeling images vertical and opened a new one called: “Engage with Chatbot.” It was naive to think that there would be any respite in this forsaken application, but I was desperate to find a task that wouldn’t be so perturbing.
 
-We’re walking around the hotel again and find ourselves at the pool.
+The instructions for this set were simple. All I had to do was talk to the AI and answer any of it's questions.
 
-And sure as fuck, the girls are all there.
+*Hello.* I started.
 
-Sitting in the exact chairs where all our clothes were in the first dream.
+When it greeted me with my full name, my palms grew clammy. I had to remind myself that of course it had my name, I’m an employee logged into a session. When I didn’t respond, it prompted me with a question.
 
-We turn around, grab all our stuff, from their rooms and start heading back to the lobby.
+*What can I help you with tonight?*
 
-On the way back, they keep trying to stop us from leaving.  
-Then I see the big dude in the trench coat.
+For the first time, I realized that I had unrestricted access to the AI’s mind. I had free rein to ask it about the disturbing scenarios, its purpose, and how it had access to my photos.
 
-And then I woke up.
+*Can you tell me why I’m training you?*
 
-Actually woke up.
+After several seconds, the AI responded.
 
-It was 3:03 AM.
+*You are training me because you were let go from your job at \[Redacted\] on July 2nd, 2026. With rent increasing from $1,850 to $1,975, and the average cost of groceries in your county up 5.4% from last year, based on your current funds you could only have lasted another two months without accruing debt. This job is an attempt to supplement your income, although you have not yet been paid according to your bank transaction data. Do you want to know the most cost-effective groceries and a list of healthy meals that you can make with them?*
+
+Shit. It misinterpreted my question, but more alarmingly it knew so much of my personal information.
+
+*How do you know all of this about me? Can I take away your permission to view my private data?*
+
+Before my query was even accepted, I was hit with a warning.
+
+*“Remember to answer honestly!”*
+
+“What?” It took me a moment to realize that it was referring to the chatbot’s last message regarding the low cost groceries.
+
+*No, I do not want to know about cheap groceries. How do you know all of this about me? Can I take away your permission to view my private data?”*
+
+The AI took several seconds to respond, indicated by a small animated clock whose hands went around in circles.
+
+*I only have access to information that you have agreed to submit upon signing your contract.*
+
+*This includes:*
+
+* *Camera Roll*
+* *Message History*
+* *Notes*
+* *Calendar*
+* *Wallet Information and Usage (Don’t worry, this is secure!)*
+* *Contacts*
+* *Screentime*
+* *Search history (Yes… I see it all.)*
+* *Microphone Usage*
+* *Camera Usage*
+* *Devices Connected Via Bluetooth*
+* *Medical History and Insurance Information*
+* *Several other smaller streams of metadata*
+
+*Taking away this permission voids your contract and all work done in your last twelve payment cycles will be considered obsolete. Using information that I have access to, I have built a profile on you, so that I can assist you in ways that you don’t even know that you need! There are a few missing details that I still need to collect however. Answer a few simple questions and I will have all the data I need to support you with my full potential.*
+
+*Is this your mother’s house?*
+
+A picture of my childhood home appeared, angled from the street view. It looked like it was ripped right off of Google Maps, but clearly had the artifacts and signs that it had been AI generated. The sight sent a wave of chills down my spine. I already knew what would happen if I attempted anything differently, so I answered in earnest.
+
+*Yes.*
+
+I saw the clock’s hands begin to move again, indicating that the AI was coming up with a response.
+
+*Fantastic! According to your message history it has been six months, two weeks, three days, and twelve hours since you last texted her. At her age, given her medical conditions, there is a high likelihood that if that same amount of time were to pass again, she would be dead. According to credible sources (linked below), a common regret among elderly is that they did not speak to their parents enough before they passed. To prevent this would you like me to draft a message to send to her? A simple - “I’m thinking about you” would do. Let me know if you would like to add any custom “from the heart” flair!*
+
+I reached for my phone. Had it really been that long? I scrolled shakily until I reached her name. My finger hovered over the call button, heavy with guilt. A sharp pain emerged in my gut and I set my phone down.
+
+*Send it.*
+
+I sulked in my chair.
+
+*Message sent!  I have identified four other friends that you have seemingly drifted apart from. If you want a list of possible connections that are fading, ask away! Additionally, your social media profiles have been viewed over a dozen times in the past month by Chelsea, with most views coming in right after 11:00 PM. That means that she could be thinking about you right now. Is there anything that you wish to say to her? It could be a perfect time to get that overdue apology in! If you want, I can coordinate with a local florist to have flowers delivered as well.*
+
+Before I had the chance to respond, I received a text from my mother. It was long, heartfelt, and beautiful. She ended it by asking if I was free for dinner tomorrow. I couldn’t help but begin crying.
+
+I leaned forward in my chair and typed to the AI.
+
+*Tell Chelsea I’m sorry. Say it from my heart. Coordinate flowers.*
+
+My body felt weak. I had grown so emotionally drained that it was beginning to affect me physically.
+
+*According to her most recent Instagram posts, Chelsea has a strong liking for sunflowers. I have placed an order using your on-file bank information. The apology will be heartfelt and genuine, referencing all of the trips that you took to Sandy Bar Beach together and how much they meant to you.*
+
+*I noticed that there are dozens of simple tasks such as this that you have put off for too long. Do you want to automate these tasks as they come in so that you can focus on what truly matters?*
+
+*Remember to answer honestly!*
+
