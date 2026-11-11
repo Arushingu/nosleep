@@ -1,34 +1,32 @@
-# The Home Delivery
-My name is Leo, and two winters ago, I took a temporary job working the night shift at an automated grocery delivery depot on the outskirts of Vienna. It was mid-December, and a massive blizzard had hit the region. Most drivers called out sick, but the overtime pay was huge, so I volunteered to take the final delivery of the night: a large order to an isolated villa tucked away in a dense pine forest near the mountains.
+# My grandmothers house remembers things I wish it didnt
+I used to love staying at my grandmother's house. It's an old Victorian place on a quiet street far from the city. Dust motes dancing in sunbeams in the front parlor. The smell of old books and lavender potpourri. It felt safe. It felt like home even though it wasn't my home. Now I dread going there. Every visit is a new horror waiting to unfold.
 
-The customer’s name on the invoice was listed as Dr. Alistair Ross.
+  
+Gran passed away last April. My mom and I have been slowly going through her things. Clearing out decades of memories. It's a bittersweet process. Lots of old photos and trinkets. Some things have stories attached some don't. The house itself has always been a bit peculiar. Creaky floors yes. Drafty windows sure. But it was more than that. It had a presence.
 
-I arrived at the villa at 11:45 PM. The house was a sleek, minimalist structure made of dark wood and massive glass panes, but every single window was blacked out with heavy thermal curtains. The only light came from a single lantern swaying over the front porch. As I began unloading the heavy wooden crates of food, the front door clicked open. A tall, middle-aged man in a pristine wool sweater and wire-rimmed glasses stepped out. He had an intensely calm, polite demeanor.
+  
+One afternoon last June I was in her study. It's a small room filled with shelves overflowing with books. I was looking for her old will. Buried under a stack of poetry collections I found a leather-bound journal. It wasn't her handwriting. It was my mother's. From when she was a teenager.
 
-"Thank you so much for driving out in this weather," Dr. Ross said, his voice entirely soft. "My hands are a bit arthritic from the cold. Would you mind carrying the heavier crates into the kitchen island for me?"
+  
+I started reading it. It was mostly typical teenage angst. Crushes school drama. Then I hit an entry from October 27th, 1978. It talked about the house. About how it seemed to remember things. How it would sometimes replay sounds. Her own voice arguing with her father. The distinct jingle of her dog's collar even though the dog had died years before. She wrote about a specific time she was alone in the house. She heard her father's gruff voice calling her name from the kitchen. She went downstairs and found the kitchen empty. She wrote that she started to feel cold and she ran back upstairs. She ended the entry saying she was scared. That the house wasn't just old it was haunted.
 
-Normally, company policy strictly forbids drivers from crossing the threshold of a home for safety reasons. But looking at the freezing wind and his pleasant smile, I felt bad. I nodded, picked up the heaviest box of meats and vegetables, and walked inside. The interior of the house was spotless, smelling faintly of bleach and expensive wood polish. I set the first crate on the marble kitchen island.
+  
+I felt a chill despite the warm September air outside. My mom had never mentioned anything like this. I figured it was just a teenage overreaction. A spooky story she'd forgotten.
 
-As Dr. Ross went to fetch a tip from the coat rack, I glanced around the kitchen. That is when the first small detail caught my eye. On the counter sat a digital kitchen scale. Resting on it was an open container of specialized medical sedatives, along with three separate, precisely measured piles of white powder next to a row of organic juices. I looked down at the invoice in my hand. Dr. Ross had ordered nearly twenty kilograms of prime beef and pork—but as I glanced at the open double-door refrigerator to find space for the groceries, I noticed the fridge was empty. No milk, no leftovers, no condiments. Nothing.
+  
+But then it started happening to me. I was there last week. Sorting through the attic. I heard my grandmother's gentle humming. A tune she always hummed while she gardened. I knew she wasn't there. She was gone. But the humming was so clear. It sent shivers down my spine. I tried to tell myself it was just my imagination playing tricks.
 
-Then I looked at the floor. In a pristine, modern house like this, there was a heavy, industrial-grade plastic tarp crudely taped down across the entirety of the dining room floor, stretching all the way to a heavy, closed wooden basement door. My stomach did a slow flip. This wasn't a home someone was actively living in. It was a staging ground.
+  
+Then the real terror began this past Tuesday. I was in the living room packing up some china. I heard a baby crying. A soft whimpering at first. Then it grew louder. More distressed. It sounded like it was coming from the room directly above me. My grandmother never had a baby in the house while I was alive. My mom never mentioned any siblings who passed away young. It was just Gran. Uncle Peter. My mom. That was it.
 
-"Here you go, son," Dr. Ross said, reappearing silently behind me. He handed me a fifty-euro note. His eyes locked onto mine, completely unblinking. "You look absolutely frozen. Let me pour you a hot cup of cider before you take the long drive back."
+  
+I froze. My heart hammered against my ribs. I picked up a heavy antique vase. My breath hitched in my throat. I slowly made my way to the staircase. Each creak of the old wood amplified the sound of the crying. It felt like walking through thick treacle. I got to the top of the stairs. The crying was loudest at the door to the smallest bedroom. It had been used as a guest room. Never a nursery.
 
-"No, thank you, sir," I said, my heart rate spiking. "I have to get the van back to the depot before the roads freeze over completely."
+  
+I pushed the door open. The room was empty. The baby crying abruptly stopped. The silence that followed was even more deafening. I felt a profound coldness. Not a physical cold. A chilling sense of dread. The air felt heavy. Oppressive.
 
-I turned to walk toward the front door, but Dr. Ross stepped laterally, smoothly blocking the narrow hallway. He held a steaming ceramic mug out toward me, his smile remaining perfectly fixed, but his posture went completely rigid. "I insist," he said softly. "It’s a dangerous night. You really shouldn't rush out there."
+  
+I ran out of that house so fast I didn't even lock the door. I called my mom from my car. I tried to explain what happened. She just listened quietly. When I finished she said. "The house remembers." Her voice was flat devoid of emotion. "It remembers everything Mara. And sometimes it plays it back. Especially the sad parts. The parts we tried to forget." She didn't elaborate. She didn't need to.
 
-As he spoke, I heard a faint, distinct sound echoing from the basement door behind the plastic tarp. It wasn't a mechanical noise. It was a rhythmic, desperate *thudding*—like someone tied up, kicking their heels against a wooden floorboard. Dr. Ross didn't even flinch at the noise. He just stared at me, waiting to see if I had noticed it.
-
-In that split second, the psychological reality hit me: *He wasn't trying to hide it anymore.* He knew I had seen the scale, the empty house, and heard the basement. If I drank the cider, I would wake up downstairs. If I showed panic, he would attack right there.
-
-I forced myself to smile, looking directly at the mug. "Actually, you're right. That smells amazing. Let me just grab my clipboard from the kitchen island, so I don't lose the invoice."
-
-I turned around casually, walked back to the kitchen island, and grabbed my heavy, solid-steel clipboard. As Dr. Ross stepped into the kitchen to hand me the mug, I didn't hesitate. I swung the edge of the steel clipboard with all my force directly into his face. The mug shattered across the floor. He stumbled backward, gasping, his glasses flying off.
-
-I didn't look back. I bolted down the hallway, ripped open the front door, and sprinted into the blinding blizzard. I jumped into the delivery van, slammed the locks, and gunned the engine. As the headlights cut through the snow, I saw Dr. Ross emerge onto the porch. The polite, gentle doctor was entirely gone. He stood under the lantern, his face bleeding, staring at my van with a completely expressionless, chilling glare. He didn't chase me. He just watched me escape, knowing the storm would cover his tracks.
-
-I drove frantically until I found a highway patrol vehicle parked under an overpass. When the tactical police unit raided the villa three hours later, the house was entirely stripped bare. Dr. Ross had vanished into the mountains. But down in the basement, police discovered a soundproofed room containing two missing hikers who had been kidnapped two weeks prior. They were alive, but heavily sedated.
-
-The police later discovered that "Dr. Alistair Ross" was a stolen identity. The man had been renting high-end, isolated properties across Europe under false names, using delivery services to lure lone night workers into his web. He was never caught.
+  
+I haven't been back since. I can't. Every creak every shadow in my own apartment makes me jump. I keep imagining the sound of that baby crying. And now I wonder what else my grandmother's house remembers. What other dark memories are trapped within its walls just waiting for someone to listen.
