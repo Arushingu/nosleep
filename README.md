@@ -1,32 +1,70 @@
-# My grandmothers house remembers things I wish it didnt
-I used to love staying at my grandmother's house. It's an old Victorian place on a quiet street far from the city. Dust motes dancing in sunbeams in the front parlor. The smell of old books and lavender potpourri. It felt safe. It felt like home even though it wasn't my home. Now I dread going there. Every visit is a new horror waiting to unfold.
+# If you have been getting inexplicable back pain, please read this...
+&#x200B;
 
-  
-Gran passed away last April. My mom and I have been slowly going through her things. Clearing out decades of memories. It's a bittersweet process. Lots of old photos and trinkets. Some things have stories attached some don't. The house itself has always been a bit peculiar. Creaky floors yes. Drafty windows sure. But it was more than that. It had a presence.
+I’m not a doctor. I’m just a guy who spent three months getting chewed up by the market here. If you live in this city, you know the drill. You scroll through listings at 2:00 AM, wading through obvious wire scams, $1,800 "micro-studios" that are literally just converted walk-in closets, and landlords demanding twelve months of rent upfront. It’s exhausting.
 
-  
-One afternoon last June I was in her study. It's a small room filled with shelves overflowing with books. I was looking for her old will. Buried under a stack of poetry collections I found a leather-bound journal. It wasn't her handwriting. It was my mother's. From when she was a teenager.
+So when I found a bright, spacious one-bedroom right in downtown Toronto for $1,350 a month, I didn’t ask questions. I was too relieved to care why it was still available, or why the previous tenant had left so suddenly. The landlord handed me the keys with a strange, nervous haste, but I just took them and smiled. I thought I had won the jackpot.
 
-  
-I started reading it. It was mostly typical teenage angst. Crushes school drama. Then I hit an entry from October 27th, 1978. It talked about the house. About how it seemed to remember things. How it would sometimes replay sounds. Her own voice arguing with her father. The distinct jingle of her dog's collar even though the dog had died years before. She wrote about a specific time she was alone in the house. She heard her father's gruff voice calling her name from the kitchen. She went downstairs and found the kitchen empty. She wrote that she started to feel cold and she ran back upstairs. She ended the entry saying she was scared. That the house wasn't just old it was haunted.
+That was two weeks ago.
 
-  
-I felt a chill despite the warm September air outside. My mom had never mentioned anything like this. I figured it was just a teenage overreaction. A spooky story she'd forgotten.
+Almost immediately after moving in, the back pain started. At first, it was just a strange, deep ache right at the base of my spine. I brushed it off. I searched online and found countless forum posts saying it’s completely normal to get backaches when you switch to a new mattress while your body adjusts to it. So, I figured I just needed to ride it out.
 
-  
-But then it started happening to me. I was there last week. Sorting through the attic. I heard my grandmother's gentle humming. A tune she always hummed while she gardened. I knew she wasn't there. She was gone. But the humming was so clear. It sent shivers down my spine. I tried to tell myself it was just my imagination playing tricks.
+I let the first few days pass like that, but the pain only got worse. It got to the point where, the moment I woke up, I literally couldn't walk for the first hour. I just lay there in bed, practically paralyzed, staring at the ceiling and waiting for the agony to dull enough so I could slide onto the floor.
 
-  
-Then the real terror began this past Tuesday. I was in the living room packing up some china. I heard a baby crying. A soft whimpering at first. Then it grew louder. More distressed. It sounded like it was coming from the room directly above me. My grandmother never had a baby in the house while I was alive. My mom never mentioned any siblings who passed away young. It was just Gran. Uncle Peter. My mom. That was it.
+I finally caved and went to see a doctor. After taking some scans and running a couple of tests, he walked back into the room, looking confused. He asked me straight up: "Is there any chance you’re a powerlifter? Or have you been hauling around heavy sacks of concrete lately? Maybe working construction?"
 
-  
-I froze. My heart hammered against my ribs. I picked up a heavy antique vase. My breath hitched in my throat. I slowly made my way to the staircase. Each creak of the old wood amplified the sound of the crying. It felt like walking through thick treacle. I got to the top of the stairs. The crying was loudest at the door to the smallest bedroom. It had been used as a guest room. Never a nursery.
+I looked at him like he was out of his mind. I told him no—I’ve never even stepped foot inside a gym in my whole life, and I work a standard IT desk job, so construction was entirely out of the picture.
 
-  
-I pushed the door open. The room was empty. The baby crying abruptly stopped. The silence that followed was even more deafening. I felt a profound coldness. Not a physical cold. A chilling sense of dread. The air felt heavy. Oppressive.
+He tapped my scans, pointing at the compressed discs, and told me that, regardless, the reason for the pain was that my spine was under severe physical stress from carrying an immense amount of static weight. I insisted there was no way that was possible. He just shook his head, gave me a prescription, and told me to come back and see him in a week to check on how it was progressing.
 
-  
-I ran out of that house so fast I didn't even lock the door. I called my mom from my car. I tried to explain what happened. She just listened quietly. When I finished she said. "The house remembers." Her voice was flat devoid of emotion. "It remembers everything Mara. And sometimes it plays it back. Especially the sad parts. The parts we tried to forget." She didn't elaborate. She didn't need to.
+I carried on with my normal routine and went back home, but the pain just kept getting worse and worse every single night. I kept blaming the mattress. In my head, that was still the only rational explanation.
 
-  
-I haven't been back since. I can't. Every creak every shadow in my own apartment makes me jump. I keep imagining the sound of that baby crying. And now I wonder what else my grandmother's house remembers. What other dark memories are trapped within its walls just waiting for someone to listen.
+To test it out, I went over to a friend’s apartment and crashed on his couch for the night. When I woke up the next morning, I had almost zero back pain. Nothing at all. I felt completely refreshed for the first time in weeks.
+
+ That was all the proof I needed. It basically confirmed my assumption that the bed in my new place was the whole problem.
+
+So, I went home.
+
+Once I got back to my place, a thought hit me: what if I just lie on the bed for a couple of hours right now and see if the pain starts coming back?
+
+So that’s what I did. I climbed into bed, laid down, watched a couple of movies, doom-scrolled on my phone for a few hours, and... nothing. There was literally no pain at all.
+
+That was the moment the whole mattress theory started to crumble. It seemed like whatever was causing my back pain was only happening while I was fast asleep at night.
+
+I decided to just test it out a bit longer to see if the pain would keep going. And when I tell you the next couple of days were absolute hell, I’m not exaggerating. It got so bad that I had to call off work entirely and just stay home. It was completely messing up my life. Every morning I woke up, I wasn't just sore—I was paralyzed for hours at a time, stuck flat on my back, completely unable to move.
+
+So, I set up a camera.
+
+I figured it was the only logical next step. I wanted to see what was actually happening to my body while I slept at night. Was I contorting myself into some bizarre, unnatural position? Was I somehow twisting my lower spine against the headboard? Was I sleepwalking and doing something stupid in the middle of the night without realizing it? I spent half an hour rationalizing it, coming up with every ridiculous theory I could think of just to make sense of the damage.
+
+I propped my phone up on the dresser facing the bed, set it to record, and went to sleep.
+
+As usual, the next morning was absolute agony. I woke up to a sharp, crushing pressure that felt worse than anything I’d experienced yet—an unbearable weight grinding straight into my lumbar spine. It was getting worse every single night.
+
+I lay there paralyzed for nearly two hours, staring at the ceiling, waiting for the stiffness to ease just enough so I could reach the dresser. When I finally dragged myself up and grabbed the phone, my hands were shaking uncontrollably.
+
+I opened the video file, skipped past the first three hours of absolute nothingness—just dead silence and me sleeping on my stomach—and started scrubbing through the midnight footage.
+
+Around 2:53 a.m., something swung my door slightly open.
+
+A long, pale, white hand reached through. It opened the door ever so carefully, moving with a sickening, effortless precision that didn't make a single sound.
+
+Then it stepped inside.
+
+It was a tall, pale, white figure—easily ten or eleven feet high—with a body so impossibly skinny and slender that its joints looked paper-thin. Its arms hung long and limp past its knees. On its face, two massive, wide red eyes stared straight ahead, set above a jagged, fixed smile that never left its face.
+
+It walked slowly toward the side of my bed, completely silent, towering all the way up to the ceiling.
+
+Then it climbed onto the mattress.
+
+Because of its sheer height, it didn't just sit—its entire ten- or eleven-foot body crumbled and folded in on itself like a collapsing frame. In the dead quiet of the recording, the microphone picked up every single movement. Every time its joints bent, you could hear this horrible, sickening snap—almost as if thick, dry bones were breaking under tension. It straddled me, sitting squarely on my torso, facing me, its face hovering just inches from mine as it stared down into my eyes with that unmoving grin.
+
+Its entire, unnatural weight pressed flat down onto my chest and stomach, forcing my lumbar spine to bow violently against the mattress beneath it.
+
+And after three hours of it sitting on my body like that, not moving at all, not even a change in the expression of its face, it left. The time was exactly 5:53 a.m. when that happened. The noise when it finally moved was terrifying—as it lifted itself off me, the microphone caught this loud, heavy suction sound, like someone pulling a vacuum seal straight off your flesh, or wet plaster peeling violently off a wall. The sheer release of pressure was sickening to watch. It left exactly the way it came.
+
+The next few days, the exact same thing happened. It comes inside my room at 2:53 a.m. every single night, and then goes back outside at 5:53 a.m.
+
+I don't know what to do. I don't know how I can get rid of it. But the only thing I know is that I won't be able to live with this back pain anymore. This has gotten to a point where I don't even know how long I can go on like this.
+
+So if any of you guys have ever had this problem, or if you’ve been dealing with the same entity, please message me. Please tell me what I can do. What are my choices? I'm begging you. Please, I need help.
