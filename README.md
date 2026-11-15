@@ -1,10 +1,80 @@
-# Eerie Himalayas
-Previous year, November 2025 I made up my mind to visit the Himalayas and the beautiful towns and villages in it’s foothills, packed the essentials and started from the capital Delhi at 12 in the noon and till I reached Rishikesh, it was a beautiful twilight, foggy mountain roads with blurred yellow streetlights, boarded off the mini bus and carried the immense bag-load all the way just to find a cheap stay near the Ganges.
+# The couple I was house-sitting for said they didn't have children. I met their daughter anyway. (Part one)
+I wasn’t planning on posting this, but I don’t really know who else to tell.
 
-The exceptional cold and mosquitoes inside that hotel deprived me of a good sleep, woke up at 9, had some buttered breads and proceeded straight to the main mountains in a jeep which at every turn, by God’s grace was inches away from tumbling down. Finally I reached the trek, the experience was indescribable, I was a literal ant surrounded by the majestic white walls of the Himalayas. All day was spent climbing and descending the snowy hills with a wooden hiking stick i purchased from Rishikesh.
+A few weeks ago, I agreed to house-sit for an older couple I found on Craigslist who were looking for someone to watch their house and dog while they were out of town for a little over a week.
 
-As the dusk approached, I was overcome by exhaustion like never before, water and biscuits I carried did a terrible job to refuel me. I made a rather brave move to spend the night camping off trek, assembled the tent, fastened it, and by then there was absolute darkness. My tent was on top of  one of the many steep slopes. There is no question of having a deep sleep in that region. Shout as much as you can, nobody’s listening.
+Their names were Raph and Darlene Fredrickson.
 
-I got bored and crawled out of tent just to get lost in that heavenly ambience of snow clad peaks around me, glittering under the full moon’s effulgence, cold breezes and eerie silence howling deep in the Himalayas. Seems that i was the last man on Earth. Had noodles with me, went inside, turned the stove on and began gazing at the stars as the water boiled, I could easily tell from peripheral sight that something is in motion, maybe this was the snow leopard or brown Himalayan bear I wondered, rushed inside, pulled the zip down and was in complete awe ! there were four robed men of heights as much as 9-11 feet, exceptionally lean and gravely walking past my tent. 
+Their dog, Percy, is probably one of the sweetest dogs I’ve ever met. He’s a big guy, but he wouldn’t hurt a fly. He’d happily spend all day following you around, and he never seemed like the kind of dog who would be aggressive toward anyone.
 
-The leading man joined his palms and looked up to the moon, his face was nothing short of a skull covered hardly in a layer of skin with deep sunken eyes, the water i kept for boiling reached its point and began bubbling, the last thing I wanted to happen, the man fixed his focus straight to my peeping eyes and grinned from ear to ear, eyes were sort of restored from that sunken state and became radiant like an animal’s eyes under a car’s headlight in dark ! The leading one screeched inhumanly which echoed throughout the valley giving chills through my heart. They turned, lowered their heads  in sync and bolted towards my tent, this was the last thing i perceived before waking up with a severe migraine on a hospital bed surrounded by curious faces. 
+Before they left, Darlene mentioned something to me.
+
+“He’s been acting weird lately, Wayne,” she said. “Mostly at night.”
+
+I laughed. “What do you mean?”
+
+“He’s been staring at the attic door and keeps barking,” she replied. “Raph thinks there must be some critter up there, but he hasn’t checked yet.”
+
+“I’m going to,” Raph added. “I'm not the same young fella I used to be.”
+
+At the time, I didn’t think much of it.
+
+I probably should have.
+
+After they left, I found a note stuck to the fridge with a magnet. It was a list of rules that needed to be followed during the week.
+
+1. Feed Percy twice a day.
+2. Make sure Percy has fresh water.
+3. Keep Percy inside after dark.
+4. Lock the doors and windows at night.
+5. Take the trash out on Tuesday. Garbage night.
+6. Turn on the thermostat when it reaches 80°.
+7. Check the mail.
+8. Give Percy his medicine three times a day.
+9. If you hear noises, it's probably the pipes.
+10. Please keep the pantry closed.
+
+I thought the last few were a little strange. Their house was really old, the kind of old that showed in every corner. The grass outside was dead, the paint was chipped away from the walls, and there were other things that made the place look like it hadn't been taken care of in years. From the outside, it looked almost abandoned.
+
+But inside, it was strangely beautiful. Glass display cabinets filled with little porcelain figurines lined the walls, along with other things that looked like they had been there for generations. The tiled floors stretched throughout the house, and shelves were filled with old books, framed photographs, and little decorations. Everything looked old, but there was something beautiful about it.
+
+For a while, everything inside the house was normal. Percy mostly stayed on my lap, demanding to be petted, while I cleaned up around the house.
+
+When I started the vacuum, he began barking.
+
+At first, I thought it was probably just how dogs usually acted around vacuums. But he wasn't barking at me.
+
+He was barking toward the attic.
+
+I stared at him for a moment, then turned on the vacuum and ran it over the carpets in each room.
+
+That night, I lay in the guest bed with Percy resting beside the foot of it. I woke up a little later, probably around 2 a.m., and opened my eyes to see his ears perked up, like he was waiting for something to happen.
+
+I figured it was probably a car passing by in the neighborhood until I heard it.
+
+***The floorboards creaked upstairs.***
+
+Was my mind playing tricks on me?
+
+I should've been the only one in the house, other than Percy.
+
+But Percy wasn't looking at me.
+
+He was staring at the bedroom door.
+
+If Percy wasn't the one making the noises, then they must have been coming from somewhere else in the house.
+
+Another creak sounded out of nowhere. This time, Percy jumped off the bed and ran out, barking.
+
+I groaned, shoving the covers off me. I leapt out of bed and followed him.
+
+“Percy!” I called, whistling and snapping my fingers, but he just kept barking again and again until I reached down to pick him up.
+
+He startled and scratched my forearm. Deep. Almost too deep.
+
+I let go of him as a sharp pain shot through my skin. Blood began staining my sleeve. I rushed into the bathroom next to the guest room and turned on the faucet, my face scrunched up as I winced while cleaning the wound.
+
+The second I got back into bed, Percy jumped up and snuggled next to me. I pulled him close with my uninjured arm, the other wrapped in bandages.
+
+I know it sounds crazy, but I started wondering if Percy could sense something I couldn't.
+
