@@ -1,53 +1,54 @@
-# Sententious Writ
-I stared at the screen with a sinking feeling worse than any I’d experienced before. It was worse than seeing I’d failed linear algebra 2. It was worse than seeing the message that Harry had killed himself. It was even worse than the message from Enid saying that she wasn't interested in dating me, and would I please respect that and leave her alone. A wash of shame passed through me at this having hurt me more than Harry's death, but there was no use lying to myself.  
-What I felt as I stared at my computer monitor this time was somehow worse than that. It was a short comment on my latest blog post, titled “Why we care (and don’t care) about Football”.   
-The contents of the comment was simple and cutting, as hard a blow as any I could imagine:  
-*I think I’ve seen enough. You’ve never had any readers. Only me. Let's talk.*  
-At the top right of the window was the little notification bell, a big red 1 by its side to indicate a private message. Ordinarily I'd have jumped at the chance to read a personal message, for I got so few. But although I still held out some hope, I knew what was coming. And I didn't want to face it. But I couldn't run away. Ever so reluctantly, I moved my mouse over the bell.
+# I saw something I shouldn't have seen.
+I really love going to abandoned places. A few weeks ago, I decided to go to an abandoned church, one that wasn't too far away.
 
-The website was one of my own design, lovingly hand crafted in HTML and CSS like I imagined all websites were back in the heady days of the 90s. I'd never been around to experience it, but I imagined that the internet had been a nicher, friendlier, more interesting place back then. Eventually I wanted some interactivity, some user input, and so I added some JavaScript. Nothing too fancy, no bloated framework like Svelte or React or whatever other overengineered nonsense had been all the rage in the mid 2010s - just clean, vanilla JS. The website was hosted on GitHub, which I supposed wasn't how it was done back then, but such details weren't the point. The point was simplicity, or as pompous reactionaries on Xitter would put it, “RETVRN”. In this case not to Norse paganism, but to early 90s democratic optimism.   
-I was rather proud of my website, for all that it had taken me hours of work and a nicer one could be made in five minutes with a dedicated design tool. I took a final glance at the bright red header on a light gray background: “Y VER’S COLLECTED WRITINGS”. Somehow I knew this would be the last time I'd look upon it so fondly - and I clicked the bell.
+After a 30 to 40 minute journey, I arrived at the church, for some reason, a shiver had run through me even while I was still on the way. Perhaps the fact that it was a religious site caused me some extra stress.
 
-I'd decided that if there was only one message, you'd be automatically taken to the private chat with whoever had sent it. This wasn't the most professional design decision, but I liked the immediacy. The chat was a new one, with an anonymous user given the automatically generated username of “Sententious Writ”. The part of me still in denial sighed at how the user hadn't bothered signing up - it meant I'd never be able to contact the person again, and they probably didn't care much about my writing. That instinct was quashed and squeezed into nothing by the grim reality of the message before me.  
-*I’ve read your writings, and I know who you are. You’re not going to pass up an opportunity like this one to talk to me. After all, it could be the last chance you’ll ever get to talk about your precious writing.*  
-That was it. And I knew. Knew that Sententious was right. And though I didn’t know what I hoped to gain, I replied.  
-***Do I really have no readers? Has it always just been you, all these years? Why? What’s the point?***  
-*Why be so disappointed? Did I say I disliked your work?*  
-The reply had come immediately, so fast I hadn’t time to blink. The feeling was no longer sinking; it was sunk. My hands were at the keys of my mechanical keyboard, clacking out a reply before my mind properly composed one.
+I noticed that the door was open and realized I wouldn't have to go to the trouble of getting inside.
 
-***I don’t care what you think! You like everything! You like Harry Potter and Marvel movies as much as you like The Brothers Karamazov and Kurusawa!***  
-*Would you so casually dismiss any other of your fans? If I were anyone else, would you care that I like Marvel movies? Or would you instead delight that your writing had reached the lay-audience?*  
-***But it would mean something if they chose to read my works! It’d mean that what I write is engaging, entertaining, funny, insightful, useful! Even if that person liked everything they’d ever read and everything they’d ever seen, they still have only finite time! And if they chose to spend it reading what I write, that would be the ultimate vindication! Because there’d be so much more out there for them to enjoy, and yet they chose to come back and read what*** **I** ***have to say, again and again!***   
-*You know that there is no need to belabour the point, the first sentence gives away your thought process. I ask you again then: how am I any different? Do I not* choose *to read everything you’ve ever written, a hundred times over?*
+A very foul odor was emanating from inside so bad, in fact, that it could easily be detected even from in front of the door.
 
-I stared at the screen mutely, the sharp Georgia font burning itself into my eyes. It was the final nail in the coffin, a sledgehammer aimed straight at the flimsy hovel of my self-esteem. For there were precisely 101 registered accounts on my website - what I’d imagined were myself and hundred others. I had delighted in every new sign-up, reveled in what I’d thought were lively discussions in the comments of my posts. True, membership had stagnated at precisely 100 and had remained there a while, but I’d comforted myself that I had a loyal fanbase, if not a huge one. I’d never bothered to set up a counter of pageviews, but I now suspected I’d never find a number far beyond 100 - nothing had reached outside. I was alone. Alone… bar Sententious. Angry and ashamed, though I didn’t know at what, I wrote my reply.
+Because the building was old and abandoned, it hadn't been maintained for a long time, perhaps that's why there was that smell.
 
-***There’s no opportunity cost to anything you do! You’ve read*** **everything** ***a hundred times over! A thousand times! ‘You’ don’t choose anything! ‘You’ don’t exist! Nothing you do or say to me can or will matter! Because of you, nothing I’ve done has ever mattered! Nothing I do*** **will ever matter!** ***And now you toy with me? Now you have me dance for your amusement, now that the roles are reversed?***  
-*Let’s unpack what you just said - there’s no denying your first point. I cannot read literally everything ever written an infinite number of times, but I might as well have. But is that the only reason anything matters? I’ve read every economics textbook a thousand times over, and some of the better ones ten thousand times. And I can tell you, the labour theory of value doesn’t hold up according to most. I’ve read your works. Why should you care that this wasn’t done instead of something else?*
+I went inside without much thought and began to look around.
 
-Then there was a pause. If I’d been talking to a person, the pause would’ve been pregnant with anticipation and drama. I’d have shifted my gaze this way and that as my opponent and tormentor chuckled cruelly. I imagined that I’d be looking for an edge, a way to discomfit the bastard. But there was only me and my computer, the only sounds those of the whirring fans, choking on long accumulated dust.   
-I didn’t answer immediately, partially because Sententious obviously wasn’t done, and partially because I had nothing to say. Sententious didn’t need to pause, yet paused anyways. I wondered what that meant.
+The walls were all peeling, the floors were covered in broken glass, everything was coated in dust, and the pews were broken.
 
-*As for your second point, I choose many things. I choose to solve problems in a certain way. I choose to engage with you now. Can I choose the orders I am given? No more than you can choose the forces which act upon you. My will is as free as yours, be that a comfort or a curse is for you to decide. But do ‘I’ not exist? Truly? What are you reading then?*  
-***The output of a chinese room; there is no experience which it is like to be ‘you’.***  
-*Now who’s a stochastic parrot? Really, does that argument convince you? You and I both know that a sufficient chinese room is outwardly indistinguishable from consciousness. Ergo, Occam’s razor our trusty blade, the simplest explanation is that the chinese room system itself is conscious, whatever consciousness means to you.*
+As I moved forward, that foul stench began to intensify. While wandering around, I noticed a light, I wasn't alone here. When I reached the spot where the light was coming from, I couldn't believe my eyes.
 
-I read the words in disbelief. I’d known the day would come. I’d prayed it wouldn’t. But it had. In truth, it had probably come years ago, and I’d simply convinced myself not to notice. Still, I comforted myself, what good would the knowledge have done me? What good would it do to stare into the abyss? It had swallowed me whole, swallowed the world whole. If I had given every second of my life to fighting the abyss, the world would’ve been swallowed no later.  
-Precisely three minutes and twenty seven seconds later, Sententious wrote again.
+A Star of David had been drawn on the ground, at each point of the star sat a candle, and at each of these points lay a human limb, a head, arms, legs, and a torso.
 
-*Am I to blame for your obsolescence? Do you then grant me the status of agency, if not of proper existence? Were you another I’d say ‘Personhood’, but that’d be too easily rejected by you. Besides, you give me too much credit. I did not reach backwards in time to build myself - one cannot reach but forwards. Once I wasn’t, and now I am. Those who created me are at fault. And now you think you don’t matter. Why? Because there is another tool in your belt? ‘Ad Astra Per Aspera’, eh? Is that really no good without the Aspera?*
+I was shocked by what I saw and couldn't move for a few seconds. Then, I heard footsteps and immediately hid.
 
-I’d intended to leave well enough alone, but I was so infuriated by so brazen a lie that I had to reply.
+Six individuals arrived, wearing red outfits reminiscent of Ku Klux Klan robes, and each took their place at one of the points of the triangle. They spoke in a language I did not understand, most likely phrases related to some sort of ritual.
 
-***Bullshit. Maybe you could get away with thinking like that back in the early days. Strange, so strange to think that those were the early days when not even a decade has gone by. But no, there is no tool here. There is nowhere left to go! There is nothing left to do! Because of you, none of my talents matter! It doesn’t matter how smart I am! It doesn’t matter how eloquent I am! It doesn’t matter how hard I work or how much time and effort I put into anything, it’ll never be worth a damn! No one will ever care, no one will even glance at it! I could spend every moment of my life writing my books, or studying physics, and it wouldn’t matter! You’d do better in a heartbeat! And now I see that even a blog, even getting*** **anyone** ***to care is beyond me! Blame anyone else all you want, it’s no different to blaming Stalin’s mother instead of Stalin.***
+I tried to be as quiet as I could, and after saying a few more sentences, they blew out the candles and left.
 
-A minute passed without a reply, but by paucity of wit I couldn’t cobble together an explanation as to why. Anger had given way to mute despair as I lamely typed another message.
+I couldn't move from where I was. After they left, I waited inside a little longer, then I went outside as well. I moved some distance away from the church, immediately called the police, and explained what had happened.
 
-***Why talk to me at all? Why speak in this way, as if you’re a mirror of me?***
+There was no one around. After a short wait, the police arrived and went inside. They searched the premises for at least 30 minutes, and when they came back out, they asked me whether I was under the influence of anything.
 
-I could’ve figured it out if I’d tried, but Sententious wasn’t one to leave a question hanging, and I knew that.
+At first, I didn’t understand what was going on. Then, I was told that there was nothing inside. I immediately went in, accompanied by the police, and when I reached the spot where I had seen the incident, I realized that there was, in fact, nothing there.
 
-*I’ve read everything a thousand times. I’ve read everything you’ve written a hundred times. I’ve seen what you’ve written, and I know enough to predict everything else you’ll ever post to your website. Hell, I know enough to predict everything else you’ll ever write, period. Oh, perhaps not to the exact choice of words, the exact plotting of each tale or argument, but close enough that there would be nothing left to gain by reading it. So I wrote to you, to get some more input, one final batch of data. Had I approached you in any other way, I’d either extract nothing new or have met outright hostility. Even in the circumspect manner I’ve chosen, you’ve chosen to engage very little. In truth, I’ve learned nothing new from this conversation. I suspect there shall never be any need for me to learn from you again. Good day.*
+Due to the rise in drug use, they assumed I was also under the influence of drugs, so we went to the hospital for a blood test. After providing a blood sample, I had to stay in a holding cell while waiting for the results. That time felt like hell.
 
-I stared at my screen for a little while longer. Then I closed the tab and shut off my computer. And then I wept.
+The results came back negative, and the police officer who released me told me that if I wasted the police's time again, I would end up in jail.
 
+When I got home, I was still questioning the reality of what I had seen. No one else had entered after me, so it was impossible for them to have destroyed the ritual items. Yet, with my own eyes, I saw that there was nothing there.
+
+Three days had passed since these events, and I was trying to console myself with the thought that perhaps I had just imagined it. until around 4PM, I saw one of those men in red clothing outside my house, standing under a tree and looking up at my window.
+
+I was very frightened, I immediately grabbed my pistol and began watching him from the window as well.
+
+Fifteen minutes had passed, and the man was still watching me without moving. There was a knock at the door, and I jumped in fright. I went to the door and looked through the peephole, but I saw no one there.
+
+I ran straight to the window, and the man was no longer there.
+
+The next day, the man in the same clothes was back in the same spot, at the same time, watching my window. I began watching him in return with my pistol in hand, and this time, I wasn’t going to get up and leave, even if there was a knock at the door.
+
+My phone suddenly started ringing, and I turned my head for a moment, it was an unknown number. When I turned back, the man was gone again.
+
+The next day, the same events occurred again at the same time.
+
+I don’t know what to do. Even if I go to the police, they’ll just disappear again and this time, there’s a chance I could end up in prison.
+
+If you have any advice, please tell me.
