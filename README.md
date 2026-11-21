@@ -1,236 +1,88 @@
-# I think my nanny was replaced by a mimic.
-The summer after my eighth grade year, my parents hired a nanny. More for my brother, who had just finished the third grade and tended to get himself into trouble if left unsupervised.
+# We can't go any further...
+Something happened to me about twenty-five years ago that I have never been able to explain.
 
-Ashley, or Ash, as she invited me to call her, was an instructor at my brother’s karate dojo, and had recently graduated from the local university. She was looking mostly to make some money before starting a teaching job in the fall.
+It was 1999. I had just moved to a small college town in northern New England. Lots of old houses. Lots of wooded areas. I'd been there a couple of months. It was late spring, maybe early summer, and I had just started dating someone.
 
-\_\_\_\_\_\_\_
+Things were going really, really well. We were still getting to know each other, but everything was clicking. We were at that stage where it didn't matter what we were doing, as long as we were doing it together, it was awesome.
 
-Ash wore the same outfit to both the interview and on her first day watching us: a blue and white striped dress and a denim jacket. I remember thinking she was very dressed up and worried that her wearing a dress meant she was going to be a strict hardass all summer. I was almost relieved the second day when she showed up in jeans and a t shirt.
+One weekend morning, we woke up and just decided to wander. No plan. No destination. We just walked out the door and started wandering.
 
-Instead, she was very chill. Mostly left us to our own devices all day.
+Neither of us knew the town very well. I was new, and she was from a few towns over. So we drifted toward the college, into a part of town we had never seen. Out past the main streets, everything turns to forest. And that's where we found the path.
 
-This lasted for about a month.
+It was just a dirt trail leading off the road and into the trees. Nothing special. Towns like this are full of them: hiking trails, footpaths, unmarked trails that wind off into the woods and go who knows where. So we went.
 
-\_\_\_\_\_\_\_
+Everything was just perfect. Sunlight through the leaves. Dirt and leaves underfoot, trees and bushes on every side, everything green and alive. I was walking arm in arm with a beautiful girl. We were really into each other. We were probably giggling like idiots. Everything was right in the world.
 
-The Sunday night after July 4th, our parents sat my brother and I down. Their faces were somber.
+So we were maybe a quarter mile down this trail and then she stopped. She didn't slow down. She stopped, all at once, like she had walked into an invisible brick wall. Our arms were interlocked, so when she stopped, I stopped too.
 
-They told us Ash’s family had experienced a tragedy over the weekend. She would be away for the foreseeable future. All she told them was that something had happened and she didn’t know if she would be back, at all. My mother, ever the good Catholic, said it might not be a bad idea to even say a few prayers for her.
+We were still sort of new and still figuring out each other's sense of humor, so maybe this was just a bit?
 
-\_\_\_\_\_\_\_
+I turned around to look at her and her face had changed. It was still her. But she looked nervous. Like wary of something. Uncomfortable, like something was wrong and she didn't know what yet.
 
-July was a revolving door of family friends and relatives that mostly just ferried us to and from swim practice. 
+"What's going on?" I asked, and gave her arm a little tug. She didn't budge.
 
-Ash had let us do our own thing, but being home truly alone without adults felt like a whole new ballgame.
+"Are you ok?"
 
-Then they sat us down again, at the end of the month, and told us she was coming back for the last few weeks of summer. She wanted to get back to some normalcy after a rough month, if my parents would have her. They gladly obliged.  
+She didn't answer. She wasn't even looking at me. She was looking past me, down the path, and she couldn't seem to focus on me.
 
-\_\_\_\_\_\_\_
+"You ok? Want to keep going?" And I gave her arm another little tug. It wasn't hard, but the instant I pulled, she dropped to her knees in the dirt.
 
-And so, on the first Monday morning of August, Ash came back. Same striped dress. Same denim jacket.
+"We can't go any further," she said. "We can't go any further. We can't go any further."
 
-At the time, I thought she was just still grieving whoever she had lost. Just needed some space, which after a month of the house to myself I was more than happy to give her. 
+That's when I started to get a little scared. I got down on my knees in front of her, trying to get her to focus on me. "What's going on? Are you ok?"
 
-Looking back, something was off about her. Very, very off.  
+"We just," she said. "We can't go any further."
 
-\_\_\_\_\_\_\_
+This wasn't her. I didn't know what was happening, but this was not the girl I had been laughing with ten seconds earlier. I tried to help her back onto her feet, and she broke. She burst into tears, sobbing so hard she couldn't stop, and her face was changed again. The wariness was gone. What was there now was terror. Pure, open horror.
 
-The initial incident was around noon.
+Ok. Something real is clearly happening here.
 
-I was making a sandwich in the kitchen when she called to me in a voice that sounded as though she was freaking out, but trying to sound controlled.
+I held her and tried to comfort her as best I could. She kept mumbling the same thing, over and over about not going any further.
 
-“NICK PLEASE CHANGE THE CHANNEL.”
+"Ok," I said. "We won't. Let's just get out of here. We'll stand up, turn around, and go back the way we came."
 
-“Sure thing, just let me p”
+Somehow, I got her on her feet. We turned around, walked back the way we came. By the time we reached the road, she was better. Both of us were coming down off the adrenaline. But she was ok. I was ok. Everything was ok.
 
-“NO. DO IT NOW PLEASE.” She snapped. But in a tone that suggested she didn’t know what snapping actually sounded like.
+When we got back to my apartment, she didn't even come inside. She just got in her car, said, "I'll call you later," and drove away.
 
-I set the stuff down and walked over to the TV, where she sat, the bottom of her dress pulled under her feet like she was trying to use it as a makeshift blanket.
+My housemate was home when I came in, and I just had to tell someone. So I told him everything. When I finished, he looked at me and said, "Well, let's go."
 
-It seemed a little silly that she would be panicking this much over the show on the TV, one of those paranormal travel shows that looked to be focusing this week on the phenomenon of mimics in the Appalachians.
+"Let's go… what? Where?"
 
-I grabbed the remote and switched it off. 
+"Let's go look around. Let's go to that spot and see if we can find whatever she saw."
 
-“Thank you.” She said, not looking at me, but instead at the TV as though she had just seen a ghost.
+That's the kind of thing you can just do in your twenties. You just drop everything and you go. So we went.
 
-“Uh huh.”
+The trail wasn't hard to find. We walked to roughly where she had fallen, and we looked around. Nothing. Trees. Dirt. Leaves. Sticks. It was a trail in the woods, like hundreds of others in that town.
 
-I took my lunch downstairs. The interaction had unnerved me, and I didn’t really want to be near her.        
-….
+"Okay," he said. "Let's just keep going." So we did.
 
-I was laying in bed that night, trying and failing to fall asleep. Something about that interaction was still weirding me out.
+Not far past that spot, the trail bent to the right and started up a hill. Just a gentle climb. We followed it around the corner and up the slope. And at the top, the woods ended. The trail simply stopped, and below us the land opened up into a big property. Someone was clearly taking care of it. The grounds were maintained. The grass was mown. But it didn't look like anyone lived there or used it at all.
 
-I got out my iPad. It didn’t take long to find a news article about it.
+And there were buildings. They were huge rectangular boxes of red brick, about four stories tall, like factories. But someone had gone back and tried to dress them up. There was fancy concrete trim framing the windows and the corners, stuck on like an afterthought. It was as if someone had built something for one very specific purpose, and then decided it needed to look nicer than it was.
 
-Ash and her fiance, Nate, had been staying with her family in a secluded rental cabin somewhere in Tennessee. On the night of July 2nd, her mom and grandmother had left to go for a short walk on a nearby trail. She and Nate had been sitting in some chairs on the back deck with glasses of wine when her mother had called to her from the woods bordering the property, claiming to have fallen and hurt herself.
+Every window and every door on the first two floors was boarded up. And there wasn't just one building. There were a few of them, all the same, spread across the property. We walked around to what was clearly the front, and it got even stranger. There was a big covered entrance, like the awning in front of a hotel where you pull up to unload your luggage. A set of stairs led up to the front doors. And right beside the stairs was a big ramp. Wide enough to drive a car right up into the building.
 
-They had set their glasses down and made their way into the woods without so much as a second thought, only to quickly become lost. 
+We walked around for a while then went home.
 
-The last thing Ash remembered before waking up in the ICU two days later was one last glimpse of the cabin as it disappeared behind some trees. 
+Later that night, my housemate had some friends over. They were a group of locals who had been in town a lot longer than we had. And at some point, he started telling them my story. I let him tell it. He was a better storyteller than I was anyway.
 
-There was still no sign of Nate.
+He told them about my girfriend on the trail, dropping to her knees. Then he told them about the strange brick buildings we had found on the other side of the hill.
 
-Her mother and grandmother had never been missing to begin with. Their walk had only been 20 minutes, never strayed from the path, and they had become concerned when they had returned to an empty deck, save for 2 half full wine glasses.
+One of them looked at us and asked, "You know what that is, right?” We, of course, didn't.
 
-There was a picture of the couple included in the article from when they had gotten engaged. I couldn’t help but notice something.
+"That's the old state mental institution. The asylum."
 
-Ash had looked identical that day to the picture. Same hairstyle. Same clothes. Even the same sandals.  
+Then he told us the rest: Fifteen or twenty years earlier, the place had lost its state funding. On paper, it was about money. But the rumor was that the state simply didn't want to be liable anymore for what had been going on inside.
 
-\_\_\_\_\_\_\_
+The patients there were people nobody wanted. Families dropped them off and never came back. No visitors. No one asking questions. And the stories say the institution used them as test subjects. Experiments… and terrible ones. People were likely tortured in the name of science, and a lot of them died.
 
-And she showed up the next morning looking, again, the exact same. Like she had gone home, went to bed fully dressed, and just gotten up and immediately driven to our house. 
+When that's happening inside your walls, you don't publicize it. You don't hold funerals. You just bury the problem. That's the last part of the legend. Somewhere on those grounds, there are unmarked graves.
 
-And yet everything looked pristine. Like she had 7 versions of the same outfit all hung up neatly in her closet and just washed six of them every Sunday.
+I can't explain what happened to my girlfriend. If I were the kind of person who believed in this sort of thing, I would tell you that she... sensed something? That somehow she could feel the badness of that place, the evil in that ground, and it hit her the way it did because she was open to it. And I absolutely wasn't.
 
-I thought of the story, of the voice of her mother calling to her from the woods, and found myself questioning whether it was even her that was currently sitting on our couch, again tucking her feet into her dress.        
-……
+Maybe something else happened to her that day, something that had nothing to do with that place. Maybe it was a coincidence that we were on that trail, and a coincidence that someone told us a scary story that night, and I just tied it all together.
 
-Something strange happened again that afternoon.
+We didn't last much longer after that. I don't think that day had anything to do with it. There's no happy ending here, no wedding, no trip back years later to renew our vows on that trail. It's just something that happened.
 
-I went upstairs, again, to make lunch, and again found her sitting on the couch. Laptop open. You could have told me she hadn’t moved since she sat down initially and I’d have believed you.
-
-It’s what she was looking at that stuck out to me.
-
-It was an Instagram post. The picture was the same one from the news article, of her and Nate right after he proposed. She seemed to be about to post something about him, but hadn’t actually written anything. The cursor just blinked in, and out. Over and over.
-
-And she just sat there and stared at it. There was no expression of grief on her face. Not that I was the authority on such things. But she seemed be…analyzing it. The face of Ash in the picture. Her hair. The way she was posed.
-
-It almost felt like she was trying to study the picture, the way an actress hired for a biopic might study the person she’s playing.
-
-I noticed something else that stuck out to me, and maybe she was just trying to move on - she didn’t have a ring on.
-
-\_\_\_\_\_\_\_
-
-I had orientation the next day. So, while Ash still came over, my mom and I spent the bulk of the day at the high school getting me ready.
-
-We had barely pulled out of the driveway when my mom asked me how things were going with her.
-
-“A little weird, but fine. I guess.”
-
-“Weird. How so?”
-
-“For starters, she’s worn the same thing three days in a row.”
-
-I could tell by the look she gave me that I had no bearing to speak on that, having worn the same pair of shorts for the last three days.
-
-“That… and she’s been acting kind of weird.”
-
-“How so?”
-
-I told her about the tv show and the thing with the laptop, making sure to frame it more as I’d already been sitting there as opposed to looking over her shoulder.
-
-She looked at me. Asked me how much I knew already. I told her about the article I had found.
-
-“My point, Nick, is that people grieve differently. The dress could be her thing to relive one of the happiest moments of her life. And you don’t know what was going through her mind when she was on her laptop. She may have just felt numb at that point. 
-
-And they were high school sweethearts. It’s hard to put eight years into words, especially when you’re clinging to hope that your partner might still be alive.”
-
-We both knew she was grasping at straws with that last sentence. There had been a funeral a few weeks after everything went down. A closed casket, because there was no body. 
-
-“Just… let her grieve. It’s…what, 2 more weeks of playing video games in the basement while she sits upstairs? Is that so hard?”
-
-She was right. It wasn’t.
-
-As if to underscore what my mom had just said, there was a slideshow at the beginning of orientation. A cheesy thing, all about high school and making memories. But one of the pictures made my mom gasp and wipe away a few tears.
-
-It was of a couple at prom. Clearly a couple, as opposed to just friends. They were slow dancing. Looking at each other as though they were the only ones in the room. They looked much younger, but it wasn’t hard to figure out it was Ash and Nate.
-
-\_\_\_\_\_\_\_
-
-Grieving.. didn’t explain what happened the next day.
-
-My brother and I were wrestling in the basement. As often happened with a stocky, overly confident kid and a gangly, awkward teenager with the build of a wacky waving inflatable tube man, things quickly got heated. 
-
-He’d come after me with a metal baseball bat. I’d managed to overpower him and shove him into the couch, where I’d held him there.
-
-Ash must have heard the commotion, because she came racing down. But she didn’t intervene. She just… stood there, watching us.
-
-Still looking the exact same as she had the previous three days. Same dress. Same jacket. Same hairstyle. Her dress covered her feet, but had she picked it up, I’m sure she’d have had the same sandals as well.
-
-And she stood there, watching us no different than you’d watch the lion enclosure at the zoo. 
-
-And then I realized my brother could barely breathe the way I had him pinned to the couch. I let him go, and she promptly turned around and walked back upstairs. Like the show was over, and so it was time to go. No stern talking to or yelling. Just.. gone.
-
-She did it so nonchalantly that I was almost surprised when my dad got home that afternoon and she told him what happened. 
-
-He sat us down after she left. Told us the bat incident was too far, and we were both grounded the rest of the week. This was a Thursday, so it’s not like we were to just sit there doing nothing for a couple days, but still.
-
-We tried to tell him about how she’d sat there, studying us like rats in a science experiment, but he wouldn’t have it. He told Mom when she got home, and that was that.
-
-\_\_\_\_\_\_\_
-
-Perhaps it was just as well that we were grounded, because on Friday, things got really weird.
-
-We were sitting there on the couch across from her. It was beginning to feel like Déjà vu. She’d walk in, sit on the couch, pull her dress up, and then not move unless it was absolutely necessary.
-
-The TV stayed on the travel channel. I knew it had been on other shows, even remembered watching baseball highlights that morning, but the memories were hazy at best. It felt like we were trapped in some sort of cycle.
-
-I was reading a book that I’d meant to read for a while. Something funny happened, and I chuckled. Maybe 30 seconds later, she chuckled as well. Same beat to it. But no humor at all. I caught the back end of it and it was almost like she had forced herself to smile and hack it out, like a cough.
-
-“What’s so funny?”
-
-“Oh. Nothing.”
-
-About ten minutes later, I laughed again, this time at some stupid bar story in my book. It was a good, long wheeze, the kind that takes you completely off guard. 
-
-It was a minute this time.
-
-Then, I watched her forcefully smile and make the exact same noise, for the exact same amount of time. I couldn’t quite tell if she was by now mocking me or something.
-
-That bar story finished off in a way that left me sitting, my face in my hands, shaking in silent laughter. And she followed right on cue a minute later, a forced fit of belly laughter that might have actually been funny had the TV not been discussing eight people getting murdered with an axe in Kansas a century ago.
-
-I got up, excused myself, and went to the bathroom. I could tell she didn’t have an answer for that.        
-….
-
-That fifth day wound up being her last with us, in part because of some very fortunate timing with my dad, who walked in from work just in time to hear himself calling my name. 
-
-I came running down the stairs.
-
-“Hey, Dad. What’s up?”
-
-“… Nothing. That wasn’t me.”
-
-I looked at him, confused. Then I looked into the kitchen, where the voice had come from.
-
-Ash was hurriedly packing her things. Her face was beet red.
-
-“I’m sorry. I’ve been….getting into doing impressions lately. I thought I was alone.”
-
-My dad smiled politely. “No worries at all. You were spot-on!”
-
-I forced a grin. “Very!”
-
-She grinned and hurried out.        
-…
-
-My parents sat us down once again that night.
-
-Ash, they said, had some new teacher trainings she had forgotten about. She asked my parents to tell us she would miss us.
-
-We would be on our own for the rest of the summer during the day, which was more than fine with us.
-
-\_\_\_\_\_\_\_
-
-I have no idea what would have happened the remainder of the summer, or what her end goal was with us. If that was truly her.
-
-Life went on, and eventually we forgot about her completely. She came up on occasion while reminiscing, but nothing aside from that.
-
-Then I ran into her the fall after I graduated from college.
-
-I was at a football game at my alma mater. Our annual rivalry game. I was talking with a friend when someone called my name.
-
-“NICK!?”
-
-I turned around. 
-
-Ash was walking toward me, along with a broad, stocky dude. Her husband, it turned out. She moved for a fresh start the following year and met him at a bar one night. He was a former football player at our alma mater.
-
-She was about six months pregnant, and absolutely glowing.
-
-I couldn’t help but notice as well that she was wearing the same outfit she had worn that summer. The same dress. The same denim jacket. The same sandals. And her hair was exactly the same.
-
-That normally wouldn’t have stuck out to me. It was a preppy school, and people frequently dressed up for tailgates.
-
-Except for one thing.
-
-It was about 30 degrees and lightly snowing.
+I've never been able to explain it. But I keep coming back to one thing: she never saw those buildings. She never made it to the bend in the trail or the top of the hill. She had no idea what was on the other side. She just stopped, a quarter mile into the woods, at a spot where there was nothing to see. She looked right past me, down the path, toward that place. And she told me we couldn't go any further.
