@@ -1,88 +1,36 @@
-# We can't go any further...
-Something happened to me about twenty-five years ago that I have never been able to explain.
+# The storage locker next to mine has been rented for nine years. The owner hasn't been seen in six.
+I live in a condo by Square One in Mississauga. Nothing fancy, just one of those glass towers they threw up in 2016. My storage locker is on P2, unit C-15, down the hall from the garbage room where it always smells faintly like old mop water.
 
-It was 1999. I had just moved to a small college town in northern New England. Lots of old houses. Lots of wooded areas. I'd been there a couple of months. It was late spring, maybe early summer, and I had just started dating someone.
+The locker next to mine is C-14. It has a padlock the color of dried blood and a layer of dust on the mesh door so thick you could write your name in it. I know because one night I did. Just my initials. Stupid, I was waiting for my laundry.
 
-Things were going really, really well. We were still getting to know each other, but everything was clicking. We were at that stage where it didn't matter what we were doing, as long as we were doing it together, it was awesome.
+I asked Dana at the front desk about it back in the spring. She pulled it up on her computer and said the unit's been rented since 2017, payments come out automatically every month, never missed. I asked if the owner ever comes by. She said the email on file bounces and the phone number is disconnected. They can't cut the lock without a court order, and nobody's going to court over a storage locker.
 
-One weekend morning, we woke up and just decided to wander. No plan. No destination. We just walked out the door and started wandering.
+That should have been the end of it.
 
-Neither of us knew the town very well. I was new, and she was from a few towns over. So we drifted toward the college, into a part of town we had never seen. Out past the main streets, everything turns to forest. And that's where we found the path.
+I do my laundry late. The machines are on P1 and there's never anyone down there after midnight, which I liked. About two months ago I was folding shirts around 1 in the morning when I heard it. Three short buzzes, from the direction of the lockers. Like a phone vibrating on a hard surface.
 
-It was just a dirt trail leading off the road and into the trees. Nothing special. Towns like this are full of them: hiking trails, footpaths, unmarked trails that wind off into the woods and go who knows where. So we went.
+I told myself it was the pipes. Old buildings make noises.
 
-Everything was just perfect. Sunlight through the leaves. Dirt and leaves underfoot, trees and bushes on every side, everything green and alive. I was walking arm in arm with a beautiful girl. We were really into each other. We were probably giggling like idiots. Everything was right in the world.
+But I kept hearing it. Always three buzzes. Always between 2 and 3 AM. I started staying down there on purpose, sitting on the bench by the vending machine, just listening. On the third night I timed it: 2:47 AM, three buzzes, three seconds apart.
 
-So we were maybe a quarter mile down this trail and then she stopped. She didn't slow down. She stopped, all at once, like she had walked into an invisible brick wall. Our arms were interlocked, so when she stopped, I stopped too.
+I recorded it on my phone. You can barely hear it on the recording, but it's there if you turn the volume all the way up.
 
-We were still sort of new and still figuring out each other's sense of humor, so maybe this was just a bit?
+Last month I taped a note to the mesh of C-14. It said: "Your phone has been buzzing every night. Please call the front desk." I felt insane doing it. I checked the next night and the note was gone. Not on the floor. Gone.
 
-I turned around to look at her and her face had changed. It was still her. But she looked nervous. Like wary of something. Uncomfortable, like something was wrong and she didn't know what yet.
+The buzzing stopped for a week after that. I told myself I'd imagined the whole thing, that the note probably fell behind the lockers.
 
-"What's going on?" I asked, and gave her arm a little tug. She didn't budge.
+Then it started again. But now it was four buzzes.
 
-"Are you ok?"
+I went down there last Tuesday at 2:40 and put my ear right up to the mesh door of C-14. At 2:47 the buzzing started. Three buzzes. And then, so quiet I almost missed it, a fourth sound. Not a buzz. A voice. Faint, like through a wall. It said "hello?" The way you answer a phone when you're not sure who's calling.
 
-She didn't answer. She wasn't even looking at me. She was looking past me, down the path, and she couldn't seem to focus on me.
+I ran for the elevator and I didn't wait for it. I took the stairs from P2 to the 11th floor and my legs were shaking so bad I had to sit in the hallway.
 
-"You ok? Want to keep going?" And I gave her arm another little tug. It wasn't hard, but the instant I pulled, she dropped to her knees in the dirt.
+The next morning I told Dana everything. She went quiet in a way that scared me more than the voice had. She said the name on the C-14 account was a man who died in 2019. Car accident on the 401. The payments kept coming because they're automatic, and nobody at the management company ever connected the dots because why would they.
 
-"We can't go any further," she said. "We can't go any further. We can't go any further."
+She said she'd escalate it. That was four days ago.
 
-That's when I started to get a little scared. I got down on my knees in front of her, trying to get her to focus on me. "What's going on? Are you ok?"
+Last night I went down to move my stuff out of C-15. I couldn't stand being next to that locker anymore. The padlock on C-14 was gone. The mesh door was hanging open about six inches.
 
-"We just," she said. "We can't go any further."
+The locker was empty. Concrete floor, bare walls, nothing in it at all. Except in the back corner, plugged directly into the concrete wall, was a phone charger. There is no outlet in that corner. There are no outlets in the storage lockers at all.
 
-This wasn't her. I didn't know what was happening, but this was not the girl I had been laughing with ten seconds earlier. I tried to help her back onto her feet, and she broke. She burst into tears, sobbing so hard she couldn't stop, and her face was changed again. The wariness was gone. What was there now was terror. Pure, open horror.
-
-Ok. Something real is clearly happening here.
-
-I held her and tried to comfort her as best I could. She kept mumbling the same thing, over and over about not going any further.
-
-"Ok," I said. "We won't. Let's just get out of here. We'll stand up, turn around, and go back the way we came."
-
-Somehow, I got her on her feet. We turned around, walked back the way we came. By the time we reached the road, she was better. Both of us were coming down off the adrenaline. But she was ok. I was ok. Everything was ok.
-
-When we got back to my apartment, she didn't even come inside. She just got in her car, said, "I'll call you later," and drove away.
-
-My housemate was home when I came in, and I just had to tell someone. So I told him everything. When I finished, he looked at me and said, "Well, let's go."
-
-"Let's go… what? Where?"
-
-"Let's go look around. Let's go to that spot and see if we can find whatever she saw."
-
-That's the kind of thing you can just do in your twenties. You just drop everything and you go. So we went.
-
-The trail wasn't hard to find. We walked to roughly where she had fallen, and we looked around. Nothing. Trees. Dirt. Leaves. Sticks. It was a trail in the woods, like hundreds of others in that town.
-
-"Okay," he said. "Let's just keep going." So we did.
-
-Not far past that spot, the trail bent to the right and started up a hill. Just a gentle climb. We followed it around the corner and up the slope. And at the top, the woods ended. The trail simply stopped, and below us the land opened up into a big property. Someone was clearly taking care of it. The grounds were maintained. The grass was mown. But it didn't look like anyone lived there or used it at all.
-
-And there were buildings. They were huge rectangular boxes of red brick, about four stories tall, like factories. But someone had gone back and tried to dress them up. There was fancy concrete trim framing the windows and the corners, stuck on like an afterthought. It was as if someone had built something for one very specific purpose, and then decided it needed to look nicer than it was.
-
-Every window and every door on the first two floors was boarded up. And there wasn't just one building. There were a few of them, all the same, spread across the property. We walked around to what was clearly the front, and it got even stranger. There was a big covered entrance, like the awning in front of a hotel where you pull up to unload your luggage. A set of stairs led up to the front doors. And right beside the stairs was a big ramp. Wide enough to drive a car right up into the building.
-
-We walked around for a while then went home.
-
-Later that night, my housemate had some friends over. They were a group of locals who had been in town a lot longer than we had. And at some point, he started telling them my story. I let him tell it. He was a better storyteller than I was anyway.
-
-He told them about my girfriend on the trail, dropping to her knees. Then he told them about the strange brick buildings we had found on the other side of the hill.
-
-One of them looked at us and asked, "You know what that is, right?” We, of course, didn't.
-
-"That's the old state mental institution. The asylum."
-
-Then he told us the rest: Fifteen or twenty years earlier, the place had lost its state funding. On paper, it was about money. But the rumor was that the state simply didn't want to be liable anymore for what had been going on inside.
-
-The patients there were people nobody wanted. Families dropped them off and never came back. No visitors. No one asking questions. And the stories say the institution used them as test subjects. Experiments… and terrible ones. People were likely tortured in the name of science, and a lot of them died.
-
-When that's happening inside your walls, you don't publicize it. You don't hold funerals. You just bury the problem. That's the last part of the legend. Somewhere on those grounds, there are unmarked graves.
-
-I can't explain what happened to my girlfriend. If I were the kind of person who believed in this sort of thing, I would tell you that she... sensed something? That somehow she could feel the badness of that place, the evil in that ground, and it hit her the way it did because she was open to it. And I absolutely wasn't.
-
-Maybe something else happened to her that day, something that had nothing to do with that place. Maybe it was a coincidence that we were on that trail, and a coincidence that someone told us a scary story that night, and I just tied it all together.
-
-We didn't last much longer after that. I don't think that day had anything to do with it. There's no happy ending here, no wedding, no trip back years later to renew our vows on that trail. It's just something that happened.
-
-I've never been able to explain it. But I keep coming back to one thing: she never saw those buildings. She never made it to the bend in the trail or the top of the hill. She had no idea what was on the other side. She just stopped, a quarter mile into the woods, at a spot where there was nothing to see. She looked right past me, down the path, toward that place. And she told me we couldn't go any further.
+The little brick was still warm.
