@@ -1,100 +1,86 @@
-# I run a shell game on the Atlantic City boardwalk. For six weeks one man has won every round without ever touching a cup.
-I should say up front that the game can’t be won. That’s not me being cynical. That’s the job description.
+# I work overnights at a 24-hour grocery. Self-checkout 4 keeps telling me there's an unexpected item in the bagging area.
+I should say up front that I'm not a night person. I took the 10 p.m. to 6 a.m. at Hartwell's because it pays an extra two dollars an hour, and because there are never more than five customers in the building after midnight.
 
-Three steel cups, the dented kind a diner buys by the case. One red rubber pea. Twenty dollars a guess. Old Marv taught me the whole thing when I was nineteen, in a laundromat parking lot in Pleasantville, and he only really taught me one rule.
+My job is mostly the self-checkouts. There are six, and I'm the attendant. I stand at a little podium with a key card on a lanyard, and when a machine locks up, I tap the card and clear it. You've heard the voice. It's flat and pleasant, a woman who has never been in a hurry in her life.
 
-*The pea is never under the cup.*
+*"Unexpected item in the bagging area."*
 
-It’s in your palm. It’s always in your palm. The cups are theater. The pea gets “found” when you decide it gets found, and you decide based on who’s watching and how much they’re carrying. I’ve run this table for eleven years, rain or shine, off a folding crate with a bungee cord across the top so the wind doesn’t take the cups. It’s not a good living, but it’s mine. Nobody on this boardwalk has ever beat me, and I’d like that on the record, because it matters later.
+It usually means someone put their purse down or bagged something before scanning it. Nothing is ever in the bagging area. You tap the card, it says "Please continue," and it's over.
 
-He showed up the second Tuesday in October.
+Kiosk 4 started doing it at 3:14 a.m., every night, for no one.
 
-Tall, late fifties, orange parka zipped to the chin in sixty-degree weather. Rubber boots. Nobody was with him. He stood at the end of my crate for the whole first shuffle and never looked at the cups. He looked at me.
+No customer. No bag. Just the screen turning red and the voice: *"Unexpected item in the bagging area. Please remove the item and try again."* The scale readout in the corner of the screen would show a number, sitting there on an empty platform.
 
-I ran it. Over, under, around. I closed my palm, set the cups, the usual.
+The first night it said **131.2 lbs.**
 
-“Left,” he said.
+I wrote it down. I write down everything. It's a habit from my last job, where nobody believed me about anything unless there was a log.
 
-I lifted the left cup, and the pea was under it.
+I tapped the card. The screen went green. *"Please continue."*
 
-I want you to understand how wrong that is. My right hand was closed. I could feel the pea in it, the small rubber bead pressing into the crease of my palm. I turned it over after he’d gone, right there on the boardwalk, and there was nothing in it. It was empty and a little damp.
+The next day, Denise didn't come in.
 
-He’d left a twenty on the crate and walked off toward the Tropicana. Not mine. His own twenty, folded in half, the same one he’d have lost. A tip, I guess, for the trick.
+I didn't think anything of it at the time. People call out. But the night after, I asked Marcus, the stock guy, if he'd heard from her, and he said, "Who?"
 
-I figured he was a magician. They sometimes come around to heckle. I figured I’d see him again, and that I’d be ready.
+I said Denise. Cashier, glasses, always had those little orange candies in her pocket. He laughed and said I was thinking of somebody at the old Hartwell's, because there was no Denise here. I checked the schedule board. Her name wasn't on it. I checked the break room. Her locker had a different name on it that I didn't recognize, and it had been that way, as far as anyone could tell, forever.
 
-I was not ready. He came every Tuesday and Thursday for six weeks. I counted, because I count everything. One hundred and twelve rounds. I’ve changed cups. I’ve changed pea. I once ran a round with the pea in my sock, to see. I tried rigging it so the pea was physically impossible to be under any cup. I held it in my fist where he could see it.
+I could still see her. That's the part I have trouble with. I could picture the orange candies.
 
-“Middle,” he’d say.
+The second night, 3:14 a.m., Kiosk 4 said **164.0 lbs.**
 
-Lift the cup. There’s the pea.
+I'm not stupid. I didn't tap the card right away. I stood there and listened to it say *"Please remove the item"* five times, ten times, in that same flat, pleasant voice, and while I stood there, the lights over aisles 9 through 12 clicked off one at a time. Then 7 and 8. Then the freezers hummed down, and something in the building's walls started to feel like it was leaning.
 
-My fist is open and empty. Every time.
+I tapped the card.
 
-He never gloated. He never bragged. He just put a twenty on the crate and left it, and every night I’d sit in my car with the heater on and look at that twenty, and it was always a little warmer than it should be, like it had been in a pocket close to a body.
+The lights came back. *"Please continue."*
 
-Around round forty, I noticed something wrong with the *other* thing.
+The next morning, the assistant manager, Tyler, wasn't on the schedule. Nobody had ever heard of Tyler.
 
-My sister’s name is Dolores. I’ve had it all my life. The second Thursday in November I was texting her, and I got to the end of a sentence and realized I didn’t know how to spell it. I hadn’t forgotten it, exactly. It was like I’d been handed a coat and told it was mine, and the pockets were empty.
+I keep a notebook now, a real paper one, under the podium. I've written down **131.2** and **164.0**. Beside them I've written *Denise* and *Tyler*, in pen, because the memory is going and I need something in my handwriting that says they existed.
 
-I called her. She picked up. I said “Hey, Dolores,” and it was fine, I knew the sound of it. But I stood there in the parking lot and thought: *I don’t remember her face.* I could describe it, sure. I remembered that she had one. That’s all I had.
+I weighed Denise's friend, a woman who works the deli, on the produce scale one night, as a joke. I told her it was a bet. She was 131 on the nose.
 
-I went home and tore the apartment apart looking for photos. The photos were there. I looked at them for a long time.
+That's when I understood what the machine is asking.
 
-And then I started doing math, because that’s what I do when I’m scared.
+It's not a glitch. It's an *unexpected item.* Something the building has decided shouldn't be there, and it's asking me, the only attendant on duty, to authorize the removal. It needs a person to press the button. It's polite about it, but it can't do it alone.
 
-The first round, I lost something I couldn’t name. The second round, I’d have lost something else. I’ve lost things all my life. Everyone has. You don’t notice, that’s the point, you just notice later that you can’t remember the name of the first dog or the song that was playing in the car.
+And I've been pressing the button.
 
-He wasn’t winning *money.* The twenty was a receipt.
+I tried not to, the third night. I want that on the record. At **148.6 lbs.** I stood at the podium with my hands behind my back and let the machine ask for six minutes. I counted it out. The lights went off in sections. The doors at the front, the automatic ones, started opening and closing by themselves, slowly, like breathing. Somewhere in the store, a shopping cart rolled by itself down aisle 3 and hit the end cap.
 
-The following Tuesday I did something stupid. I put a mirror on the crate, a little compact, propped behind the cups, angled so I could see the underside of each one when I lifted it.
+Then the voice stopped saying "item" and started saying something different.
 
-He came. He said “Right.” I lifted the right cup, slowly, watching the mirror.
+*"Unexpected attendant in the bagging area."*
 
-Under the cup was a gray, wet-looking hand.
+I tapped the card.
 
-Not a whole hand. Just a hand, palm up, fingers curled loosely like it was waiting for change. The pea was sitting in the middle of it. The hand was *mine.* I know that sounds insane. But I’ve been looking at my hands for forty years, and there’s a scar across the knuckle of the left index from a bad steel cup in 2016, and the scar was there, in the cup, on someone else’s hand.
+I haven't tried it again.
 
-It pulled back. The pea rolled. The cup came down. When I lifted it again, there was nothing under it but the pea, small and red and dry.
+It's been nineteen nights. I have nineteen numbers in the notebook. I don't remember most of the names that go with them. I only know they were people because I wrote *person* next to each one, in a column, like a ledger.
 
-He said, for the first time, more than one word.
+Tonight, at 3:14, Kiosk 4 turned red.
 
-“You’ve been very good to me.”
+It said **172.0 lbs.**
 
-His voice was kind, and that’s the part I can’t get past. He sounded the way a nurse sounds.
+I put the pen down.
 
-“Marv taught you the rule,” he said. “The pea is never under the cup. He didn’t tell you why, did he?”
+I don't weigh 172. I've weighed myself every morning for six years, on a bathroom scale my dad bought me when I turned eighteen. I weighed 172.0 this morning. I know because I wrote that down too.
 
-I said nothing.
+*"Unexpected item in the bagging area."*
 
-“Because that’s where the *other* players keep theirs.”
+I could press the card and it would go away. I think it would take me, and I think I'd be the only one who didn't remember it happened.
 
-He tipped his head toward the cups, the way you’d tip it toward a table of kids.
+But here's what I figured out about ten minutes ago, standing at this podium.
 
-“They’ve been very patient. They only play with people who can really, truly hold a pea in the palm. Anyone can learn the trick. Almost nobody can do it for eleven years without once believing the pea might be under the cup.” He smiled. “You’re a rare table.”
+The machine can't remove an item unless an attendant authorizes it. That's me. There's never been anyone else on this shift, and I never thought about why. Tyler wasn't an attendant. Denise wasn't either. They were just numbers.
 
-I asked what he’d taken from me.
+There's one more person who has the power to tap that card. That's whoever works the overnight shift *after* me.
 
-“Oh, I haven’t taken anything. I’ve only been *calling* them. They find the pea. You pay the twenty.” He folded his hands. “It’s a cut of the house. Do you see how it works? You’ve been doing most of it yourself for years.”
+I'm writing this on my phone, standing on Kiosk 4's scale. I stepped onto the platform two minutes ago so the machine would stop asking about an empty space. The screen says **172.0** and the voice has gone quiet, and the red is fading, and I think it's waiting.
 
-I’d like to say I picked up the table and ran, or hit him, or did anything a person is supposed to do. I stood there. There’s a way my body goes still when something is looking at it, and I can only describe it as fold-yourself-small. It’s not bravery. It’s the opposite.
+The front doors just opened.
 
-He left a twenty and went toward the Tropicana, same as always.
+I can hear keys.
 
-I counted the bills in my apron after. I had a hundred and twelve dollars more than I should have, in twenties. Every one was warm.
+I don't know who works the overnight shift after me. I've never once seen them. I've worked here nineteen nights and not once have I been relieved at six.
 
-That was Thursday. This is Saturday. I didn’t set up today. I’m sitting in my car on the boardwalk lot with the heater on, and the cups are in the trunk with the pea. I want you to know that I didn’t take them out.
-
-An hour ago a man I’ve never seen before walked up to my window. Young. Cheap suit. He didn’t speak. He set a twenty on my dashboard, folded in half, still warm, and he held up three fingers, and then he pointed at the trunk.
-
-He wasn’t waiting for me to run the game.
-
-He was waiting for me to *play.*
-
-I think I’ve been on the wrong side of the crate for eleven years. I think the man in the orange parka was never the player. I think he was the *house,* and the house just told me I’ve been promoted, and there is nobody left on this boardwalk who will ever, ever guess wrong again.
-
-I can hear the cups moving in the trunk. Slowly. In order. Over, under, around.
-
-I don’t know whose palm the pea is in.
-
-I’ll update when I know.
+The lights over aisles 9 through 12 just went out.
