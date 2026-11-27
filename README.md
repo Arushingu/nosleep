@@ -1,114 +1,41 @@
-# johannsebastian.bat
-It was December 1999. I was living in a small town. I was a nerd and something of a gamer, and it had been a good year for PC games. *Age of Empires II, Homeworld, Grand Theft Auto 2…*
+# Two men showed up at my door during a storm. One had a badge, one had a gun, and I realized I trusted the wrong one
+It was around eight on a Tuesday evening when the storm really settled over the valley, the kind of heavy autumn rain that knocks branches into gutters and turns the floor-to-ceiling windows into black mirrors. I was alone in my parents' split-level house on the ridge. They had left two days earlier for a dental conference upstate, leaving me with a refrigerator full of foil-wrapped leftovers and a deadbolt on the front door that stuck if you didn't lift the handle as you turned the key.
 
-I was walking home from school—it was a Canadian winter, so there was plenty of unplowed snow on the sidewalks—when I saw something peeking out from a mound of snow: something blue. I stopped,  nudged it with my boot: something *of blue plastic.* I brushed away the remaining snow with my glove to reveal:
+I had the news on low in the living room while I heated water for instant coffee. The local broadcast broke in with a special report: an escaped psychiatric patient, a serial killer responsible for three brutal stabbings in the county, was loose in the wooded residential tracts nearby. The anchor warned residents to lock every entryway, keep outdoor lights off, and stay inside. I remember standing there with the mug in my hand, listening to the announcer's voice, feeling that tiny cold pinch in the hollow of my throat. I walked to the front foyer, checked the deadbolt, fastened the brass chain, and drew the blinds across the front pane.  
+Then someone knocked on the door.
 
-A single 3.5” floppy disk, unlabeled.
+It wasn't a tentative tap. It was three solid, impatient raps against the wood. My chest tightened up instantly. I crept to the peephole and pressed my eye to the fish-eye lens. Outside under the porch awning stood a man in a soaked, dark raincoat. His hair was plastered across his forehead, and water was dripping from the tip of his nose.
 
-(There was a sticker label on it, but the label itself was empty.)
+Through the wood, I asked him what he wanted. He introduced himself as a businessman named Sam whose car had stalled out near the access road. He said his battery was completely flat and his phone had no reception in the dip, asking if he could just come inside for five minutes to dry off and make a local phone call.
 
-Naturally, I picked it up and took it home, curious to see what was on it.
+I told him no through the door. I told him my husband was asleep upstairs in the bedroom and that I didn't open the door for strangers, especially with the warnings on the news. He didn't leave. He stood on the porch, leaning closer, his voice dropping into this smooth, overly reasonable tone that sounded completely practiced. He said he understood my fear, but it was freezing, the rain was coming down harder, and all he needed was thirty seconds by the hall landline. Every time I told him to go to the next house down the hill, he gave another reason why he couldn't walk that far in the dark.
 
-You'll laugh, but the disk had 1.44mb of storage capacity. As it turned out, that was more than enough to affect the world in ways I still don't fully understand.
+I was trembling so badly I had to put my hands against the jamb to steady myself. He kept pacing the front deck, peering around the frame, trying to catch an angle through the edge of the blinds. I yelled that I was calling the police right then, and I picked up the landline receiver on the console table.  
+There was no dial tone. Just a hollow, dull hiss. The storm must have dragged down a tree line somewhere down the slope.
 
-When I got home, I didn't put the disk into my own computer. My dad had an old desktop he sometimes fiddled around with, so I used that, inserting the disk carefully into the 3.5” disk drive in the beige computer tower.
+When I looked back through the peephole, the porch was empty. I felt a brief surge of relief, but then a scraping sound came from the patio slider around back. I ran into the kitchen, grabbed a heavy eight-inch chef’s knife off the butcher block, and stood behind the kitchen island, holding the blade with both hands.
 
-I navigated to the drive in Windows Explorer.
+Before I could breathe, there was another knock, this time on the glass of the rear door, sharp and rapid. A different man was out there under the overhang, wearing an unbuttoned trench coat, soaking wet, waving a small leather badge wallet against the pane. He shouted that he was an inspector, an investigator with the county sheriff's department, checking the perimeter after a suspicious vehicle was spotted idling near the property.
 
-The contents of the drive were simple.
+I unlocked the slider just enough to speak through the latch gap. He looked haggard, winded, his eyes darting between me and the tree line. He told me to let him in immediately because the perimeter wasn't secure. The moment he stepped inside, dripping rain across the parquet floor, the first man—the one who called himself Sam—was suddenly standing right there in the living room archway, having slipped in through an unlatched side window in the laundry room while I was distracted at the back.  
+The room went dead silent except for the drumming rain on the roof.
 
-They looked like a program or—I secretly hoped—a game.
+The investigator pulled his revolver and ordered Sam to raise his hands and back against the bookcase. Sam went pale, stammering, putting his palms flat against the shelves, insisting he only climbed in because he saw someone lurking near the shrubbery and was trying to protect me. The two of them started shouting over each other, accusations flying back and forth. The investigator called Sam a liar, saying his story about a broken-down car didn't match the tire tracks near the driveway. Sam fired back, pointing at the officer's wet badge, asking why a county cop was operating solo on foot without a patrol cruiser in the driveway or a radio on his shoulder.
 
-There was a readme.txt, but it came out as nonsense when I opened it in Notepad, video or sound assets, stuff I couldn't identify, and a single executable file, johannsebastian.bat.
+I stood between them, holding the kitchen knife, listening to their voices bounce off the high ceilings. The fear was making my vision tunnel. The officer told me to search Sam’s coat pockets for identification while he kept his gun trained on him. I stepped forward, my hands shaking so hard I could barely slide my fingers into Sam's wet canvas pockets. I pulled out a small black leather wallet.  
+Inside was a police badge and an official ID card with the county crest.
 
-I double-clicked it.
+The name on the badge belonged to an inspector. The face on the laminated card was the man standing by the bookshelf—the man who called himself Sam.
 
-A window opened—black, showing a few white-text commands executing on a command prompt—then maximized into a 16-bit title(?) screen showing a pixelated Gothic castle.
+I stepped back, looking at the man with the gun by the patio door. If Sam was the real investigator working plainclothes, then the man holding the revolver was the patient who had walked away from the state facility two nights ago.
 
-A harsh, classical-inspired MIDI song beeped out of the sound card.
+Everything happened in a blur of five seconds. The fake cop saw my face change and realized the cover was blown. He leveled the revolver straight at Sam’s chest. Sam lunged forward to knock the barrel aside. The gun went off—a deafening, flat crack that tore through the living room, shattering the side glass of the rear slider. Sam took the bullet in the gut, folded over, and collapsed onto the area rug, clutching his stomach while dark blood pooled through his fingers.
 
-There was no title.
+The killer turned the gun toward me. He took two slow steps across the rug, breathing through his teeth, struggling to steady the heavy frame of the weapon after the grapple.
 
-No instructions, no company name, no menu, no options.
+I didn't scream. I didn't hesitate. I drove the kitchen knife straight upward into the hollow of his neck before he could bring the barrel level.
 
-The castle was perched atop a cliff.
+The metal hit cartilage and bone with a dull, wet thud. His eyes went wide and milky. The revolver dropped onto the carpet, and he fell forward onto his knees, choking on thick, bright fluid, clawing at the blade handle until his arms went limp and his forehead hit the floorboards next to the sofa.
 
-It was night.
-
-At the bottom of the cliff was a forest of jagged, leafless trees.
-
-A few loops of animation gave life to the scene: wind blowing through the bare branches, flashes of distant lightning, warm flickering light in one of the castle's windows, a bat in flight against a white moon. Actually, that last one wasn't a loop. The bat flew only once, landed on one of the castle's stone towers and disappeared inside.
-
-I clicked.
-
-I was looking at a medieval-ish village now—tightly-packed buildings, a tavern, a tannery, a  couple of shops, a church—populated with a surprising  number of unique character sprites. Indeed, every character was unique, and they were going about their individual lives.
-
-The sky was a vibrant blue.
-
-Clouds floated pixel-by-pixel across the screen.
-
-But there was still nothing to do; nothing, that is, but watch.
-
-It was like a very advanced screensaver.
-
-After a while, I clicked again.
-
-This time, I found myself in the interior of a large chamber whose stone walls somehow *felt* cold even through the computer monitor.
-
-The chamber's defining feature, however, was something else: a giant pipe organ whose pipes extended beyond the top of the screen.
-
-A character entered.
-
-He was wearing a white wig, dark, crimson long coat, knee breeches, stockings and buckled shoes. “I feel the sudden desire to compose,” he said, which the game displayed as text in an ornately-bordered text box. “Invite me to play for you."
-
-A cursor appeared for the first time.
-
-A quill.
-
-I was able to move it using the mouse, and I explored the screen.
-
-The character tapped his foot.
-
-The only active area of the scene appeared to be the pipe organ. When I hovered the cursor over it, it changed from a quill to a hand.
-
-I clicked.
-
-The character walked to the organ, sat and began to play the  monstrous instrument.
-
-The music was both hideous and awesome, pushing the computer's sound card to the absolute limit. After thirty-or-so seconds, the view suddenly panned upwards, following the organ's pipes—the music continued—following them to the chamber's vaulted ceiling *and beyond*—through the roof until I was outside and looking at the upper half of the great castle, where the jutting pipes terminated and from whose termini hundreds of pixel bats were emerging… emerging and flying into the background, toward the simplified shape representing the medieval town...
-
-The sky was a deep purple.
-
-Night was falling.
-
-The bats flew and flew and flew…
-
-Suddenly—the music still continuing—the scene cut to the same view of the town as before: except at night: except, instead of following their routines, the character sprites were running, panicked, *as the bats swooped, attacking them, attaching themselves to their bodies, necks, sucking their pixel blood;* and as the bats feasted, the sprites lost their colour and fell, pale and desaturated…
-
-**The sound startled me.**
-
-Not from the sound card but from the real world. A screeching, a deafening, rhythmic thumping.
-
-I ran to the window whose blinds I'd closed, and opened them:
-
-It was afternoon but the view was dark, black and shifting. It took me a moment to realize that what I was seeing were bats speeding past. They were obscuring the sun. My home town was as if under an eclipse.
-
-People were running down the street—
-
-Bats were diving—
-
-Some were crashing through car windshields—
-
-Children were screaming—
-
-A bat crashed though the window into the room I was in. It was fanged, crazed. The game music blared from within the computer tower. Before I could run, the bat shot toward me—biting my neck… *beginning to drink my blood…*
-
-**I awoke on the floor.**
-
-It was morning. January 1, 2000. It would turn out that nobody in town had any recollection of the preceding weeks.
-
-A television played.
-
-A morning talk show: “...the so-called Y2K bug,” a woman was saying, “ended up amounting to nothing worse than a good nights’ sleep.”
-
-And, ever since, I've wondered why my experience of the present feels in a lower resolution than [memories of my past.](https://www.reddit.com/r/normancrane)
+The house went completely still again. Just the rain outside and the whistling draft coming through the fractured glass of the shattered patio door.  
+I stood there over the two bodies, my clothes soaked in warm, heavy red. I walked into the kitchen, washed my hands under the cold tap until the water ran clear, and dried them on a dish towel. Then I walked back into the living room, stepped carefully around the pool on the rug, picked up the receiver of the dead landline, and held it to my ear, listening to the flat, unending static while the water kept dripping from the roof into the dark yard.
