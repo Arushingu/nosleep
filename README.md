@@ -1,41 +1,40 @@
-# Two men showed up at my door during a storm. One had a badge, one had a gun, and I realized I trusted the wrong one
-It was around eight on a Tuesday evening when the storm really settled over the valley, the kind of heavy autumn rain that knocks branches into gutters and turns the floor-to-ceiling windows into black mirrors. I was alone in my parents' split-level house on the ridge. They had left two days earlier for a dental conference upstate, leaving me with a refrigerator full of foil-wrapped leftovers and a deadbolt on the front door that stuck if you didn't lift the handle as you turned the key.
+# I didn't visit them on the weekend, so they visited me...
+I can't say I was a studious kid, but when my maths grade dropped from an A to a C, I knew there was no way my mom was going to let me spend the summer at home that year. I was freshly 17 and felt like I knew more than anyone else, not numbers, apparently.
 
-I had the news on low in the living room while I heated water for instant coffee. The local broadcast broke in with a special report: an escaped psychiatric patient, a serial killer responsible for three brutal stabbings in the county, was loose in the wooded residential tracts nearby. The anchor warned residents to lock every entryway, keep outdoor lights off, and stay inside. I remember standing there with the mug in my hand, listening to the announcer's voice, feeling that tiny cold pinch in the hollow of my throat. I walked to the front foyer, checked the deadbolt, fastened the brass chain, and drew the blinds across the front pane.  
-Then someone knocked on the door.
+My older brother had this tutor when he was in my grade, a middle-aged man who would look at you sternly if you did anything but study when he was in the room, though he had a soft spot for me since I got along well with his daughters and was occasionally his assistant when it came to teaching the younger girls.
 
-It wasn't a tentative tap. It was three solid, impatient raps against the wood. My chest tightened up instantly. I crept to the peephole and pressed my eye to the fish-eye lens. Outside under the porch awning stood a man in a soaked, dark raincoat. His hair was plastered across his forehead, and water was dripping from the tip of his nose.
+My father employed a personal driver for my younger brother and me, as the tutoring was basically on the other side of town, at a minimum of an hour to and from. As we drove there, we would come across a total of three graveyards: a small one some streets down from my house, the second around 15 minutes into the drive and the third a few streets away from the tutor. Now, where I am from, we have a culture in which whenever you visit the deceased, we spread rose petals over their graves and burn incense before reciting religious text; because of this, at the entrance of every graveyard there is a small flower shop that sells rose petals and incense, hitting every visitor with the fresh, flowery smell. I remember always feeling awkward whenever we did visit, though, since most of the people we visited on rare occasions were people I barely even remembered, but I always greeted them, like a sort of hello, per say.
 
-Through the wood, I asked him what he wanted. He introduced himself as a businessman named Sam whose car had stalled out near the access road. He said his battery was completely flat and his phone had no reception in the dip, asking if he could just come inside for five minutes to dry off and make a local phone call.
+This habit grew with me as I climbed the ladder into adulthood; every time we passed a graveyard, I would find myself whispering a greeting to all its residents.
 
-I told him no through the door. I told him my husband was asleep upstairs in the bedroom and that I didn't open the door for strangers, especially with the warnings on the news. He didn't leave. He stood on the porch, leaning closer, his voice dropping into this smooth, overly reasonable tone that sounded completely practiced. He said he understood my fear, but it was freezing, the rain was coming down harder, and all he needed was thirty seconds by the hall landline. Every time I told him to go to the next house down the hill, he gave another reason why he couldn't walk that far in the dark.
+The days soon turned to weeks; the smell of roses grew stronger, fresher, and it would hit me like a wave if I so much as looked towards them. This never happened with any others we came across and my brother never seemed to notice the scent when I pointed it out to him.
 
-I was trembling so badly I had to put my hands against the jamb to steady myself. He kept pacing the front deck, peering around the frame, trying to catch an angle through the edge of the blinds. I yelled that I was calling the police right then, and I picked up the landline receiver on the console table.  
-There was no dial tone. Just a hollow, dull hiss. The storm must have dragged down a tree line somewhere down the slope.
+I remember as the summer came to an end, my mother told us we could take the last weekend off and prepare for the coming school day. At the time, the thought didn't even cross my mind that I would probably never visit the graveyards or greet them ever again. The only thing in my mind was the excitement of reuniting with friends and my outfit for the new school year.
 
-When I looked back through the peephole, the porch was empty. I felt a brief surge of relief, but then a scraping sound came from the patio slider around back. I ran into the kitchen, grabbed a heavy eight-inch chef’s knife off the butcher block, and stood behind the kitchen island, holding the blade with both hands.
+I still remember it as clearly as if it were yesterday.
 
-Before I could breathe, there was another knock, this time on the glass of the rear door, sharp and rapid. A different man was out there under the overhang, wearing an unbuttoned trench coat, soaking wet, waving a small leather badge wallet against the pane. He shouted that he was an inspector, an investigator with the county sheriff's department, checking the perimeter after a suspicious vehicle was spotted idling near the property.
+I woke up, the clock blaring the numbers 3.24 am at me as I squinted out the window to be met with the pitch-dark outside.
 
-I unlocked the slider just enough to speak through the latch gap. He looked haggard, winded, his eyes darting between me and the tree line. He told me to let him in immediately because the perimeter wasn't secure. The moment he stepped inside, dripping rain across the parquet floor, the first man—the one who called himself Sam—was suddenly standing right there in the living room archway, having slipped in through an unlatched side window in the laundry room while I was distracted at the back.  
-The room went dead silent except for the drumming rain on the roof.
+Then I smelt it, the roses.
 
-The investigator pulled his revolver and ordered Sam to raise his hands and back against the bookcase. Sam went pale, stammering, putting his palms flat against the shelves, insisting he only climbed in because he saw someone lurking near the shrubbery and was trying to protect me. The two of them started shouting over each other, accusations flying back and forth. The investigator called Sam a liar, saying his story about a broken-down car didn't match the tire tracks near the driveway. Sam fired back, pointing at the officer's wet badge, asking why a county cop was operating solo on foot without a patrol cruiser in the driveway or a radio on his shoulder.
+It was so strong it felt like someone had put them right under my nose. I looked around the pitch-darkness of my room; I had not received any bouquets, nor did I own any perfume that had this strong of a rosy smell. I decided to get a glass of water, not joining the dots that were so clearly drawn out in front of me. I heard murmurs out in the lounge as I made my way downstairs to the kitchen; both my parents, dressed in their pyjamas, stood wide-eyed and statuesque as they stared into the camera monitors that gave a clear view of the street outside our gate.
 
-I stood between them, holding the kitchen knife, listening to their voices bounce off the high ceilings. The fear was making my vision tunnel. The officer told me to search Sam’s coat pockets for identification while he kept his gun trained on him. I stepped forward, my hands shaking so hard I could barely slide my fingers into Sam's wet canvas pockets. I pulled out a small black leather wallet.  
-Inside was a police badge and an official ID card with the county crest.
+It was almost like a parade. It felt like thousands of people had gathered and were crossing the outside of the garage, stopping momentarily at our gate before walking away, only to be replaced by another. My father looked at me, stunned as I watched the scene unfold.
 
-The name on the badge belonged to an inspector. The face on the laminated card was the man standing by the bookshelf—the man who called himself Sam.
+I can never forget the shiver crawling down my spine when he told me there was no one outside when he checked.
 
-I stepped back, looking at the man with the gun by the patio door. If Sam was the real investigator working plainclothes, then the man holding the revolver was the patient who had walked away from the state facility two nights ago.
+My heart raced as I rushed upstairs, bursting onto the terrace. I peered over the railing, greeted only by the empty street, yet the sound of shuffling lingered like a whisper in the wind. A cool breeze cascaded past me, carrying the thick scent of roses, fresh and dewy, as if they had just been plucked from a garden.
 
-Everything happened in a blur of five seconds. The fake cop saw my face change and realized the cover was blown. He leveled the revolver straight at Sam’s chest. Sam lunged forward to knock the barrel aside. The gun went off—a deafening, flat crack that tore through the living room, shattering the side glass of the rear slider. Sam took the bullet in the gut, folded over, and collapsed onto the area rug, clutching his stomach while dark blood pooled through his fingers.
+I looked towards the empty gravel and whispered a greeting.
 
-The killer turned the gun toward me. He took two slow steps across the rug, breathing through his teeth, struggling to steady the heavy frame of the weapon after the grapple.
+The shuffling stopped. As if it were waiting for something more.
 
-I didn't scream. I didn't hesitate. I drove the kitchen knife straight upward into the hollow of his neck before he could bring the barrel level.
+I instinctively apologised for not being able to visit; the words left my mouth before I could even comprehend what was happening. The silence was filled with the sounds of crickets and ongoing traffic all at once.
 
-The metal hit cartilage and bone with a dull, wet thud. His eyes went wide and milky. The revolver dropped onto the carpet, and he fell forward onto his knees, choking on thick, bright fluid, clawing at the blade handle until his arms went limp and his forehead hit the floorboards next to the sofa.
+I met my parents on the stairs; they both looked confused, rewinding the footage, saying, 'They just vanished.' I never told them who I thought they were.
 
-The house went completely still again. Just the rain outside and the whistling draft coming through the fractured glass of the shattered patio door.  
-I stood there over the two bodies, my clothes soaked in warm, heavy red. I walked into the kitchen, washed my hands under the cold tap until the water ran clear, and dried them on a dish towel. Then I walked back into the living room, stepped carefully around the pool on the rug, picked up the receiver of the dead landline, and held it to my ear, listening to the flat, unending static while the water kept dripping from the roof into the dark yard.
+I remember climbing back into bed, the crowd of people, the shuffling, the sudden smell of roses sifting through the night air, ringing through my head as I stayed up till the sun lit the sky a bright yellow-blue.
+
+I remember finding rose petals near the gate as we left for school the next morning. I remember the rose bush that began to grow right outside our front gate where our visitors softly waited for a greeting that never came.
+
+We still have the bush; my mother had it moved inside the house as part of our garden, where, all year round, it gives the most beautifully vibrant red roses I have ever seen.
